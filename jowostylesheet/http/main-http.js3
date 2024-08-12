@@ -1,0 +1,28 @@
+/*
+ *
+ * @jowo.creator	: Muhammad Nurcahyo Pratomo
+ * @jowo.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * @jowo.architect	: Muhammad Nurcahyo Pratomo
+ * @mime-type		: jowostyle or text/jowostyle or application/jowostyle
+ * @extension		: *.js3
+ *
+ * What its a js3 ? js3 is a file of JowoStyleSheet (Thats cute name). This is how legends are made.
+ *
+ * Note from creator JowoStyleSheet for visual studio team. 
+ * Why JowoStyleSheet dont have extension in visual studio ? 
+ * this simple question because the creator JowoStyle dont know how to create extension in visual studio or little sample for thats or full sample VSIX cc to Mads Kristensen. 
+ * (Step by step)
+ *
+ * Note JowoStyleSheet can write like css too or more complex or enterprise than Cascading StyleSheet (css)
+ *
+ *
+ */
+
+
+@import url('https://fonts.googleapis.com/css?family=Poppins:300,400,500,600,700,800,900');
+@import url('https://stackpath.bootstrapcdn.com/font-awesome/4.7.0/css/font-awesome.min.css');
+
+
+@import url('../../jowostylesheet/basic/jowoscript-technology.js3');
+@import url('../../jowostylesheet/basic/jowoscript-technology-icon.js3');
+@import url('../../jowostylesheet/vendor/bootstrap.js3');
