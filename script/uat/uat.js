@@ -1,0 +1,1 @@
+console.log('hello uat.js this its a file of javascript')

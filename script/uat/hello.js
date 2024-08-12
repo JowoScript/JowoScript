@@ -1,0 +1,31 @@
+/*
+ *
+ * @jowo.creator	: Muhammad Nurcahyo Pratomo
+ * @jowo.developer	: Muhammad Nurcahyo Pratomo
+ * @jowo.architect	: Muhammad Nurcahyo Pratomo
+ * @jowo.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * @mime-type		: jowoscript or text/jowoscript or application/jowoscript
+ * @extension		: *.jowo
+ *
+ * Note from creator jowoscript [Muhammad Nurcahyo Pratomo]
+ *	*JowoScript drive technology with a license so not be easy pirate from other client and powerfull in paradigma. How to check $.license
+ *
+ *
+ * What its a jowo extension ? jowo extension is a file of JowoScript. This is how legends are made. Whats the new song now ?
+ *
+ * Note jowoscript can write like jQuery too or more complex or enterprise than javascript, ecmascript, typescript and jQuery
+ *
+ * JowoScript Technology was the breakthrough and capabilities
+ * 
+ */
+ 
+
+function helloJS(jowo){
+	if(jowo.equal(101)){
+		console.log('This file extension of *.js');
+	}
+}
+
+
+
+export {helloJS}
