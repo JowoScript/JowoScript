@@ -1,6 +1,6 @@
 <div align="center">
-<a href="https://www.facehom.com/" target="_self">
-<img src="https://github.com/JowoScript/JowoScript_Technology/blob/core/iconJS.png" 
+<a href="https://www.jowoscript.web.id/" target="_self">
+<img src="https://github.com/JowoScript/iconJS.png.png" 
      title="*JowoScript | *JowoStyle | Jowo Virtual Machine - *jS Technology"
      alt="*JowoScript | *JowoStyle | Jowo Virtual Machine - *jS Technology"     
      height="150px" width="150px"></img>
