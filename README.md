@@ -1,6 +1,6 @@
 <div align="center">
 <a href="https://www.jowoscript.web.id/" target="_self">
-<img src="https://github.com/JowoScript/iconJS.png" 
+<img src="iconJS.png" 
      title="*JowoScript | *JowoStyle | Jowo Virtual Machine - *jS Technology"
      alt="*JowoScript | *JowoStyle | Jowo Virtual Machine - *jS Technology"     
      height="150px" width="150px"></img>
@@ -101,19 +101,19 @@ https://www.facehom.com or https://www.jowoscript.web.id
 <div align="center"><strong>The concept universe of Jowo Kingdom Machine</strong></div>
 <details>
 <summary>Click to view image</summary>	
-<img src="https://github.com/JowoScript/JowoScript_Technology/blob/core/The concept universe of jowo kingdom machine revision.png" title="Architecture of Jowo Kindom Machine">
+<img src="The concept universe of jowo kingdom machine revision.png" title="Architecture of Jowo Kindom Machine">
 </details>
 <br>
 <div align="center"><strong>Architecture of Jowo Kindom Machine</strong></div>
 <details>
 <summary>Click to view image</summary>	
-<img src="https://github.com/JowoScript/JowoScript_Technology/blob/core/architecture of jowo kingdom machine.010.png" title="Architecture of Jowo Kindom Machine">
+<img src="architecture of jowo kingdom machine.010.png" title="Architecture of Jowo Kindom Machine">
 </details>
 <br>
 <div align="center"><strong>Architecture of *JowoScript Technology and *JowoStyle Technology</strong></div>
 <details>
 <summary>Click to view image</summary>	
-<img src="https://github.com/JowoScript/JowoScript_Technology/blob/core/architecture of jowoscript technology.4.0.0.png" title="Architecture of *JowoScript Technology and *JowoStyle Technology">
+<img src="architecture of jowoscript technology.4.0.0.png" title="Architecture of *JowoScript Technology and *JowoStyle Technology">
 </details>
 <br>
 <div align="center"><strong>Installation information</strong></div>
