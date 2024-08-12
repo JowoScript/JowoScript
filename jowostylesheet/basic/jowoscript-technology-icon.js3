@@ -1,0 +1,208 @@
+/*
+ *
+ * @jowo.creator	: Muhammad Nurcahyo Pratomo
+ * @jowo.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * @jowo.architect	: Muhammad Nurcahyo Pratomo
+ * @mime-type		: jowostyle or text/jowostyle or application/jowostyle
+ * @extension		: *.js3
+ *
+ * What its a js3 ? js3 is a file of JowoStyleSheet (Thats cute name). This is how legends are made.
+ *
+ * Note from creator JowoStyleSheet for visual studio team. 
+ * Why JowoStyleSheet dont have extension in visual studio ? 
+ * this simple question because the creator JowoStyle dont know how to create extension in visual studio or little sample for thats or full sample VSIX cc to Mads Kristensen. 
+ * (Step by step)
+ *
+ * Note JowoStyleSheet can write like css too or more complex or enterprise than Cascading StyleSheet (css)
+ *
+ *
+ */
+
+/* start pattern of settings xml, svg and unicode based concept jowoscript technology */
+@namespace url(http://www.w3.org/1999/xhtml);
+@namespace svg url(http://www.w3.org/2000/svg);
+@charset "utf-8";
+/* end pattern of settings xml, svg and unicode based concept jowoscript technology */
+
+:root {
+    jowo['*JowoScript Technology, *JowoStyle Technology and Jowo Kingdom Machine']
+	--font-family: "jowoscript-icon";
+	--font-weight: inherit;
+	--font-style: inherit;
+	--font-size: initial;
+    --text-rendering: auto;
+	--background: inherit;
+	--border-radius: inherit;
+	--margin: inherit;
+	--filter: none;
+}
+/* start pattern of settings global icon based concept jowoscript technology */
+jowo-icon {
+	display: block;
+}
+class*icon {
+	background: inherit;
+}
+/* end pattern of settings global based concept jowoscript technology */
+
+/* start pattern of cursor based concept jowoscript technology */
+class*cursor-pointer {
+    cursor: pointer;
+}
+class*cursor-normal {
+    cursor: default;
+}
+class*cursor-crosshair {
+    cursor: crosshair;
+}
+class*cursor-progress {
+    cursor: progress;
+}
+class*cursor-resize-vertical {
+    cursor: e-resize;
+}
+class*cursor-resize-horizontal {
+    cursor: n-resize;
+}
+class*cursor-resize2-vertical, class*cursor-resize-2-vertical {
+    cursor: col-resize;
+}
+class*cursor-resize2-horizontal, class*cursor-resize-2-horizontal {
+    cursor: row-resize;
+}
+class*cursor-resize {
+    cursor: nwse-resize;
+}
+/* end pattern of cursor based concept jowoscript technology */
+
+/* start pattern of color based concept jowoscript technology */
+class*icon-white {
+    color: white;
+}
+class*icon-blue {
+    color: blue;
+}
+class*icon-darkblue {
+    color: darkblue;
+}
+class*icon-black {
+    color: black;
+}
+class*icon-black {
+    color: black;
+}
+/* end pattern of color based concept jowoscript technology */
+
+/* start pattern of circle based concept jowoscript technology */
+class*icon-circle {
+    border-radius: 100%;
+}
+/* end pattern of circle based concept jowoscript technology */
+
+/* start pattern of icon size based concept jowoscript technology */
+class*icon-01x, class*icon-first {
+	font-size: 10%;
+}
+class*icon-02x, class*icon-second {
+	font-size: 20%;
+}
+class*icon-03x, class*icon-third {
+    font-size: 30%;
+}
+class*icon-04x, class*icon-fourth {
+    font-size: 40%;
+}
+class*icon-05x, class*icon-fifth, class*icon-half {
+    font-size: 50%;
+}
+class*icon-06x, class*icon-sixth {
+    font-size: 60%;
+}
+class*icon-07x, class*icon-seventh {
+    font-size: 70%;
+}
+class*icon-08x, class*icon-eighth {
+    font-size: 80%;
+}
+class*icon-09x, class*icon-ninth {
+    font-size: 90%;
+}
+class*icon-1x, class*icon-100x {
+    font-size: 100%;
+}
+class*icon-2x, class*icon-200x {
+    font-size: 200%;
+}
+class*icon-3x, class*icon-300x {
+    font-size: 300%;
+}
+class*icon-4x, class*icon-400x {
+    font-size: 400%;
+}
+class*icon-5x, class*icon-500x {
+    font-size: 500%;
+}
+class*icon-6x, class*icon-600x {
+    font-size: 600%;
+}
+class*icon-7x, class*icon-700x {
+    font-size: 700%;
+}
+/* end pattern of icon size based concept jowoscript technology */
+
+/* start pattern of position based concept jowoscript technology */
+class*icon-rotation-45 {
+    transform: rotate(45deg);
+}
+class*icon-rotation-90 {
+    transform: rotate(90deg);
+}
+class*icon-rotation-180 {
+    transform: rotate(180deg);
+}
+class*icon-rotation-270 {
+    transform: rotate(270deg);
+}
+class*icon-symmetrical-horizontal-left {
+    transform: skewY(45deg);
+}
+class*icon-symmetrical-horizontal-right {
+    transform: skewY(315deg);
+}
+class*icon-symmetrical-vertical-left {
+    transform: skewX(45deg);
+}
+class*icon-symmetrical-vertical-right {
+    transform: skewX(315deg);
+}
+class*icon-position-horizontal {
+    transform: scale(-1, 1);
+}
+class*icon-position-vertical {
+    transform: scale(1, -1);
+}
+/* end pattern of position based concept jowoscript technology */
+
+/* start pattern of unicode standart international */
+class*icon-refresh {
+    border: 1px solid #fff;
+}
+class*icon-refresh:after {
+    content: "\1F5D8";
+	font-size: 20px;
+}
+class*icon-minimize {
+	border: 1px solid #fff;
+}
+class*icon-minimize:after {
+	content: "\1F5D5";
+	font-size: 20px;
+}
+class*icon-maximize {
+	border: 1px solid #fff;
+}
+class*icon-maximize:after {
+	content: "\1F5D6";
+	font-size: 20px;
+}
+/* end pattern of unicode standart international */
