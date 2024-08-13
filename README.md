@@ -44,12 +44,6 @@
 <br>
 <div align="center">
 <strong>
-	 is a new technology with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications
-</strong>
-</div>
-<br>
-<div align="center">
-<strong>
 	🌐 Basic regulatory requirements in registration of JowoScript Technology or  can look on website 🌐
 </strong>
 </div>
