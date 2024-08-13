@@ -50,7 +50,7 @@
 <br>
 <div align="center">
 <strong>
-	JavaScript and Java Kingdom Machine is old concept. The new is JowoScript and  the powerfull of native code and native jowo and super power of new technology concept.
+	JavaScript and Java Virtual Machine is old concept. The new is JowoScript and  the powerfull of native code and native jowo and super power of new technology concept.
 	<br><br>
 	The intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now
 	<br>
