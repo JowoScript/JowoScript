@@ -241,7 +241,7 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```
 </details>
 
-#### Creator | Architecture Technology of *JowoScript, JowoStyle and Jowo Kingdom Machine
+#### Creator | Architecture Technology of *JowoScript and JowoStyle 
 ```html
 Muhammad Nurcahyo Pratomo
 ```
@@ -250,4 +250,6 @@ Muhammad Nurcahyo Pratomo
 PT JowoScript Technology Indonesia
 ```
 #### License
+```html
 Licensed under privilege of Muhammad Nurcahyo Pratomo
+```
