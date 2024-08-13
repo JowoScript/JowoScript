@@ -1,8 +1,8 @@
 <div align="center">
 <a href="https://www.jowoscript.web.id/" target="_self">
 <img src="iconJS.png" 
-     title="*JowoScript | *JowoStyle | Jowo Kingdom Machine - *jS Technology"
-     alt="*JowoScript | *JowoStyle | Jowo Kingdom Machine - *jS Technology"     
+     title="*JowoScript | *JowoStyle | *jS Technology"
+     alt="*JowoScript | *JowoStyle | *jS Technology"     
      height="150px" width="150px"></img>
 </a>
 </div>
@@ -16,7 +16,7 @@
 </strong>
 <br>
 <strong>
-	*JowoScript | *JowoStyle | Jowo Kingdom Machine - *jS Technology
+	*JowoScript | *JowoStyle |  - *jS Technology
 </strong>
 <br>
 <strong>
@@ -44,23 +44,23 @@
 <br>
 <div align="center">
 <strong>
-	Jowo Kingdom Machine is a new technology with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications
+	 is a new technology with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications
 </strong>
 </div>
 <br>
 <div align="center">
 <strong>
-	🌐 Basic regulatory requirements in registration of JowoScript Technology or Jowo Kingdom Machine can look on website 🌐
+	🌐 Basic regulatory requirements in registration of JowoScript Technology or  can look on website 🌐
 </strong>
 </div>
 <br>
 <div align="center">
 <strong>
-	JavaScript and Java Kingdom Machine is old concept. The new is JowoScript and Jowo Kingdom Machine the powerfull of native code and native jowo and super power of new technology concept.
+	JavaScript and Java Kingdom Machine is old concept. The new is JowoScript and  the powerfull of native code and native jowo and super power of new technology concept.
 	<br><br>
 	The intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now
 	<br>
-	This only work in JowoScript and Jowo Kingdom Machine inheritance
+	This only work in JowoScript and  inheritance
 </strong>
 </div>
 <br><br>
@@ -98,16 +98,16 @@ More Information you can look example at:
 https://www.facehom.com or https://www.jowoscript.web.id
 ```
 <br>
-<div align="center"><strong>The concept universe of Jowo Kingdom Machine</strong></div>
+<div align="center"><strong>The concept universe of </strong></div>
 <details>
 <summary>Click to view image</summary>	
-<img src="The concept universe of jowo kingdom machine revision.png" title="Architecture of Jowo Kindom Machine">
+<img src="The concept universe of  revision.png" title="Architecture of Jowo Kindom Machine">
 </details>
 <br>
 <div align="center"><strong>Architecture of Jowo Kindom Machine</strong></div>
 <details>
 <summary>Click to view image</summary>	
-<img src="architecture of jowo kingdom machine.010.png" title="Architecture of Jowo Kindom Machine">
+<img src="architecture of .010.png" title="Architecture of Jowo Kindom Machine">
 </details>
 <br>
 <div align="center"><strong>Architecture of *JowoScript Technology and *JowoStyle Technology</strong></div>
@@ -247,7 +247,7 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```
 </details>
 
-#### Creator | Architecture Technology of *JowoScript, JowoStyle and Jowo Kingdom Machine
+#### Creator | Architecture Technology of *JowoScript, JowoStyle and 
 ```html
 Muhammad Nurcahyo Pratomo
 ```
