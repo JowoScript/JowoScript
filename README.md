@@ -101,7 +101,7 @@ https://www.facehom.com or https://www.jowoscript.web.id
 <div align="center"><strong>Architecture of Jowo Kindom Machine</strong></div>
 <details>
 <summary>Click to view image</summary>	
-<img src="architecture of .010.png" title="Architecture of Jowo Kindom Machine">
+<img src="architecture of jowo kingdom machine.png" title="Architecture of Jowo Kindom Machine">
 </details>
 <br>
 <div align="center"><strong>Architecture of *JowoScript Technology and *JowoStyle Technology</strong></div>
