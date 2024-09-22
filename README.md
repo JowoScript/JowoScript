@@ -92,12 +92,6 @@ More Information you can look example at:
 https://www.facehom.com or https://www.jowoscript.web.id
 ```
 <br>
-<div align="center"><strong>The concept universe of </strong></div>
-<details>
-<summary>Click to view image</summary>	
-<img src="The concept universe of  revision.png" title="Architecture of Jowo Kindom Machine">
-</details>
-<br>
 <div align="center"><strong>Architecture of Jowo Kindom Machine</strong></div>
 <details>
 <summary>Click to view image</summary>	
