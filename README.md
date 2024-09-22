@@ -107,7 +107,7 @@ https://www.facehom.com or https://www.jowoscript.web.id
 <div align="center"><strong>Architecture of *JowoScript Technology and *JowoStyle Technology</strong></div>
 <details>
 <summary>Click to view image</summary>	
-<img src="architecture of jowoscript technology.4.0.0.png" title="Architecture of *JowoScript Technology and *JowoStyle Technology">
+<img src="architecture of jowoscript technology.png" title="Architecture of *JowoScript Technology and *JowoStyle Technology">
 </details>
 <br>
 <div align="center"><strong>Installation information</strong></div>
