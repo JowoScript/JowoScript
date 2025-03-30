@@ -239,6 +239,10 @@ Muhammad Nurcahyo Pratomo
 ```html
 PT JowoScript Technology Indonesia
 ```
+#### Copyright Note
+```html
+PT JowoScript Technology Indonesia is a company registered as a legal entity and is recorded in the database of the Directorate General of General Legal Administration
+```
 #### License
 ```html
 Licensed under privilege of Muhammad Nurcahyo Pratomo
