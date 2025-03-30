@@ -26,19 +26,19 @@
 <br><br>
 <div align="center">
 <strong>
-	*JowoScript is programming language typing less, compile language, complex structure, small size and faster
+	JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [The professor mind level] (license must be purchased)
 </strong>
 </div>
 <br>
 <div align="center">	
 <strong>
-	*JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language
+	JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [The professor mind level]
 </strong>
 </div>
 <br>
 <div align="center">	
 <strong>
-	*JowoIcon is part a pattern *JowoStyleSheet programming language used for describing the presentation of a icon
+	JowoIcon is part a pattern *JowoStyleSheet programming language used for describing the presentation of a icon [The professor mind level]
 </strong>
 </div>
 <br>
