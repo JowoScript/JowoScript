@@ -8,15 +8,11 @@
 </div>
 <div align="center">
 <strong>
-	Many fiture you never see before baby
+	jS Technology
 </strong>
 <br>
 <strong>
-	*jS Technology
-</strong>
-<br>
-<strong>
-	*JowoScript | *JowoStyle |  - *jS Technology
+	JowoScript | JowoStyle |  - jS Technology
 </strong>
 <br>
 <strong>
