@@ -229,7 +229,7 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 Kingdom Studio do run and debug programing language only PT JowoScript Technology Indonesia products list
 ```
 
-#### Creator Programing Language | Architecture Technology
+#### Creator Programing Language and Architecture Technology
 ```html
 Muhammad Nurcahyo Pratomo
 ```
