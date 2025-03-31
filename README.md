@@ -8,11 +8,11 @@
 </div>
 <div align="center">
 <strong>
-	PT JowoScript Technology Indonesia
+	PT JowoScript Technology Indonesia - the hectocorn values level
 </strong>
 <br>
 <strong>
-	JowoScript | JowoStyle | Jowo Kingdom Machine | Kingdom-Studio | Jowo_Kingdom_Server | Structured Query Jowo Language
+	JowoScript | JowoStyle | Jowo Kingdom Machine | Kingdom-Studio | Jowo Kingdom Server | Structured Query Jowo Language
 </strong>
 <br>
 <strong>
