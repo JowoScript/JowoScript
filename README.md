@@ -28,13 +28,12 @@
 ## PT JowoScript Technology Indonesia products list :
 <div align="justify">
 <ol>
-	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [The professor level class] (license must be purchased)</li>
-	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [The professor level class] (license must be purchased)</li>
-	<li>Kingdom Studio is The cross platform an integrated development environment [The professor level class] (license must be purchased)</li>
-	<li>Jowo Kingdom Server is The cross platform an server host [The professor level class] (license must be purchased)</li>
-	<li>Structured Query Jowo Language is The cross platform an query programming language [The professor level class] (license must be purchased)</li>
-	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [The professor level class]</li>
-	<li>JowoIcon is part a pattern *JowoStyleSheet programming language used for describing the presentation of a icon [The professor level class]</li>
+	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [file extension *.JOWO type JowoScript] (license must be purchased)</li>
+	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [file extension *.JKM type Jowo Kingdom Machine] (license must be purchased)</li>
+	<li>Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased)</li>
+	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased)</li>
+	<li>Structured Query Jowo Language is The cross platform an query programming language [file extension *.SQJL type Structured Query Jowo Language] (license must be purchased)</li>
+	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [file extension *.JS3 type Jowo Style Sheet]</li>
 </ol>
 </div>
 <br>
@@ -51,7 +50,8 @@
 <details>
 <summary><b>After (license must be purchased) Support Technology :</b></summary>
 <div align="justify">
-<ul><li>Kingdom Studio Run and Debug bytecode Jowo Kingdom Machine inside file extension *.jkm with type of binary code and deploy pack *.jklass with type of binary code</li><li>Kingdom Studio Run and Debug JowoScript of compile inside file extension *.jowo with type of application/jowoscript or text/jowoscript</li><li>Kingdom Studio Run and Debug JowoStyle of compile inside file extension *.js3 with type of application/jowostyle or text/jowostyle</li><li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li><li>Responsive mode user interface (Meaning i.e. when your design is in tablet mode, mobile or phone mode, television mode, LCD(Liquid Crystal Display) mode and laptop mode)</li><li>Native platform (For example, a cross-platform application may run on Microsoft Mobile, Microsoft Windows, Android, z/OS, Linux OS, Unix OS, iOS and macOS)</li><li>Smart automatic detection error in javascript engine</li><li>Smart automatic detection error in jowoscript engine</li><li>Smart automatic detection error in jowo kingdom engine</li><li>Handling array of objects and decided multiple of attributes and pseudo</li></ul>
+<ul><li>Kingdom Studio Run and Debug binary code Jowo Kingdom Machine inside file extension *.JKM with type of binary code and deploy pack *.JKLASS with type of binary code</li>
+<li>Kingdom Studio Run and Debug binary code Structured Query Jowo Language inside file extension *.SQJL with type of binary code</li><li>Kingdom Studio Run and Debug JowoScript of compile inside file extension *.JOWO with type of application/jowoscript or text/jowoscript</li><li>Kingdom Studio Run and Debug JowoStyle of compile inside file extension *.JS3 with type of application/jowostyle or text/jowostyle</li><li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li><li>Responsive mode user interface (Meaning i.e. when your design is in tablet mode, mobile or phone mode, television mode, LCD(Liquid Crystal Display) mode and laptop mode)</li><li>Native platform (For example, a cross-platform application may run on Microsoft Mobile, Microsoft Windows, Android, z/OS, Linux OS, Unix OS, iOS and macOS)</li><li>Smart automatic detection error in javascript engine</li><li>Smart automatic detection error in jowoscript engine</li><li>Smart automatic detection error in jowo kingdom engine</li><li>Handling array of objects and decided multiple of attributes and pseudo</li></ul>
 </div>
 </details>
 
