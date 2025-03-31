@@ -228,7 +228,10 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```html
 Kingdom Studio do run and debug programing language only PT JowoScript Technology Indonesia products list
 ```
-
+#### Important Notes
+```html
+JowoScript, JowoStyle, Jowo Kingdom Machine, Jowo Kingdom Server, Structured Query Jowo Language to RUN AND DEBUG in Kingdom Studio only outside of that it is not working
+```
 #### Creator Programing Language, Developer Programing Language and Architecture Programing Language
 ```html
 Muhammad Nurcahyo Pratomo
