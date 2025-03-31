@@ -12,7 +12,7 @@
 </strong>
 <br>
 <strong>
-	JowoScript | JowoStyle | Jowo Kingdom Machine | Kingdom-Studio | Jowo Kingdom Server | Structured Query Jowo Language
+	JowoScript | JowoStyle | Jowo Kingdom Machine | Kingdom Studio | Jowo Kingdom Server | Structured Query Jowo Language
 </strong>
 <br>
 <strong>
