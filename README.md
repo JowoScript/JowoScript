@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	PT JowoScript Technology Indonesia - the hectocorn values level
+	PT JowoScript Technology Indonesia - The Hectocorn Values Level
 </strong>
 <br>
 <strong>
