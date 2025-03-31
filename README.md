@@ -20,10 +20,9 @@
 </strong>
 <br>
 <strong>
-	no matter if it is purchased or not I can still make many projects with the programming language I created
+	Hectocorns symbolize the enormous potential of a startup if it has the right product
 </strong>
 </div>
-
 </div>
 
 ## PT JowoScript Technology Indonesia products list :
