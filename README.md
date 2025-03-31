@@ -19,9 +19,8 @@
 	Introduction
 </strong>
 </div>
-<br>
-<strong>
-PT JowoScript Technology Indonesia products list :
+
+# PT JowoScript Technology Indonesia products list :
 <div align="justify">
 <ol>
 	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [The professor mind level] (license must be purchased)</li>
@@ -33,7 +32,6 @@ PT JowoScript Technology Indonesia products list :
 	<li>JowoIcon is part a pattern *JowoStyleSheet programming language used for describing the presentation of a icon [The professor mind level]</li>
 </ol>
 </div>
-</strong>
 <br>
 <div align="center">
 <strong>
