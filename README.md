@@ -25,9 +25,9 @@
 <ol>
 	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [The professor level class] (license must be purchased)</li>
 	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [The professor level class] (license must be purchased)</li>
-	<li>Kingdom Studio is The cross platform an integrated development environment [The professor mind level] (license must be purchased)</li>
-	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased) [The professor level class]</li>
-	<li>Structured Query Jowo Language is The cross platform an query programming language (license must be purchased) [The professor level class]</li>
+	<li>Kingdom Studio is The cross platform an integrated development environment [The professor level class] (license must be purchased)</li>
+	<li>Jowo Kingdom Server is The cross platform an server host [The professor level class] (license must be purchased)</li>
+	<li>Structured Query Jowo Language is The cross platform an query programming language [The professor level class] (license must be purchased)</li>
 	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [The professor level class]</li>
 	<li>JowoIcon is part a pattern *JowoStyleSheet programming language used for describing the presentation of a icon [The professor level class]</li>
 </ol>
@@ -35,11 +35,9 @@
 <br>
 <div align="center">
 <strong>
-	JavaScript and Java Virtual Machine is old concept. The new is JowoScript and  the powerfull of native code and native jowo and super power of new technology concept.
+	JavaScript and Java Virtual Machine is old concept. The new is JowoScript and Jowo Kingdom Machine the powerfull of native code and native jowo and super power of new technology concept.
 	<br><br>
 	The intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now
-	<br>
-	This only work in JowoScript and  inheritance
 </strong>
 </div>
 <br><br>
