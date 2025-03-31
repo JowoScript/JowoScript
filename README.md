@@ -234,7 +234,7 @@ JowoScript, JowoStyle, Jowo Kingdom Machine, Jowo Kingdom Server, Structured Que
 ```
 #### Creator Programing Language, Developer Programing Language and Architecture Programing Language
 ```html
-Muhammad Nurcahyo Pratomo {This will break history in the world}
+Muhammad Nurcahyo Pratomo {This will break world history for centuries}
 ```
 #### Copyright
 ```html
