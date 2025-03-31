@@ -8,41 +8,32 @@
 </div>
 <div align="center">
 <strong>
-	jS Technology
+	PT JowoScript Technology Indonesia
 </strong>
 <br>
 <strong>
-	JowoScript | JowoStyle |  - jS Technology
+	JowoScript | JowoStyle | Jowo Kingdom Machine | Kingdom-Studio | Jowo_Kingdom_Server | Structured Query Jowo Language
 </strong>
 <br>
 <strong>
 	Introduction
 </strong>
 </div>
-<br><br>
-<div align="center">
-<strong>
-	JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [The professor mind level] (license must be purchased)
-</strong>
-</div>
 <br>
-<div align="center">	
 <strong>
-	JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [The professor mind level]
-</strong>
+PT JowoScript Technology Indonesia products list :
+<div align="justify">
+<ol>
+	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [The professor mind level] (license must be purchased)</li>
+	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [The professor mind level] (license must be purchased)</li>
+	<li>Kingdom Studio is The cross platform an integrated development environment [The professor mind level] (license must be purchased)</li>
+	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased) [The professor mind level]</li>
+	<li>Structured Query Jowo Language is The cross platform an query programming language (license must be purchased) [The professor mind level]</li>
+	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [The professor mind level]</li>
+	<li>JowoIcon is part a pattern *JowoStyleSheet programming language used for describing the presentation of a icon [The professor mind level]</li>
+</ol>
 </div>
-<br>
-<div align="center">	
-<strong>
-	JowoIcon is part a pattern *JowoStyleSheet programming language used for describing the presentation of a icon [The professor mind level]
 </strong>
-</div>
-<br>
-<div align="center">
-<strong>
-	🌐 Basic regulatory requirements in registration of JowoScript Technology or  can look on website 🌐
-</strong>
-</div>
 <br>
 <div align="center">
 <strong>
@@ -54,7 +45,6 @@
 </strong>
 </div>
 <br><br>
-
 <details>
 <summary><b>After (license must be purchased) Support Technology :</b></summary>
 <div align="justify">
