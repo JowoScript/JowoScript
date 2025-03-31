@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	PT JowoScript Technology Indonesia - The Hectocorn Values Level
+	PT JowoScript Technology Indonesia - The Hectocorn Values
 </strong>
 <br>
 <strong>
@@ -18,6 +18,12 @@
 <strong>
 	Introduction
 </strong>
+<br>
+<strong>
+	no matter if it is purchased or not I can still make many projects with the programming language I created
+</strong>
+</div>
+
 </div>
 
 ## PT JowoScript Technology Indonesia products list :
