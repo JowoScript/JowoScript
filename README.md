@@ -226,6 +226,10 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```
 </details>
 
+#### Prices | $.prices
+```html
+Price increases every each new version
+```
 #### Note
 ```html
 Kingdom Studio do run and debug programing language only PT JowoScript Technology Indonesia products list
@@ -246,7 +250,7 @@ PT JowoScript Technology Indonesia
 ```html
 PT JowoScript Technology Indonesia is a company registered as a legal entity and is recorded in the database of the Directorate General of General Legal Administration
 ```
-#### License Product
+#### License Products | $.license
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
 ```
