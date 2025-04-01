@@ -66,7 +66,7 @@
  * $.developer	: Muhammad Nurcahyo Pratomo
  * $.copyright	: PT JowoScript Technology Indonesia
  * $.license 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
- * $.legality 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
+ * $.legality 	: After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
  */
 
 Example :
@@ -256,7 +256,7 @@ PT JowoScript Technology Indonesia is a company registered as a legal entity and
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
 ```
-#### Legality Products | $.legality
+#### Legality Products | $.legality (Stronger in the eyes of the law) Thats rules baby
 ```html
-After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
+After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
