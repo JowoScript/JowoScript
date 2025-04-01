@@ -69,7 +69,7 @@
  */
 
 Example :
-$ attribute		: $("mnp^object"), $("mnp^object"), $("^object"), $("^object");
+$ attribute		: $("*object global");
 mnp attribute		: mnp("mnp^object"), jowo("mnp^object"), mnp("^object"), jowo("^object");
 jowo attribute		: mnp("jowo*object"), jowo("jowo*object"), mnp("*object"), jowo("*object");
 jawa attribute		: mnp("jawa@object"), jowo("jawa@object"), mnp("@object"), jowo("@object");
