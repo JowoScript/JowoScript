@@ -28,12 +28,12 @@
 ## PT JowoScript Technology Indonesia products list :
 <div align="justify">
 <ol>
-	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [file extension *.JOWO type JowoScript] (license must be purchased to activate)</li>
-	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [file extension *.JKM type Jowo Kingdom Machine] (license must be purchased to activate)</li>
+	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [file extension *.JOWO type JowoScript] (license must be purchased to activate all the features)</li>
+	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [file extension *.JKM type Jowo Kingdom Machine] (license must be purchased to activate all the features)</li>
 	<li>Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased)</li>
-	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased to activate)</li>
-	<li>Structured Query Jowo Language is The cross platform an query programming language [file extension *.SQJL type Structured Query Jowo Language] (license must be purchased to activate)</li>
-	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [file extension *.JS3 type Jowo Style Sheet]</li>
+	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased to activate all the features)</li>
+	<li>Structured Query Jowo Language is The cross platform an query programming language [file extension *.SQJL type Structured Query Jowo Language] (license must be purchased to activate all the features)</li>
+	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [file extension *.JS3 type Jowo Style Sheet] (license must be purchased to activate all the features)</li>
 </ol>
 </div>
 <br>
@@ -66,6 +66,7 @@
  * $.developer	: Muhammad Nurcahyo Pratomo
  * $.copyright	: PT JowoScript Technology Indonesia
  * $.license 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
+ * $.legality 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
  */
 
 Example :
@@ -252,6 +253,10 @@ PT JowoScript Technology Indonesia
 PT JowoScript Technology Indonesia is a company registered as a legal entity and is recorded in the database of the Directorate General of General Legal Administration
 ```
 #### License Products | $.license
+```html
+After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
+```
+#### Legality Products | $.legality
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
 ```
