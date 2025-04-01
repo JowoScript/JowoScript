@@ -65,7 +65,7 @@
  * $.founder	: Muhammad Nurcahyo Pratomo 
  * $.developer	: Muhammad Nurcahyo Pratomo
  * $.copyright	: PT JowoScript Technology Indonesia
- * $.license 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company or goverment
+ * $.license 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or goverment name
  */
 
 Example :
@@ -248,5 +248,5 @@ PT JowoScript Technology Indonesia is a company registered as a legal entity and
 ```
 #### License Product
 ```html
-After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company or goverment
+After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or goverment name
 ```
