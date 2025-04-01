@@ -22,6 +22,10 @@
 <strong>
 	Hectocorns symbolize the enormous potential of a startup if it has the right product
 </strong>
+<br>
+<strong>
+	 Hectocorn startups have a higher value than US$ 100 billion or about Rp 1501.5 trillion rupiah
+</strong>
 </div>
 </div>
 
