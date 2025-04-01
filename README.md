@@ -24,7 +24,7 @@
 </strong>
 <br>
 <strong>
-	 Hectocorn startups have a higher value than US$ 100 billion or about Rp 1501.5 trillion rupiah and my product still baby i know between microsoft and google
+	 Hectocorn startups have a higher value than US$ 100 billion or about Rp 1501.5 trillion rupiah and my product still baby i know between microsoft value more than US$ 2 trillion and google value more than US$ 2
 </strong>
 </div>
 </div>
