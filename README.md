@@ -280,7 +280,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <br>
 <div align="center">
 
-## Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
+### Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
 <div align="justify">
 <ol>
 <li>Must follow and obey basic regulatory requirements in registration</li>
