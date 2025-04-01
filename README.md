@@ -65,11 +65,11 @@
  * $.founder	: Muhammad Nurcahyo Pratomo 
  * $.developer	: Muhammad Nurcahyo Pratomo
  * $.copyright	: PT JowoScript Technology Indonesia
- * $.license 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or goverment name
+ * $.license 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
  */
 
 Example :
-$ attribute		: $("*object global");
+global attribute 	: $("*object global attribute value");
 mnp attribute		: mnp("mnp^object"), jowo("mnp^object"), mnp("^object"), jowo("^object");
 jowo attribute		: mnp("jowo*object"), jowo("jowo*object"), mnp("*object"), jowo("*object");
 jawa attribute		: mnp("jawa@object"), jowo("jawa@object"), mnp("@object"), jowo("@object");
@@ -248,5 +248,5 @@ PT JowoScript Technology Indonesia is a company registered as a legal entity and
 ```
 #### License Product
 ```html
-After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or goverment name
+After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
 ```
