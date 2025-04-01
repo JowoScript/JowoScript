@@ -63,8 +63,9 @@
  * @jowo.architect	: Muhammad Nurcahyo Pratomo
  * @jowo.author         : Muhammad Nurcahyo Pratomo
  * @jowo.founder        : Muhammad Nurcahyo Pratomo 
- * @jowo.developer	: Muhammad Nurcahyo Pratomo 
- * @jowo.license        : Licensed under privilege of creator technology (How to get token license contact email cohayfun@gmail).
+ * @jowo.developer	: Muhammad Nurcahyo Pratomo
+ * @jowo.copyright	: PT JowoScript Technology Indonesia
+ * @jowo.license        : Licensed under privilege of purchaser's license name
  */
 
 Example :
