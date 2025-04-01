@@ -28,11 +28,11 @@
 ## PT JowoScript Technology Indonesia products list :
 <div align="justify">
 <ol>
-	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [file extension *.JOWO type JowoScript] (license must be purchased)</li>
-	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [file extension *.JKM type Jowo Kingdom Machine] (license must be purchased)</li>
+	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [file extension *.JOWO type JowoScript] (license must be purchased to activate)</li>
+	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [file extension *.JKM type Jowo Kingdom Machine] (license must be purchased to activate)</li>
 	<li>Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased)</li>
-	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased)</li>
-	<li>Structured Query Jowo Language is The cross platform an query programming language [file extension *.SQJL type Structured Query Jowo Language] (license must be purchased)</li>
+	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased to activate)</li>
+	<li>Structured Query Jowo Language is The cross platform an query programming language [file extension *.SQJL type Structured Query Jowo Language] (license must be purchased to activate)</li>
 	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [file extension *.JS3 type Jowo Style Sheet]</li>
 </ol>
 </div>
@@ -57,18 +57,19 @@
 
 ```html
 /*
- * @jowo.version        : xx.xx.xx
- * @jowo.owner        	: Muhammad Nurcahyo Pratomo
- * @jowo.creator	: Muhammad Nurcahyo Pratomo
- * @jowo.architect	: Muhammad Nurcahyo Pratomo
- * @jowo.author         : Muhammad Nurcahyo Pratomo
- * @jowo.founder        : Muhammad Nurcahyo Pratomo 
- * @jowo.developer	: Muhammad Nurcahyo Pratomo
- * @jowo.copyright	: PT JowoScript Technology Indonesia
- * @jowo.license        : After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company or goverment
+ * $.version 	: xx.xx.xx
+ * $.owner 	: Muhammad Nurcahyo Pratomo
+ * $.creator	: Muhammad Nurcahyo Pratomo
+ * $.architect	: Muhammad Nurcahyo Pratomo
+ * $.author	: Muhammad Nurcahyo Pratomo
+ * $.founder	: Muhammad Nurcahyo Pratomo 
+ * $.developer	: Muhammad Nurcahyo Pratomo
+ * $.copyright	: PT JowoScript Technology Indonesia
+ * $.license 	: After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company or goverment
  */
 
 Example :
+$ attribute		: $("mnp^object"), $("mnp^object"), $("^object"), $("^object");
 mnp attribute		: mnp("mnp^object"), jowo("mnp^object"), mnp("^object"), jowo("^object");
 jowo attribute		: mnp("jowo*object"), jowo("jowo*object"), mnp("*object"), jowo("*object");
 jawa attribute		: mnp("jawa@object"), jowo("jawa@object"), mnp("@object"), jowo("@object");
