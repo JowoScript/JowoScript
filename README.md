@@ -246,5 +246,5 @@ PT JowoScript Technology Indonesia is a company registered as a legal entity and
 ```
 #### License
 ```html
-Licensed under privilege of Muhammad Nurcahyo Pratomo
+Licensed under privilege of purchaser's license name
 ```
