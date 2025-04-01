@@ -228,7 +228,7 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```html
 Price increases every each new version
 ```
-#### Release | $.release
+#### Release | $.releaseDate
 ```html
 Show release date version
 ```
