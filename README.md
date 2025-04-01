@@ -230,6 +230,10 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```html
 Price increases every each new version
 ```
+#### Release | $.release
+```html
+Show release date version
+```
 #### Note
 ```html
 Kingdom Studio do run and debug programing language only PT JowoScript Technology Indonesia products list
