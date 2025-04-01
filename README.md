@@ -273,6 +273,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
 <li>Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 7</li>
 <li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
+<li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
 <li>Registered trademark products of PT JowoScript Technology Indonesia</li>
 <li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
 </ol>
