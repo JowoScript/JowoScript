@@ -279,3 +279,18 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 </div>
 <br>
 <div align="center">
+
+## Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
+<div align="justify">
+<ol>
+<li>Must follow and obey basic regulatory requirements in registration</li>
+<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker and a lawyer or legal entity, back to point no. 1 and point no. 7</li>
+<li>Must have a legality flag that is a legal entity</li>
+<li>Must have a domain name server live as your legality flag name masters (example of a live universal domain is *.gov.your name of goverment)</li>
+<li>Technology remains in end to end encryption</li>
+<li>Can use Technology features if the license token runs out will not be able to use</li>
+<li>Technology can be controlled for localhost or 127.0.0.1 and can be changed choices to your own ip settings</li>
+</ol>
+</div>
+<br>
+<div align="center">
