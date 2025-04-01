@@ -301,7 +301,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <ol>
 <li>Will deal with the laws in force in the country where you live or jail the future, back to point number 1</li>
 <li>Lawyers, police and prosecutors will act to prosecute existing violations cannot be contested by any party, either in the future or now</li>
-<li>GamblingThe minimum fine for violation is the minimum price of the license purchased cannot be contested by any party, either in the future or now, back to point number 7</li>
+<li>Gambling The minimum fine for violation is the minimum price of the license purchased cannot be contested by any party, either in the future or now, back to point number 7</li>
 <li>Case studies on the inability to pay the minimum fine for violations will be submitted to existing laws, both based on the legal basis in force in the country where you live and cannot be challenged by any party, back to point number 1 and point number 7</li>
 <li>Payment of fines is made by both parties witnessed by the court and and lawyers or prosecutors or legal entities, back to point number 1 and number 7</li>
 </ol>
