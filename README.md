@@ -260,3 +260,22 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+## Legal Rights of Technology Creators | Basic regulatory requirements in registration
+<div align="justify">
+<ol>
+<li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
+<li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7</li>
+<li>Gambling sites are strictly prohibited, back to point number 7</li>
+<li>Terrorism sites are strictly prohibited, back to point number 7</li>
+<li>Strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
+<li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
+<li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
+<li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
+<li>Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 7</li>
+<li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
+<li>Registered trademark products of PT JowoScript Technology Indonesia</li>
+<li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
+</ol>
+</div>
+<br>
+<div align="center">
