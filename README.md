@@ -78,9 +78,6 @@ class attribute		: mnp("class*object"), jowo("class*object"), mnp("class^object"
 name attribute		: mnp("name*object"), mnp("name^object"), mnp("name@object");
 array of attribute 	: mnp("[ jowo*object, [jowo*object], element[attribute], node[node] ]")	mnp("element[attribute="value"], [attribute="value"], [attribute="value"] [attribute]");
 array of pseudo		: mnp("[ element:pseudo, node:pseudo ], element:pseudo node:pseudo object:pseudo ");
-
-More Information you can look example at:
-https://www.facehom.com or https://www.jowoscript.web.id
 ```
 <br>
 <div align="center"><strong>Architecture of Jowo Kindom Machine</strong></div>
