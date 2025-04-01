@@ -48,7 +48,7 @@
 </div>
 <br><br>
 <details>
-<summary><b>After (license must be purchased) Support Technology :</b></summary>
+<summary><b>After (license be purchased) Support Technology :</b></summary>
 <div align="justify">
 <ul><li>Kingdom Studio Run and Debug binary code Jowo Kingdom Machine inside file extension *.JKM with type of binary code and deploy pack *.JKLASS with type of binary code</li>
 <li>Kingdom Studio Run and Debug binary code Structured Query Jowo Language inside file extension *.SQJL with type of binary code</li><li>Kingdom Studio Run and Debug JowoScript of compile inside file extension *.JOWO with type of application/jowoscript or text/jowoscript</li><li>Kingdom Studio Run and Debug JowoStyle of compile inside file extension *.JS3 with type of application/jowostyle or text/jowostyle</li><li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li><li>Responsive mode user interface (Meaning i.e. when your design is in tablet mode, mobile or phone mode, television mode, LCD(Liquid Crystal Display) mode and laptop mode)</li><li>Native platform (For example, a cross-platform application may run on Microsoft Mobile, Microsoft Windows, Android, z/OS, Linux OS, Unix OS, iOS and macOS)</li><li>Smart automatic detection error in javascript engine</li><li>Smart automatic detection error in jowoscript engine</li><li>Smart automatic detection error in jowo kingdom engine</li><li>Handling array of objects and decided multiple of attributes and pseudo</li></ul>
@@ -65,7 +65,7 @@
  * @jowo.founder        : Muhammad Nurcahyo Pratomo 
  * @jowo.developer	: Muhammad Nurcahyo Pratomo
  * @jowo.copyright	: PT JowoScript Technology Indonesia
- * @jowo.license        : Licensed under privilege of purchaser's license name
+ * @jowo.license        : After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company or goverment
  */
 
 Example :
@@ -245,7 +245,7 @@ PT JowoScript Technology Indonesia
 ```html
 PT JowoScript Technology Indonesia is a company registered as a legal entity and is recorded in the database of the Directorate General of General Legal Administration
 ```
-#### License
+#### License Product
 ```html
-Licensed under privilege of purchaser's license name
+After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company or goverment
 ```
