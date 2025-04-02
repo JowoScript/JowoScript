@@ -297,7 +297,7 @@ export {helloJS}
  * mime-type	: jowoscript or text/jowoscript or application/jowoscript
  * extension	: *.jowo
  *
- * Your need buy a license key for access the fiture of JowoScript Programming Language Technology
+ * Your need buy a license key for access the fiture of JowoScript Programming Language
  * Copyright (c) PT JowoScript Technology Indonesia, 2021 - Forever. All Rights Reserved.
  *
  */
