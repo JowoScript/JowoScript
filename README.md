@@ -275,11 +275,11 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7</li>
 <li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
-<li>Strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
+<li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
 <li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
 <li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
-<li>Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 1 and point number 7</li>
+<li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 1 and point number 7</li>
 <li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
 <li>It is strictly prohibited for weapons of war such as politics, crime and kindly, back to point number 1 and point number 7</li>
 <li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
