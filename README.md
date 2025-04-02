@@ -233,6 +233,28 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```
 </details>
 
+#### Installation standart HTML
+```html
+<html>
+<head>
+<script type="text/javascript" src="jowo-script.jowo"></script>
+</head>
+<body>
+	<script type="text/javascript">
+		var strong = 'JowoScript Programming Language';
+		var count = 1 / 9999;
+		strong.toLog();
+		'Result :'+count.toLog();
+		//Result JowoScript Programming Language
+		//Result 0.00010001000100010001
+	</script>
+	<script>
+		$.creator.toLog();
+		//Result Muhammad Nurcahyo Pratomo
+	</script>
+</body>
+</html>
+```
 #### File JavaScript Example
 ```html
 /*
