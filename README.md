@@ -336,7 +336,7 @@ $('class*icon-minimize').addClass('right').addClass('icon-white').addClass('icon
 $('class*icon-maximize').addClass('right').addClass('icon-white').addClass('icon').addClass('icon-circle').addClass('cursor-pointer');
 	
 $('class*icon-refresh').click(function(){
-	jowo.reload();
+	$.reload();
 });
 
 $('class*icon-maximize').click(function(){
@@ -350,6 +350,26 @@ $('class*icon-maximize').click(function(){
 	}
 	$('body').screenToggle();
 });
+
+$('*fieldsetDocumentLegality').css('border-color:darkblue;border-width:5px').chain('*legDocumentLegality').fontSize('12px').fontCenter();
+$('jowo*fieldset').append(
+	$.createHTML('legend',{jowo:'field'},'value field')
+).css('border-color:darkblue;border-width:5px').fontCenter().fontSize('16px').width('100%');
+
+$('jowo*fieldsetArchitectureOfJowoScript').append(
+	//Create legend Architechture Of JowoScript
+	$.createHTML('legend',{jowo:'architectureOfJowoScript'},'Architechture Of JowoScript')
+).
+append(
+	//Create img Architechture Of JowoScript
+	$.createHTML('img',{jowo:'imgArchitectureOfJowoScript',src:'images/architecture of jowoscript technology.png',referrerpolicy:'origin'},'')
+).
+css('border-color:darkblue;border-width:5px').fontCenter().
+chain('*architectureOfJowoScript').fontSize('16px').
+chain('*imgArchitectureOfJowoScript').click(function(){
+	$('*imgArchitectureOfJowoScript').screenToggle();
+}).title('Architechture Of JowoScript','Architechture Of JowoScript').
+width('100%');
 ```
 #### Version | $.version
 ```html
