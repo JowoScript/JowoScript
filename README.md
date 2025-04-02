@@ -329,6 +329,8 @@ JSOfLegend(101).toLog();
 //You can use this if you no need chain (But i love use the chain)
 $('*AboutTechnology, *TheBusiness, *PrivacyPolicy, *LegalityCompany, *SponsorsWorkflow, *PartnersWorkflow, *PriceList').removeCss();
 
+$('*Introduction').removeCss().chain('*IDE').removeCss();
+
 $('class*icon-refresh').title('refresh').
 chain('class*icon-maximize').title('full screen').
 chain('html').background('#fff').
