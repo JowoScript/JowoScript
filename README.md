@@ -230,6 +230,8 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 	<script>
 		$.creator.toLog();
 		//Result Muhammad Nurcahyo Pratomo
+		$.copyright.toLog()
+		//Result PT JowoScript Technology Indonesia
 	</script>
 </body>
 </html>
@@ -257,6 +259,8 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 	<script>
 		$.creator.toLog();
 		//Result Muhammad Nurcahyo Pratomo
+		$.copyright.toLog()
+		//Result PT JowoScript Technology Indonesia
 	</script>
 </body>
 </html>
