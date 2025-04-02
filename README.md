@@ -287,6 +287,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
 <li>It is strictly prohibited for weapons of war such as politics, crime and kindly, back to point number 1 and point number 7</li>
 <li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
+<li>The company that had problems with me was the entrance test and etc are strictly prohibited from obtaining licenses forever. back to point number 7</li>
 <li>Registered trademark products of PT JowoScript Technology Indonesia</li>
 <li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
 </ol>
