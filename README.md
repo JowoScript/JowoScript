@@ -283,7 +283,7 @@ import "../../script/uat/uat.jowo";
 import "../../script/uat/uat.js";
 
 console.log(JowoOfLegend(101));
-console.log(JSOfLegend(101));
+JSOfLegend(101).toLog();
 ```
 #### Version | $.version
 ```html
