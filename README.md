@@ -266,7 +266,7 @@ export {helloJS}
  * extension	: *.jowo
  *
  * Note from creator jowoscript [Muhammad Nurcahyo Pratomo]
- *		JowoScript Programming Language drive technology with a license so not be easy pirate from other client and powerfull in paradigma. How to check $.license
+ * JowoScript Programming Language drive technology with a license so not be easy pirate from other client and powerfull in paradigma. How to check $.license
  *
  *
  * What its a jowo extension ? jowo extension is a file of JowoScript.
