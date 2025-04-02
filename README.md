@@ -232,6 +232,10 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```
 </details>
 
+#### Version | $.version
+```html
+Show the version xx.xx.xx
+```
 #### Prices | $.prices
 ```html
 Price increases every each new version
