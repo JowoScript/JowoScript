@@ -28,7 +28,7 @@
 </strong>
 <br>
 <strong>
-	my product still baby i know but you can see 10 years into the future between microsoft value more than US$ 2 trillion dollars and google value more than US$ 2 trillion dollars and my product 🙂🙂🙂🙂🙂🙂🙂🙂
+	my product still baby i know but you can see 10 years into the future between microsoft value more than US$ 2 trillion dollars and google value more than US$ 2 trillion dollars
 </strong>
 </div>
 </div>
