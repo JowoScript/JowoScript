@@ -65,6 +65,7 @@
 
 ```html
 /*
+ * [Command Line API]
  * $.version 	: xx.xx.xx
  * $.owner 	: Muhammad Nurcahyo Pratomo
  * $.creator	: Muhammad Nurcahyo Pratomo
