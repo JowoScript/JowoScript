@@ -218,11 +218,14 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 <body>
 	<script type="text/javascript">
 		var js = 'JowoScript Programming Language';
+		const note = "if there is no PT JowoScript Technology Indonesia it is a fake file";
 		var count = 1 / 9999;
 		js.toLog();
 		'Result :'+count.toLog();
+		note.toLog();
 		//Result JowoScript Programming Language
 		//Result 0.00010001000100010001
+		//Result if there is no PT JowoScript Technology Indonesia it is a fake file
 	</script>
 	<script>
 		$.creator.toLog();
@@ -242,11 +245,14 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 <body>
 	<script type="text/javascript">
 		var js = 'JowoScript Programming Language';
+		const note = "if there is no PT JowoScript Technology Indonesia it is a fake file";
 		var count = 1 / 9999;
 		js.toLog();
 		'Result :'+count.toLog();
+		note.toLog();
 		//Result JowoScript Programming Language
 		//Result 0.00010001000100010001
+		//Result if there is no PT JowoScript Technology Indonesia it is a fake file
 	</script>
 	<script>
 		$.creator.toLog();
