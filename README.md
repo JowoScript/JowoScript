@@ -310,6 +310,47 @@ import "../../script/uat/uat.js";
 console.log(JowoOfLegend(101));
 JSOfLegend(101).toLog();
 ```
+#### File JowoScript Example
+```html
+ /*
+ *
+ * $.creator	: Muhammad Nurcahyo Pratomo
+ * $.developer	: Muhammad Nurcahyo Pratomo
+ * $.architect	: Muhammad Nurcahyo Pratomo
+ * $.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * mime-type	: jowoscript or text/jowoscript or application/jowoscript
+ * extension	: *.jowo
+ *
+ * Your need buy a license key for access the fiture of JowoScript Programming Language 
+ * Copyright (c) PT JowoScript Technology Indonesia, 2021 - Forever. All Rights Reserved.
+ *
+ */
+
+$('class*icon-refresh').title('refresh').
+chain('class*icon-maximize').title('full screen').
+chain('html').background('#fff').
+chain('body').background('#fff');
+
+$('class*icon-refresh').addClass('left').addClass('icon-white').addClass('icon').addClass('icon-circle').addClass('cursor-pointer');
+$('class*icon-minimize').addClass('right').addClass('icon-white').addClass('icon').addClass('icon-circle').addClass('cursor-pointer');
+$('class*icon-maximize').addClass('right').addClass('icon-white').addClass('icon').addClass('icon-circle').addClass('cursor-pointer');
+	
+$('class*icon-refresh').click(function(){
+	jowo.reload();
+});
+
+$('class*icon-maximize').click(function(){
+	if($.isTrue($('class*icon-maximize').hasClass('icon-maximize'))) {
+		$('class*icon-maximize').title('close screen').
+		chain('class*icon-maximize').replaceClass('icon-maximize','icon-minimize');
+	}
+	else {
+		$('class*icon-minimize').title('full screen').
+		chain('class*icon-minimize').replaceClass('icon-minimize','icon-maximize');
+	}
+	$('body').screenToggle();
+});
+```
 #### Version | $.version
 ```html
 Show the version xx.xx.xx
