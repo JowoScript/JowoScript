@@ -233,6 +233,58 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 ```
 </details>
 
+#### File JavaScript Example
+```html
+/*
+ *
+ * $.creator	: Muhammad Nurcahyo Pratomo
+ * $.developer	: Muhammad Nurcahyo Pratomo
+ * $.architect	: Muhammad Nurcahyo Pratomo
+ * $.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * mime-type	: javascript or text/javascript or application/javascript
+ * extension	: *.js
+ * *
+ */
+
+function helloJS(jowo){
+	if(jowo.equal(101)){
+		console.log('This file extension of hello.js');
+	}
+}
+
+export {helloJS}
+```
+#### File JowoScript Example
+```html
+/*
+ *
+ * $.creator	: Muhammad Nurcahyo Pratomo
+ * $.developer	: Muhammad Nurcahyo Pratomo
+ * $.architect	: Muhammad Nurcahyo Pratomo
+ * $.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * mime-type	: jowoscript or text/jowoscript or application/jowoscript
+ * extension	: *.jowo
+ *
+ * Note from creator jowoscript [Muhammad Nurcahyo Pratomo]
+ *		JowoScript Programming Language drive technology with a license so not be easy pirate from other client and powerfull in paradigma. How to check $.license
+ *
+ *
+ * What its a jowo extension ? jowo extension is a file of JowoScript.
+ *
+ * Note JowoScript Programming Language can write like jQuery too or more complex or enterprise than javascript, ecmascript, typescript and jQuery
+ *
+ * PT JowoScript Technology Indonesia was the breakthrough and capabilities
+ *
+ */
+
+import {helloJowo as JowoOfLegend} from "../../script/uat/hello.jowo";
+import {helloJS as JSOfLegend} from "../../script/uat/hello.js"
+import "../../script/uat/uat.jowo";
+import "../../script/uat/uat.js";
+
+console.log(JowoOfLegend(101));
+console.log(JSOfLegend(101));
+```
 #### Version | $.version
 ```html
 Show the version xx.xx.xx
@@ -288,8 +340,8 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
 <li>It is strictly prohibited for weapons of war such as politics, crime and kindly, back to point number 1 and point number 7</li>
 <li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
-<li>The company that had problems with me was the entrance test and etc are strictly prohibited from obtaining licenses forever. back to point number 7</li>
-<li>Friends and people who have problems with me are strictly prohibited from obtaining licenses forever. back to point number 7</li>
+<li>The company that had problems with me was the entrance test and etc are strictly prohibited from obtaining licenses forever. back to point number 7 (i have big data private so no can lie)</li>
+<li>Friends and people who have problems with me are strictly prohibited from obtaining licenses forever. back to point number 7 (i have big data private so no can lie)</li>
 <li>Registered trademark products of PT JowoScript Technology Indonesia</li>
 <li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
 </ol>
