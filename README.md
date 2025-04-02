@@ -268,12 +268,8 @@ export {helloJS}
  * Note from creator jowoscript [Muhammad Nurcahyo Pratomo]
  * JowoScript Programming Language drive technology with a license so not be easy pirate from other client and powerfull in paradigma. How to check $.license
  *
+ * Note JowoScript Programming Language more complex or enterprise than javascript, ecmascript, typescript and jQuery
  *
- * What its a jowo extension ? jowo extension is a file of JowoScript.
- *
- * Note JowoScript Programming Language can write like jQuery too or more complex or enterprise than javascript, ecmascript, typescript and jQuery
- *
- * PT JowoScript Technology Indonesia was the breakthrough and capabilities
  *
  */
 
