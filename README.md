@@ -371,8 +371,7 @@ css('border-color:darkblue;border-width:5px').fontCenter().
 chain('*architectureOfJowoScript').fontSize('16px').
 chain('*imgArchitectureOfJowoScript').click(function(){
 	$('*imgArchitectureOfJowoScript').screenToggle();
-}).title('Architechture Of JowoScript','Architechture Of JowoScript').
-width('100%');
+}).title('Architechture Of JowoScript','Architechture Of JowoScript').width('100%');
 ```
 #### Version | $.version
 ```html
