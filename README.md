@@ -216,18 +216,18 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 <script type="text/javascript" src="jowo-script.jowo"></script>
 </head>
 <body>
-	<script type="text/jowoscript">
-		<string> strong = 'JowoScript walking alone';
-		<int> count = 1 / 9999;
-		jowo.information( strong );
-		jowo.information('Result :'+count);
-		//Result JowoScript walking alone
+	<script type="text/javascript">
+		var strong = 'JowoScript Programming Language';
+		var count = 1 / 9999;
+		strong.toLog();
+		'Result :'+count.toLog();
+		//Result JowoScript Programming Language
 		//Result 0.00010001000100010001
 	</script>
-	<jowo-script>
-		jowo.information( jowo.technology );
-		//Result JowoScript Technology
-	</jowo-script>
+	<script>
+		$.creator.toLog();
+		//Result Muhammad Nurcahyo Pratomo
+	</script>
 </body>
 </html>
 ```
