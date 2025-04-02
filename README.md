@@ -217,9 +217,9 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 </head>
 <body>
 	<script type="text/javascript">
-		var strong = 'JowoScript Programming Language';
+		var js = 'JowoScript Programming Language';
 		var count = 1 / 9999;
-		strong.toLog();
+		js.toLog();
 		'Result :'+count.toLog();
 		//Result JowoScript Programming Language
 		//Result 0.00010001000100010001
@@ -241,9 +241,9 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
 </head>
 <body>
 	<script type="text/javascript">
-		var strong = 'JowoScript Programming Language';
+		var js = 'JowoScript Programming Language';
 		var count = 1 / 9999;
-		strong.toLog();
+		js.toLog();
 		'Result :'+count.toLog();
 		//Result JowoScript Programming Language
 		//Result 0.00010001000100010001
