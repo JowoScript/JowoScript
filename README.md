@@ -275,7 +275,7 @@ Microsoft DOT NET, More information you can look at [here](https://docs.microsof
  * $.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
  * mime-type	: javascript or text/javascript or application/javascript
  * extension	: *.js
- * *
+ * 
  */
 
 function helloJS(jowo){
@@ -288,7 +288,7 @@ export {helloJS}
 ```
 #### File JowoScript Example
 ```html
-/*
+ /*
  *
  * $.creator	: Muhammad Nurcahyo Pratomo
  * $.developer	: Muhammad Nurcahyo Pratomo
@@ -297,11 +297,8 @@ export {helloJS}
  * mime-type	: jowoscript or text/jowoscript or application/jowoscript
  * extension	: *.jowo
  *
- * Note from creator jowoscript [Muhammad Nurcahyo Pratomo]
- * JowoScript Programming Language drive technology with a license so not be easy pirate from other client and powerfull in paradigma. How to check $.license
- *
- * Note JowoScript Programming Language more complex or enterprise than javascript, ecmascript, typescript and jQuery
- *
+ * Your need buy a license key for access the fiture of JowoScript Programming Language Technology
+ * Copyright (c) PT JowoScript Technology Indonesia, 2021 - Forever. All Rights Reserved.
  *
  */
 
