@@ -399,9 +399,9 @@ file.name("filename.txt")// Specify the filename
 if:condition: 
 	// block of code to be executed if the condition is true
 eif:condition: 
-	// block of code to be executed if the condition is true choice
-else:
-	// block of code to be executed if the condition is false
+	// block of code to be executed eif the condition is true choice
+els:
+	// block of code to be executed els the condition is false
 
 blablabla python and java
 ```
