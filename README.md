@@ -47,7 +47,7 @@
 <br>
 <div align="center">
 <strong>
-	JavaScript, Python, C, C++ and Java Virtual Machine is old concept
+	JavaScript, Python, C, C++, C#, VB, Cobol, and Java Virtual Machine is old concept
 	<br>
 	The new is JowoScript and Jowo Kingdom Machine the powerfull of native code of native jowo and super power of new technology concept that brings the future (license must be purchased)
 	<br><br>
