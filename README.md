@@ -403,7 +403,7 @@ eif:condition:
 els:
 	// block of code to be executed els the condition is false
 
-blablabla python and java
+blablabla python aueo and java aueo
 ```
 #### Version | $.version
 ```html
