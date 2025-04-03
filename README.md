@@ -22,14 +22,6 @@
 <strong>
 	Hectocorns symbolize the enormous potential of a startup if it has the right product
 </strong>
-<br>
-<strong>
-	 Hectocorn startups have a higher value than US$ 100 billion dollars or about Rp 1501.5 trillion rupiah 
-</strong>
-<br>
-<strong>
-	my product still baby i know but you can see 10 years into the future between microsoft value more than US$ 2 trillion dollars and google value more than US$ 2 trillion dollars
-</strong>
 </div>
 </div>
 
@@ -89,18 +81,6 @@ name attribute		: mnp("name*object"), mnp("name^object"), mnp("name@object");
 array of attribute 	: mnp("[ jowo*object, [jowo*object], element[attribute], node[node] ]")	mnp("element[attribute="value"], [attribute="value"], [attribute="value"] [attribute]");
 array of pseudo		: mnp("[ element:pseudo, node:pseudo ], element:pseudo node:pseudo object:pseudo ");
 ```
-<br>
-<div align="center"><strong>Architecture of Jowo Kindom Machine</strong></div>
-<details>
-<summary>Click to view image</summary>	
-<img src="architecture of jowo kingdom machine.png" title="Architecture of Jowo Kindom Machine">
-</details>
-<br>
-<div align="center"><strong>Architecture of *JowoScript Technology and *JowoStyle Technology</strong></div>
-<details>
-<summary>Click to view image</summary>	
-<img src="architecture of jowoscript technology.png" title="Architecture of *JowoScript Technology and *JowoStyle Technology">
-</details>
 <br>
 <div align="center"><strong>Installation information</strong></div>
 <details>
