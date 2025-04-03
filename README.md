@@ -375,6 +375,27 @@ chain('*imgArchitectureOfJowoScript').click(function(){
 	$('*imgArchitectureOfJowoScript').screenToggle();
 }).title('Architechture Of JowoScript','Architechture Of JowoScript').width('100%');
 ```
+#### File JowoKingdom Example
+```html
+ /*
+ *
+ * $.creator	: Muhammad Nurcahyo Pratomo
+ * $.developer	: Muhammad Nurcahyo Pratomo
+ * $.architect	: Muhammad Nurcahyo Pratomo
+ * $.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * mime-type	: jowokingdom
+ * extension	: *.jkm
+ *
+ * Your need buy a license key for access the fiture of JowoKingdom Programming Language
+ * Copyright (c) PT JowoScript Technology Indonesia, 2021 - Forever. All Rights Reserved.
+ *
+ */
+
+import File;  // Import the File class
+
+file = new File(); //Call class file
+file.name("filename.txt")// Specify the filename
+```
 #### Version | $.version
 ```html
 Show the version xx.xx.xx
