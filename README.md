@@ -375,8 +375,15 @@ chain('*imgArchitectureOfJowoScript').click(function(){
  *
  */
 
-/* Encryption */
-Message Digits Binary Algorithm
+//Your dont need import anything file class 
+/* Encryption In JowoScript Programming Language */
+var test = new Encryption;
+test.RipeMD160('Race Integrity Primitive Evaluation Message Digits 160')
+//Result '9d52f2028f5b59c6b9e02fc14680031d77dde37f
+
+var test = new Encryption;
+test.RipeMDb160('Race Integrity Primitive Evaluation Message Digits Binary 160')
+//Result'0111101001110011100011110100110010'
 
 ```
 #### File JowoKingdom Example
