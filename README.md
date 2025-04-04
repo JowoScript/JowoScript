@@ -375,6 +375,36 @@ chain('*imgArchitectureOfJowoScript').click(function(){
  *
  */
 
+//Other fiture
+console.log($.professorMindLevelText('JowoScript Programing Language'))
+VM212:1 ▢▫▫▢▫▢▫□▢▢▫▢▢▢▢□▢▢▢▫▢▢▢□▢▢▫▢▢▢▢□▢▫▢▫▫▢▢□▢▢▫▫▫▢▢□▢▢▢▫▫▢▫□▢▢▫▢▫▫▢□▢▢▢▫▫▫▫□▢▢▢▫▢▫▫□▢▫▫▫▫▫□▢▫▢▫▫▫▫□▢▢▢▫▫▢▫□▢▢▫▢▢▢▢□▢▢▫▫▢▢▢□▢▢▢▫▫▢▫□▢▢▫▫▫▫▢□▢▢▫▢▢▫▢□▢▢▫▢▫▫▢□▢▢▫▢▢▢▫□▢▢▫▫▢▢▢□▢▫▫▫▫▫□▢▫▫▢▢▫▫□▢▢▫▫▫▫▢□▢▢▫▢▢▢▫□▢▢▫▫▢▢▢□▢▢▢▫▢▫▢□▢▢▫▫▫▫▢□▢▢▫▫▢▢▢□▢▢▫▫▢▫▢
+console.log($.unprofessorMindLevelText('▢▫▫▢▫▢▫□▢▢▫▢▢▢▢□▢▢▢▫▢▢▢□▢▢▫▢▢▢▢□▢▫▢▫▫▢▢□▢▢▫▫▫▢▢□▢▢▢▫▫▢▫□▢▢▫▢▫▫▢□▢▢▢▫▫▫▫□▢▢▢▫▢▫▫□▢▫▫▫▫▫□▢▫▢▫▫▫▫□▢▢▢▫▫▢▫□▢▢▫▢▢▢▢□▢▢▫▫▢▢▢□▢▢▢▫▫▢▫□▢▢▫▫▫▫▢□▢▢▫▢▢▫▢□▢▢▫▢▫▫▢□▢▢▫▢▢▢▫□▢▢▫▫▢▢▢□▢▫▫▫▫▫□▢▫▫▢▢▫▫□▢▢▫▫▫▫▢□▢▢▫▢▢▢▫□▢▢▫▫▢▢▢□▢▢▢▫▢▫▢□▢▢▫▫▫▫▢□▢▢▫▫▢▢▢□▢▢▫▫▢▫▢'))
+VM229:1 JowoScript Programing Language
+console.log($.professorLevelText('JowoScript Programing Language'))
+VM245:1 ∭∬∬∭∬∭∬∫∭∭∬∭∭∭∭∫∭∭∭∬∭∭∭∫∭∭∬∭∭∭∭∫∭∬∭∬∬∭∭∫∭∭∬∬∬∭∭∫∭∭∭∬∬∭∬∫∭∭∬∭∬∬∭∫∭∭∭∬∬∬∬∫∭∭∭∬∭∬∬∫∭∬∬∬∬∬∫∭∬∭∬∬∬∬∫∭∭∭∬∬∭∬∫∭∭∬∭∭∭∭∫∭∭∬∬∭∭∭∫∭∭∭∬∬∭∬∫∭∭∬∬∬∬∭∫∭∭∬∭∭∬∭∫∭∭∬∭∬∬∭∫∭∭∬∭∭∭∬∫∭∭∬∬∭∭∭∫∭∬∬∬∬∬∫∭∬∬∭∭∬∬∫∭∭∬∬∬∬∭∫∭∭∬∭∭∭∬∫∭∭∬∬∭∭∭∫∭∭∭∬∭∬∭∫∭∭∬∬∬∬∭∫∭∭∬∬∭∭∭∫∭∭∬∬∭∬∭
+console.log($.unprofessorLevelText('∭∬∬∭∬∭∬∫∭∭∬∭∭∭∭∫∭∭∭∬∭∭∭∫∭∭∬∭∭∭∭∫∭∬∭∬∬∭∭∫∭∭∬∬∬∭∭∫∭∭∭∬∬∭∬∫∭∭∬∭∬∬∭∫∭∭∭∬∬∬∬∫∭∭∭∬∭∬∬∫∭∬∬∬∬∬∫∭∬∭∬∬∬∬∫∭∭∭∬∬∭∬∫∭∭∬∭∭∭∭∫∭∭∬∬∭∭∭∫∭∭∭∬∬∭∬∫∭∭∬∬∬∬∭∫∭∭∬∭∭∬∭∫∭∭∬∭∬∬∭∫∭∭∬∭∭∭∬∫∭∭∬∬∭∭∭∫∭∬∬∬∬∬∫∭∬∬∭∭∬∬∫∭∭∬∬∬∬∭∫∭∭∬∭∭∭∬∫∭∭∬∬∭∭∭∫∭∭∭∬∭∬∭∫∭∭∬∬∬∬∭∫∭∭∬∬∭∭∭∫∭∭∬∬∭∬∭'))
+VM261:1 JowoScript Programing Language
+console.log($.doctoralMindLevelText('JowoScript Programing Language'))
+VM285:1 ▉██▉█▉█▊▉▉█▉▉▉▉▊▉▉▉█▉▉▉▊▉▉█▉▉▉▉▊▉█▉██▉▉▊▉▉███▉▉▊▉▉▉██▉█▊▉▉█▉██▉▊▉▉▉████▊▉▉▉█▉██▊▉█████▊▉█▉████▊▉▉▉██▉█▊▉▉█▉▉▉▉▊▉▉██▉▉▉▊▉▉▉██▉█▊▉▉████▉▊▉▉█▉▉█▉▊▉▉█▉██▉▊▉▉█▉▉▉█▊▉▉██▉▉▉▊▉█████▊▉██▉▉██▊▉▉████▉▊▉▉█▉▉▉█▊▉▉██▉▉▉▊▉▉▉█▉█▉▊▉▉████▉▊▉▉██▉▉▉▊▉▉██▉█▉
+console.log($.undoctoralMindLevelText('▉██▉█▉█▊▉▉█▉▉▉▉▊▉▉▉█▉▉▉▊▉▉█▉▉▉▉▊▉█▉██▉▉▊▉▉███▉▉▊▉▉▉██▉█▊▉▉█▉██▉▊▉▉▉████▊▉▉▉█▉██▊▉█████▊▉█▉████▊▉▉▉██▉█▊▉▉█▉▉▉▉▊▉▉██▉▉▉▊▉▉▉██▉█▊▉▉████▉▊▉▉█▉▉█▉▊▉▉█▉██▉▊▉▉█▉▉▉█▊▉▉██▉▉▉▊▉█████▊▉██▉▉██▊▉▉████▉▊▉▉█▉▉▉█▊▉▉██▉▉▉▊▉▉▉█▉█▉▊▉▉████▉▊▉▉██▉▉▉▊▉▉██▉█▉'))
+VM303:1 JowoScript Programing Language
+```
+#### File JowoScript Example
+```html
+ /*
+ *
+ * $.creator	: Muhammad Nurcahyo Pratomo
+ * $.developer	: Muhammad Nurcahyo Pratomo
+ * $.architect	: Muhammad Nurcahyo Pratomo
+ * $.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * mime-type	: jowoscript or text/jowoscript or application/jowoscript
+ * extension	: *.jowo
+ *
+ * Your need buy a license key for access the fiture of JowoScript Programming Language 
+ * Copyright (c) PT JowoScript Technology Indonesia, 2021 - Forever. All Rights Reserved.
+ *
+ */
+
 //Your dont need import anything file class 
 /* Encryption In JowoScript Programming Language */
 var test = new Encryption;
