@@ -12,6 +12,10 @@
 </strong>
 <br>
 <strong>
+	PT JowoScript Technology Indonesia no need investment and go public or Initial Public Offering (IPO) in all countries
+</strong>
+<br>
+<strong>
 	JowoScript | JowoStyle | Jowo Kingdom Machine | Kingdom Studio | Jowo Kingdom Server | Structured Query Jowo Language
 </strong>
 <br>
