@@ -359,6 +359,26 @@ chain('*imgArchitectureOfJowoScript').click(function(){
 	$('*imgArchitectureOfJowoScript').screenToggle();
 }).title('Architechture Of JowoScript','Architechture Of JowoScript').width('100%');
 ```
+#### File JowoScript Example
+```html
+ /*
+ *
+ * $.creator	: Muhammad Nurcahyo Pratomo
+ * $.developer	: Muhammad Nurcahyo Pratomo
+ * $.architect	: Muhammad Nurcahyo Pratomo
+ * $.copyright	: Copyright © 2021 - Forever, PT JowoScript Technology Indonesia. All rights reserved.
+ * mime-type	: jowoscript or text/jowoscript or application/jowoscript
+ * extension	: *.jowo
+ *
+ * Your need buy a license key for access the fiture of JowoScript Programming Language 
+ * Copyright (c) PT JowoScript Technology Indonesia, 2021 - Forever. All Rights Reserved.
+ *
+ */
+
+/* Encryption */
+Message Digits Binary Algorithm
+
+```
 #### File JowoKingdom Example
 ```html
  /*
