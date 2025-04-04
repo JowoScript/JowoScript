@@ -378,12 +378,46 @@ chain('*imgArchitectureOfJowoScript').click(function(){
 //Your dont need import anything file class 
 /* Encryption In JowoScript Programming Language */
 var test = new Encryption;
-test.RipeMD160('Race Integrity Primitive Evaluation Message Digits 160')
-//Result '9d52f2028f5b59c6b9e02fc14680031d77dde37f
+console.log("Digits 160  : "+test.RipeMD160('Race Integrity Primitive Evaluation Message Digits 160'))
+console.log("Digits Binary : "+test.RipeMDb160('Race Integrity Primitive Evaluation Message Digits Binary 160'))
+console.log("Digits Octal : "+test.RipeMDo160('Race Integrity Primitive Evaluation Message Digits Octal 160'))
+console.log("Digits Decimal : "+test.RipeMDd160('Race Integrity Primitive Evaluation Message Digits Decimal 160'))
+console.log("Digits Duodecimal : "+test.RipeMDdd160('Race Integrity Primitive Evaluation Message Digits Duodecimal 160'))
+console.log("Digits Hexadecimal : "+test.RipeMDhd160('Race Integrity Primitive Evaluation Message Digits Hexadecimal 160'))
+console.log("Digits DuoTrigesimal : "+test.RipeMDdt160('Race Integrity Primitive Evaluation Message Digits DuoTrigesimal 160'))
+console.log("Digits HexaTrigesimal : "+test.RipeMDht160('Race Integrity Primitive Evaluation Message Digits HexaTrigesimal 160'))
+console.log("Digits Scientific : "+test.RipeMDs160('Race Integrity Primitive Evaluation Message Digits Scientific 160'))
+console.log("Digits ASCII : "+test.RipeMDascii160('Race Integrity Primitive Evaluation Message Digits ASCII 160'))
+console.log("Digits Roman Numeral : "+test.RipeMDrn160('Race Integrity Primitive Evaluation Message Digits Roman Numeral 160'))
+console.log("Digits Arabic Numeral : "+test.RipeMDan160('Race Integrity Primitive Evaluation Message Digits Arabic Numeral 160'))
+console.log("Digits Persian Numeral : "+test.RipeMDpn160('Race Integrity Primitive Evaluation Message Digits Persian Numeral 160'))
+console.log("Digits Morse : "+test.RipeMDm160('Race Integrity Primitive Evaluation Message Digits Morse 160'))
+console.log("Digits Light Morse : "+test.RipeMDlm160('Race Integrity Primitive Evaluation Message Digits Light Morse 160'))
+console.log("Digits Professor Mind Level : "+test.RipeMDpml160('Race Integrity Primitive Evaluation Message Digits Professor Mind Level 160'))
+console.log("Digits Professor Level : "+test.RipeMDpl160('Race Integrity Primitive Evaluation Message Digits Professor Level 160'))
+console.log("Digits Doctoral Mind Level : "+test.RipeMDdml160('Race Integrity Primitive Evaluation Message Digits Doctoral Mind Level 160'))
+console.log("Digits Doctoral Level : "+test.RipeMDdl160('Race Integrity Primitive Evaluation Message Digits Doctoral Level 160'))
 
-var test = new Encryption;
-test.RipeMDb160('Race Integrity Primitive Evaluation Message Digits Binary 160')
-//Result'0111101001110011100011110100110010'
+//Result
+VM460:2 Digits 160  : 9d52f2028f5b59c6b9e02fc14680031d77dde37f
+VM460:3 Digits Binary : 0111101001110011100011110100110010
+VM460:4 Digits Octal : 6514560145143
+VM460:5 Digits Decimal : 505799999948
+VM460:6 Digits Duodecimal : 94581444242
+VM460:7 Digits Hexadecimal : 13633633533
+VM460:8 Digits DuoTrigesimal : 18541864383
+VM460:9 Digits HexaTrigesimal : 56339613734
+VM460:10 Digits Scientific : 25.4e+15.7e+19.8e+15.4e+15.6e+1
+VM460:11 Digits ASCII : 971024897102
+VM460:12 Digits Roman Numeral : ICXLIVLXIIICXLILXVIILXI
+VM460:13 Digits Arabic Numeral : ٥١٤١٧٠٦٢١٤٥٦٧
+VM460:14 Digits Persian Numeral : ۶۵۶۵۶۵۶۲۱۴۲۶۱
+VM460:15 Digits Morse : ━ ● ● ●● ━● ━ ━ ━ ━● ━ ━ ━ ━━ ━ ● ● ●
+VM460:16 Digits Light Morse :  ∆∆ ━ ● ● ● ∇● ● ∇ ∆ ━● ━ ∆ ∇∆ ━ ● ● ● ∇● ∆ ∇ ━ ━
+VM460:17 Digits Professor Mind Level : ▫▢▢▢▫▫▫▢▢▢▫▫▫▢▢▢▫▢▫▫▢▢▫▫▫▢▫▢▢▫▫▢▫▫
+VM460:18 Digits Professor Level : ∬∭∭∭∭∬∬∭∬∭∭∬∭∬∬∭∭∬∬∭∬∭∭∬∬∬∬∭∭∭∬∬∬∭∭
+VM460:19 Digits Doctoral Mind Level : ▉█▉▉▉███▉▉██▉▉█▉▉██▉██▉▉▉███▉▉▉██▉
+VM460:20 Digits Doctoral Level : ╡╡╡╞╞╡╞╞╡╡╞╡╡╡╡╡╞╞╞╡╞╡╡╞╞╡╞╡╡╡╡╞╞╞
 
 ```
 #### File JowoKingdom Example
@@ -402,7 +436,6 @@ test.RipeMDb160('Race Integrity Primitive Evaluation Message Digits Binary 160')
  *
  */
 
-// your need import this backend with other concept
 import File;  // Import the File class
 
 file = new File(); //Call class file
