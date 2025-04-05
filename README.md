@@ -50,10 +50,10 @@ Jowo Kingdom Machine adalah bahasa pemrograman backend lintas platform dengan me
 	</li>
 	<li>
 	<strong>
-Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased)
+Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased to activate all the features)
 	</strong>
 	<br>
-Kingdom Studio adalah lingkungan pengembangan terintegrasi lintas platform [ekstensi file *.KSS jenis Solusi Kingdom Studio] (lisensi harus dibeli)
+Kingdom Studio adalah lingkungan pengembangan terintegrasi lintas platform [ekstensi file *.KSS jenis Solusi Kingdom Studio] (lisensi harus dibeli untuk mengaktifkan semua fitur)
 	<br><br>
 	</li>
 	<li>
