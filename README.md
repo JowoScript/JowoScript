@@ -24,7 +24,7 @@
 </strong>
 <br>
 <strong>
-	Hectocorns symbolize the enormous potential of a startup if it has the right product
+	Hectocorns symbolize the enormous potential of a startup if it has the right product	
 </strong>
 </div>
 </div>
@@ -32,12 +32,54 @@
 ## PT JowoScript Technology Indonesia products list :
 <div align="justify">
 <ol>
-	<li>JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [file extension *.JOWO type JowoScript] (license must be purchased to activate all the features)</li>
-	<li>Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [file extension *.JKM type Jowo Kingdom Machine] (license must be purchased to activate all the features)</li>
-	<li>Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased)</li>
-	<li>Jowo Kingdom Server is The cross platform an server host (license must be purchased to activate all the features)</li>
-	<li>Structured Query Jowo Language is The cross platform an query programming language [file extension *.SQJL type Structured Query Jowo Language] (license must be purchased to activate all the features)</li>
-	<li>JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [file extension *.JS3 type Jowo Style Sheet] (license must be purchased to activate all the features)</li>
+	<li>
+	<strong>
+JowoScript is The cross platform an front end programming language typing less, compile language, complex structure, small size and faster [file extension *.JOWO type JowoScript] (license must be purchased to activate all the features)
+	</strong>
+	<br>
+JowoScript adalah bahasa pemrograman front-end lintas platform yang mengetik lebih sedikit, bahasa kompilasi, struktur kompleks, ukuran kecil dan lebih cepat [ekstensi file *.JOWO jenis JowoScript] (lisensi harus dibeli untuk mengaktifkan semua fitur)
+	<br><br>
+	</li>
+	<li>
+	<strong>
+Jowo Kingdom Machine is The cross platform an backend programming language with new methods to advancing complex data scientists, advancing complex data processing, and advancing complex enterprise applications [file extension *.JKM type Jowo Kingdom Machine] (license must be purchased to activate all the features)
+	</strong>
+	<br>
+Jowo Kingdom Machine adalah bahasa pemrograman backend lintas platform dengan metode baru untuk memajukan ilmuwan data yang kompleks, memajukan pemrosesan data yang kompleks, dan memajukan aplikasi perusahaan yang kompleks [ekstensi file *.JKM jenis Jowo Kingdom Machine] (lisensi harus dibeli untuk mengaktifkan semua fitur)
+	<br><br>
+	</li>
+	<li>
+	<strong>
+Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased)
+	</strong>
+	<br>
+Kingdom Studio adalah lingkungan pengembangan terintegrasi lintas platform [ekstensi file *.KSS jenis Solusi Kingdom Studio] (lisensi harus dibeli)
+	<br><br>
+	</li>
+	<li>
+	<strong>
+Jowo Kingdom Server is The cross platform an server host (license must be purchased to activate all the features)
+	</strong>
+	<br>
+Jowo Kingdom Server adalah server host lintas platform (lisensi harus dibeli untuk mengaktifkan semua fitur)
+  	<br><br>
+	</li>
+	<li>
+	<strong>
+Structured Query Jowo Language is The cross platform an query programming language [file extension *.SQJL type Structured Query Jowo Language] (license must be purchased to activate all the features)
+	</strong>
+	<br>
+	Structured Query Bahasa Jowo adalah bahasa pemrograman query lintas platform [ekstensi file *.SQJL jenis Structured Query Bahasa Jowo] (lisensi harus dibeli untuk mengaktifkan semua fitur)
+	<br><br>
+	</li>
+	<li>
+	<strong>
+JowoStyleSheet is programming language for a pattern core of computation style sheet programming language used for describing the presentation of JowoScript programming language [file extension *.JS3 type Jowo Style Sheet] (license must be purchased to activate all the features)
+	</strong>
+	<br>
+JowoStyleSheet adalah bahasa pemrograman untuk inti pola bahasa pemrograman lembar gaya komputasi yang digunakan untuk mendeskripsikan presentasi bahasa pemrograman JowoScript [ekstensi file *.JS3 jenis Jowo Style Sheet] (lisensi harus dibeli untuk mengaktifkan semua fitur)
+	<br><br>
+	</li>
 </ol>
 </div>
 <br>
