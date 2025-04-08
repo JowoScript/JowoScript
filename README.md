@@ -352,6 +352,7 @@ JSOfLegend(101).toLog();
  *
  */
 
+//This will easy to make design website smoothly too
 //You can use this if you no need chain (But i love use the chain)
 $('*AboutTechnology, *TheBusiness, *PrivacyPolicy, *LegalityCompany, *SponsorsWorkflow, *PartnersWorkflow, *PriceList').removeCss();
 
