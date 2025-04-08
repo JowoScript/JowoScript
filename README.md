@@ -1,8 +1,8 @@
 <div align="center">
 <a href="https://www.jowoscript.web.id/" target="_self">
 <img src="iconJS.png" 
-     title="*JowoScript | *JowoStyle | *jS Technology"
-     alt="*JowoScript | *JowoStyle | *jS Technology"     
+     title="PT JowoScript Technology Indonesia"
+     alt="PT JowoScript Technology Indonesia"     
      height="150px" width="150px"></img>
 </a>
 </div>
@@ -494,6 +494,21 @@ VM460:19 Digits Doctoral Mind Level : ▉█▉▉▉███▉▉██▉▉
 VM460:20 Digits Doctoral Level : ╡╡╡╞╞╡╞╞╡╡╞╡╡╡╡╡╞╞╞╡╞╡╡╞╞╡╞╡╡╡╡╞╞╞
 
 ```
+#### File JowoScript Screen Example 1
+<img src="Example 1.png" 
+     title="Screen Example 1"
+     alt="Screen Example 1"     
+     height="100%" width="100%"></img>
+#### File JowoScript Screen Encryption
+<img src="encryption.jpg" 
+     title="Screen Encryption"
+     alt="Screen Encryption"     
+     height="100%" width="100%"></img>
+#### File JowoScript Screen Encryption RipeMD
+<img src="encryption RipeMD.jpg" 
+     title="Screen Encryption RipeMD"
+     alt="Screen Encryption RipeMD"     
+     height="100%" width="100%"></img>
 #### File JowoKingdom Example
 ```html
  /*
