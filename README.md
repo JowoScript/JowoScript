@@ -13,6 +13,8 @@
 <br>
 <strong>
 	PT JowoScript Technology Indonesia no need investment and go public or Initial Public Offering (IPO) in all countries
+	<br>
+	PT JowoScript Technology Indonesia products list must be purchased to activate all the features
 </strong>
 <br><br>
 <strong>
