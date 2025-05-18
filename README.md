@@ -28,6 +28,10 @@
 <strong>
 	PT JowoScript Technology Indonesia products is Hectocorns symbolize the enormous potential of a startup if it has the right product
 </strong>
+<br>
+<strong>
+	PT JowoScript Technology Indonesia products which are private companies valued at over $100 billion or Rp 1501.5 trillion.
+</strong>
 </div>
 </div>
 
