@@ -38,7 +38,7 @@
 </strong>
 <br>
 <strong>
-	Kalo miskin tidak punya uang untuk akusisi beli produk jangan banyak gaya di media sosial. paham sampai sini
+	Kalo miskin tidak punya uang untuk akusisi beli produk jangan banyak gaya di media sosial dan dunia nyata. paham sampai sini
 </strong>
 <br>
 <strong>
