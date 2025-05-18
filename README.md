@@ -26,7 +26,7 @@
 </strong>
 <br>
 <strong>
-	Hectocorns symbolize the enormous potential of a startup if it has the right product	
+	PT JowoScript Technology Indonesia products is Hectocorns symbolize the enormous potential of a startup if it has the right product
 </strong>
 </div>
 </div>
