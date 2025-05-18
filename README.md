@@ -42,7 +42,7 @@
 </strong>
 <br>
 <strong>
-	Rekening dan bank siapa bisa lebih dari Rp 1501.5 trillion di indonesia.
+	Rekening dan bank siapa bisa lebih dari Rp 1501.5 trillion di indonesia. Belum ada sampai sekarang paham
 </strong>
 <br>
 <strong>
