@@ -41,6 +41,6 @@ JowoScript:
   color: "#0000FF"
   extensions:
   - ".jowo"
-  tm_scope: source.jowo
+  tm_scope: *.jowo
   ace_mode: text
   language_id: 2021
