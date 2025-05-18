@@ -42,7 +42,7 @@
 </strong>
 <br>
 <strong>
-	Rekening pribadi dan bank mana punya bisa lebih dari Rp 1501.5 trillion di indonesia. Belum ada sampai sekarang paham
+	Rekening pribadi dan bank personal mana punya bisa lebih dari Rp 1501.5 trillion di indonesia. Belum ada sampai sekarang paham
 </strong>
 <br>
 <strong>
