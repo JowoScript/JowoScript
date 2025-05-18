@@ -52,6 +52,10 @@
 <strong>
 	Sudah miskin ilmu dan miskin harta banyak gaya di depan gue
 </strong>
+<br>
+<strong>
+	Apa lagi yang banyak gaya hasil korupsi dan nepotisme
+</strong>
 </div>
 </div>
 
