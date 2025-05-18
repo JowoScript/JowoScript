@@ -40,6 +40,10 @@
 <strong>
 	Kalo miskin tidak punya uang untuk akusisi beli produk jangan banyak gaya di media sosial. paham sampai sini
 </strong>
+<br>
+<strong>
+	banyakin ilmu dulu baru berisik boleh. paham sampai sini
+</strong>
 </div>
 </div>
 
