@@ -48,6 +48,10 @@
 <strong>
 	banyakin ilmu dulu baru berisik boleh. paham sampai sini
 </strong>
+<br>
+<strong>
+	Sudah miskin ilmu dan miskin harta banyak gaya di depan gue
+</strong>
 </div>
 </div>
 
