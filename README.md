@@ -54,7 +54,7 @@
 </strong>
 <br>
 <strong>
-	Apa lagi yang banyak gaya hasil korupsi dan nepotisme. Gituh bangga lagi tidak ada nilainya bangga
+	Apa lagi yang banyak gaya hasil korupsi dan nepotisme. Makan uang haram senang ? goblok 
 </strong>
 </div>
 </div>
