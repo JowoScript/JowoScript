@@ -30,7 +30,7 @@
 </strong>
 <br>
 <strong>
-	PT JowoScript Technology Indonesia products which are private companies valued at over $100 billion or Rp 1501.5 trillion.
+	PT JowoScript Technology Indonesia products which are private companies valued at over $100 billion or over Rp 1501.5 trillion.
 </strong>
 <br>
 <strong>
