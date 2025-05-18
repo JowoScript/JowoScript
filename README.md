@@ -42,6 +42,10 @@
 </strong>
 <br>
 <strong>
+	Rekening siapa bisa lebih dari Rp 1501.5 trillion.
+</strong>
+<br>
+<strong>
 	banyakin ilmu dulu baru berisik boleh. paham sampai sini
 </strong>
 </div>
