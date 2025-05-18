@@ -54,7 +54,7 @@
 </strong>
 <br>
 <strong>
-	Apa lagi yang banyak gaya hasil korupsi dan nepotisme
+	Apa lagi yang banyak gaya hasil korupsi dan nepotisme. Gituh bangga lagi bikin malu gue
 </strong>
 </div>
 </div>
