@@ -1,1 +1,9 @@
+//import file main.jowo
 import "script/main.jowo";
+
+//show the log
+console.log('hello this its a of javascript with a script')
+
+$.log('hello this its a tag of jowoscript with a script');
+
+'hello this its a tag of jowoscript with a script tag'.toLog();
