@@ -54,7 +54,7 @@
 </strong>
 <br>
 <strong>
-	Apa lagi yang banyak gaya hasil korupsi dan nepotisme. Makan uang haram senang ? goblok 
+	Apa lagi yang banyak gaya hasil korupsi dan nepotisme. Makan uang haram senang ? goblok semua akan di hisab di hari perhitungan
 </strong>
 <br>
 <br>
