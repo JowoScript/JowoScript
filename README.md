@@ -69,7 +69,7 @@
 <br>
 <br>
 <strong>
-	Nepotisme adalah tindakan mengutamakan atau memberikan keuntungan kepada kerabat dekat (sodara, teman, anak dan sejenisnya), baik itu dalam hal pekerjaan, jabatan, atau posisi tertentu, tanpa mempertimbangkan kemampuan atau kualifikasi mereka. Praktik ini sering dianggap sebagai perbuatan koruptif dan dapat merugikan orang lain yang lebih kompeten. 
+	Nepotisme adalah tindakan mengutamakan atau memberikan keuntungan kepada kerabat dekat (sodara, teman, anak, alumni sekolah dan sejenisnya), baik itu dalam hal pekerjaan, jabatan, atau posisi tertentu, tanpa mempertimbangkan kemampuan atau kualifikasi mereka. Praktik ini sering dianggap sebagai perbuatan koruptif dan dapat merugikan orang lain yang lebih kompeten. 
 </strong>
 </div>
 </div>
