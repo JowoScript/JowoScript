@@ -15,6 +15,8 @@
 	PT JowoScript Technology Indonesia no need investment and go public or Initial Public Offering (IPO) in all countries
 	<br>
 	PT JowoScript Technology Indonesia products list must be purchased to activate all the features
+	<br>
+	Buying the product must be legal and registered under the law
 </strong>
 <br><br>
 <strong>
@@ -59,7 +61,9 @@
 <br>
 <br>
 <strong>
-	Failed bayar IPO itu salah satu kecil contoh kebanyakan perusahaan hasil nepotisme. <br>Hutang perusahaan dan pemerintah bertambah dan pemasukan perusahaan dan pemerintah berkurang banyak dari hasil nepotisme<br>Karena hasil nepotisme bisa menghasilkan korupsi yang susah di tembus<br>Kualitas Sumber Daya Manusia siapa yang tidak berkualitas akan terlihat di akhir
+	Failed bayar IPO itu salah satu kecil contoh kebanyakan perusahaan hasil nepotisme. <br>Hutang perusahaan dan pemerintah bertambah dan pemasukan perusahaan dan pemerintah berkurang banyak dari hasil nepotisme<br>Karena hasil nepotisme bisa menghasilkan korupsi yang susah di tembus
+	<br>
+	Kualitas Sumber Daya Manusia siapa yang tidak berkualitas akan terlihat di akhir
 </strong>
 <br>
 <strong>
