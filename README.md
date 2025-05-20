@@ -72,6 +72,8 @@
 	Failed bayar IPO itu salah satu kecil contoh kebanyakan perusahaan hasil nepotisme. <br>Hutang perusahaan dan pemerintah bertambah dan pemasukan perusahaan dan pemerintah berkurang banyak dari hasil nepotisme<br>Karena hasil nepotisme bisa menghasilkan korupsi yang susah di tembus
 	<br>
 	Kualitas Sumber Daya Manusia siapa yang tidak berkualitas akan terlihat di akhir
+	<br>
+	Hasil korupsi menghasilkan harta dan hasil nepotisme menghasilkan harta bedanya apa ?
 </strong>
 <br>
 <strong>
