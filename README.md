@@ -16,6 +16,10 @@
 </strong>
 <br>
 <strong>
+	Biasa sendiri pengalamannya lebih banyak dari pada yang ramai ramai tapi tidak ada hasil kerjanya
+</strong>
+<br>
+<strong>
 	Viewed over 1 Million times from 2021 until now (has time view via github)</strong>
 <br>
 <br>
