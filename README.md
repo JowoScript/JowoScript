@@ -12,7 +12,7 @@
 </strong>
 <br>
 <strong>
-	Siapa yang tidak berguna dan tidak produktif selamanya gue tanya ?
+	Siapa yang tidak berguna dan tidak produktif selamanya gue tanya ? Kalo goblok sadar diri sebelum evaluasi gue
 </strong>
 <br>
 <strong>
