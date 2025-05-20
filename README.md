@@ -16,7 +16,7 @@
 </strong>
 <br>
 <strong>
-	Viewed over 1 Million times from 2021 till now (has time view via github)</strong>
+	Viewed over 1 Million times from 2021 until now (has time view via github)</strong>
 <br>
 <br>
 <strong>
