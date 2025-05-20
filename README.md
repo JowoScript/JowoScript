@@ -59,7 +59,7 @@
 <br>
 <br>
 <strong>
-	Failed bayar IPO itu salah satu kecil contoh kebanyakan perusahaan hasil nepotisme. Kualitas Sumber Daya Manusia siapa yang tidak berkualitas akan terlihat di akhir
+	Failed bayar IPO itu salah satu kecil contoh kebanyakan perusahaan hasil nepotisme. <br>Kualitas Sumber Daya Manusia siapa yang tidak berkualitas akan terlihat di akhir
 </strong>
 <br>
 <br>
