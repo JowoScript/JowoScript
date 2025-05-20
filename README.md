@@ -12,6 +12,10 @@
 </strong>
 <br>
 <strong>
+	Siapa yang tidak berguna dan tidak produktif selamanya gue tanya ?
+</strong>
+<br>
+<strong>
 	has viewed more than 1 Million times from 2021 until now
 </strong>
 <br>
