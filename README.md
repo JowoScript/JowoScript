@@ -12,8 +12,9 @@
 </strong>
 <br>
 <strong>
-	has viewed more than 1 Million from 2021 until now
+	has viewed more than 1 Million times from 2021 until now
 </strong>
+<br>
 <br>
 <strong>
 	PT JowoScript Technology Indonesia no need investment and go public or Initial Public Offering (IPO) in all countries
