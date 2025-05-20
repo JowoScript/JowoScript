@@ -64,7 +64,7 @@
 </strong>
 <br>
 <strong>
-	Hasil Nepotisme merugikan negara dan perusahaan karena menerima gaji dan tunjangan selama ini. (contoh gaji 5 juta dan tunjangan 10 juta kali 1 tahun saja sudah berapa perorang) kalo hasil nepotisme lebih dari satu orang ?
+	Hasil Nepotisme merugikan negara dan perusahaan karena menerima gaji dan tunjangan selama ini. (contoh gaji 5 juta dan tunjangan 10 juta kali 1 tahun saja sudah berapa perorang) kalo hasil nepotisme lebih dari satu orang ? terus hitung berapa tahun lama kerja hasil nepotisme sudah ratusan milliar hilang 
 </strong>
 <br>
 <strong>
