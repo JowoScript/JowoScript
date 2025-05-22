@@ -42,6 +42,10 @@
 <strong>
 	My Question simple is Which company dares to pay ?
 </strong>
+<br>
+<strong>
+	CGI can refer to two distinct concepts: Common Gateway Interface (CGI), a standard for web server interaction with external programs, and Computer-Generated Imagery (CGI), a technique for creating visual effects and animation
+</strong>
 </div>
 </div>
 
