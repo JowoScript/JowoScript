@@ -12,14 +12,6 @@
 </strong>
 <br>
 <strong>
-	Siapa yang tidak berguna dan tidak produktif selamanya gue tanya ? Kalo goblok skill hanya standart sadar diri sebelum evaluasi gue
-</strong>
-<br>
-<strong>
-	Biasa sendiri pengalamannya lebih banyak dari pada yang ramai ramai tapi tidak ada hasil kerjanya
-</strong>
-<br>
-<strong>
 	Viewed over 1 Million times from 2021 until now (has time view via github)</strong>
 <br>
 <br>
@@ -53,41 +45,6 @@
 <br>
 <strong>
 	Kalo miskin tidak punya uang untuk akusisi beli produk jangan banyak gaya di media sosial dan dunia nyata. paham sampai sini
-</strong>
-<br>
-<strong>
-	Rekening pribadi dan bank personal mana punya bisa lebih dari Rp 1501.5 trillion di indonesia. Belum ada sampai sekarang paham
-</strong>
-<br>
-<strong>
-	banyakin ilmu dulu baru berisik boleh. paham sampai sini
-</strong>
-<br>
-<strong>
-	Hasil Nepotisme merugikan negara dan perusahaan karena menerima gaji dan tunjangan selama ini. (contoh gaji 5 juta dan tunjangan 10 juta kali 1 tahun saja sudah berapa perorang) kalo hasil nepotisme lebih dari satu orang ? terus hitung berapa tahun lama kerja hasil nepotisme sudah ratusan milliar hilang 
-</strong>
-<br>
-<strong>
-	Apa lagi yang banyak gaya hasil korupsi dan nepotisme. Makan uang haram senang ? goblok semua akan di hisab di hari perhitungan
-</strong>
-<br>
-<br>
-<strong>
-	Failed bayar IPO itu salah satu kecil contoh kebanyakan perusahaan hasil nepotisme. <br>Hutang perusahaan dan pemerintah bertambah dan pemasukan perusahaan dan pemerintah berkurang banyak dari hasil nepotisme<br>Karena hasil nepotisme bisa menghasilkan korupsi yang susah di tembus
-	<br>
-	Kualitas Sumber Daya Manusia siapa yang tidak berkualitas akan terlihat di akhir
-	<br>
-	Hasil korupsi menghasilkan harta dan hasil nepotisme menghasilkan harta bedanya apa ?
-</strong>
-<br>
-<strong>
-	Gue kalo jadi atasan sudah pasti gue bersih kan hasil nepotisme itu pertama kalinya karena penyakit bahaya jangka panjang
-</strong>
-<br>
-<br>
-<br>
-<strong>
-	Nepotisme adalah tindakan mengutamakan atau memberikan keuntungan kepada kerabat dekat (sodara, teman, anak, alumni sekolah dan sejenisnya), baik itu dalam hal pekerjaan, jabatan, atau posisi tertentu, tanpa mempertimbangkan kemampuan atau kualifikasi mereka. Praktik ini sering dianggap sebagai perbuatan koruptif dan dapat merugikan orang lain yang lebih kompeten. 
 </strong>
 </div>
 </div>
