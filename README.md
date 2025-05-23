@@ -12,7 +12,7 @@
 </strong>
 <br>
 <strong>
-	I develop it every day behind the scenes and the price goes up with every new version.
+	Muhammad Nurcahyo Pratomo develop JowoScript and Jowo Kingdom Machine and Kingdom Studio it every day behind the scenes and the price goes up with every new version.
 </strong>
 <br>
 <br>
