@@ -12,7 +12,8 @@
 </strong>
 <br>
 <strong>
-	Viewed over 1 Million times from 2021 until now (has time view via github)</strong>
+	I develop it every day behind the scenes and the price goes up with every new version.
+</strong>
 <br>
 <br>
 <strong>
