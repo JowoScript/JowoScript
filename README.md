@@ -611,7 +611,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <li>It is strictly prohibited for weapons of war such as politics, crime and kindly, back to point number 1 and point number 7</li>
 <li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
 <li>The company (Indonesia and Malaysia) that had problems with me was the entrance test and etc are strictly prohibited from obtaining licenses forever. back to point number 7 (i have big data private so no can lie)</li>
-<li>Friends (Indonesia and Malaysia) and people (Indonesia and Malaysia) who have problems with me are strictly prohibited from obtaining licenses forever. Even if the problematic friend works for a government agency, the same rules apply to that agency. back to point number 7 (i have big data private Single Sign On [SSO] so no can lie)</li>
+<li>Friends (Indonesia and Malaysia) and people (Indonesia and Malaysia) who have problems with me are strictly prohibited from obtaining licenses forever. Even if the problematic friend works for a government agency, the same rules apply to that agency. back to point number 7</li>
 <li>Registered trademark products of PT JowoScript Technology Indonesia</li>
 <li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
 </ol>
