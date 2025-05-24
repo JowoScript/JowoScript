@@ -47,6 +47,10 @@
 <strong>
 	Kalo tidak punya uang untuk beli produk jangan banyak mulut. Bikin malu saja
 </strong>
+<br>
+<strong>
+	Siapa yang tidak berguna untuk bangsa dan negara jelas bukan Muhammad Nurcahyo Pratomo selama ini
+</strong>
 </div>
 </div>
 
