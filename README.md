@@ -45,7 +45,7 @@
 </strong>
 <br>
 <strong>
-	Kalo tidak punya uang untuk beli produk jangan banyak mulut
+	Kalo tidak punya uang untuk beli produk jangan banyak mulut. Bikin malu saja
 </strong>
 </div>
 </div>
