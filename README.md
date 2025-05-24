@@ -51,6 +51,10 @@
 <strong>
 	Siapa yang tidak berguna untuk bangsa dan negara selama ini jelas bukan Muhammad Nurcahyo Pratomo itu fakta
 </strong>
+<br>
+<strong>
+	Muhammad Nurcahyo Pratomo tidak berguna gimana next generation baru belajar dan sejenisnya
+</strong>
 </div>
 </div>
 
@@ -110,8 +114,6 @@ JowoStyleSheet adalah bahasa pemrograman untuk inti pola bahasa pemrograman lemb
 <br>
 <div align="center">
 <strong>
-	JavaScript, Python, C, C++, C#, VB, Cobol, Node.js, PHP and Java Virtual Machine is old concept
-	<br>
 	The new is JowoScript and Jowo Kingdom Machine the powerfull of native code of native jowo and super power of new technology concept that brings the future (license must be purchased)
 	<br><br>
 	The intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now
