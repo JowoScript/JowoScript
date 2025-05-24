@@ -43,6 +43,10 @@
 <strong>
 	My Question simple is Which company dares to pay ?
 </strong>
+<br>
+<strong>
+	Kalo tidak punya uang untuk beli produk jangan banyak mulut
+</strong>
 </div>
 </div>
 
