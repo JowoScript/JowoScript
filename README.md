@@ -49,7 +49,7 @@
 </strong>
 <br>
 <strong>
-	Siapa yang tidak berguna untuk bangsa dan negara jelas bukan Muhammad Nurcahyo Pratomo selama ini
+	Siapa yang tidak berguna untuk bangsa dan negara selama ini jelas bukan Muhammad Nurcahyo Pratomo itu fakta
 </strong>
 </div>
 </div>
