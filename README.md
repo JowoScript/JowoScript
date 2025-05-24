@@ -53,7 +53,7 @@
 </strong>
 <br>
 <strong>
-	Muhammad Nurcahyo Pratomo tidak berguna gimana next generation baru belajar dan sejenisnya
+	Muhammad Nurcahyo Pratomo tidak berguna gimana next generation masih sekolah dan sejenisnya
 </strong>
 </div>
 </div>
