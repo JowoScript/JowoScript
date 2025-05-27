@@ -31,30 +31,6 @@
 <strong>
 	Introduction
 </strong>
-<br>
-<strong>
-	PT JowoScript Technology Indonesia products is Hectocorns symbolize the enormous potential of a startup if it has the right product
-</strong>
-<br>
-<strong>
-	PT JowoScript Technology Indonesia products which are private companies valued at over $100 billion or over Rp 1501.5 trillion.
-</strong>
-<br>
-<strong>
-	My Question simple is Which company dares to pay ?
-</strong>
-<br>
-<strong>
-	Kalo tidak punya uang untuk beli produk jangan banyak mulut. Bikin malu saja
-</strong>
-<br>
-<strong>
-	Siapa yang tidak berguna untuk bangsa dan negara selama ini jelas bukan Muhammad Nurcahyo Pratomo itu fakta
-</strong>
-<br>
-<strong>
-	Muhammad Nurcahyo Pratomo tidak berguna gimana next generation masih sekolah, guru, dosen dan sejenisnya
-</strong>
 </div>
 </div>
 
