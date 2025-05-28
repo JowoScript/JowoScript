@@ -585,7 +585,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <div align="justify">
 <ol>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
-<li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content warnings)</li>
+<li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
 <li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
