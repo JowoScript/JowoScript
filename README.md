@@ -41,7 +41,7 @@
      height="100%" width="100%"></img>
 
 #### Kingdom Studio Version 0.1.2
-<img src="Kingdom Studio version 0.1.2.png" 
+<img src="Kingdom Studio versionx 0.1.2.png" 
      title="Kingdom Studio version 0.1.2"
      alt="Kingdom Studio version 0.1.2"     
      height="100%" width="100%"></img>
