@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	PT JowoScript Technology Indonesia - The Hectocorn Values
+	PT JowoScript Technology Indonesia - Always productive
 </strong>
 <br>
 <strong>
