@@ -1,6 +1,6 @@
 <div align="center">
 <a href="https://www.jowoscript.web.id/" target="_self">
-<img src="iconJS.png" 
+<img src="PT JowoScript Technology Indonesia 128x128.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="150px" width="150px"></img>
