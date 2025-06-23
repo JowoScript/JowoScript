@@ -64,12 +64,6 @@
      alt="JowoScript Native Code Version 8.7.6 in Edge"     
      height="100%" width="100%"></img>
 
-#### JowoScript Native Code Version 8.7.6 in Edge
-<img src="JowoScript Native Code Version 8.7.6 in edge.png" 
-     title="JowoScript Native Code Version 8.7.6 in Edge"
-     alt="JowoScript Native Code Version 8.7.6 in Edge"     
-     height="100%" width="100%"></img>
-
 #### JowoScript Native Code Version 8.7.6 in FireFox
 <img src="JowoScript Native Code Version 8.7.6 in firefox.png" 
      title="JowoScript Native Code Version 8.7.6 in FireFox"
