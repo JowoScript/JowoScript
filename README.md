@@ -52,10 +52,10 @@
      alt="Kingdom Studio version 0.1.2"     
      height="100%" width="100%"></img>
 
-#### JowoScript Native Code Version 8.7.5
-<img src="JowoScript Native Code.png" 
-     title="JowoScript Native Code Version 8.7.5"
-     alt="JowoScript Native Code Version 8.7.5"     
+#### JowoScript Native Code Version 8.7.6
+<img src="JowoScript Native Code Version 8.7.6.png" 
+     title="JowoScript Native Code Version 8.7.6"
+     alt="JowoScript Native Code Version 8.7.6"     
      height="100%" width="100%"></img>
      
 ## PT JowoScript Technology Indonesia products list :
