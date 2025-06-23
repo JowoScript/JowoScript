@@ -52,10 +52,34 @@
      alt="Kingdom Studio version 0.1.2"     
      height="100%" width="100%"></img>
 
-#### JowoScript Native Code Version 8.7.6
+#### JowoScript Native Code Version 8.7.6 in Chrome
 <img src="JowoScript Native Code Version 8.7.6.png" 
-     title="JowoScript Native Code Version 8.7.6"
-     alt="JowoScript Native Code Version 8.7.6"     
+     title="JowoScript Native Code Version 8.7.6 in Chrome"
+     alt="JowoScript Native Code Version 8.7.6 in Chrome"     
+     height="100%" width="100%"></img>
+
+#### JowoScript Native Code Version 8.7.6 in Edge
+<img src="JowoScript Native Code Version 8.7.6 in edge.png" 
+     title="JowoScript Native Code Version 8.7.6 in Edge"
+     alt="JowoScript Native Code Version 8.7.6 in Edge"     
+     height="100%" width="100%"></img>
+
+#### JowoScript Native Code Version 8.7.6 in Edge
+<img src="JowoScript Native Code Version 8.7.6 in edge.png" 
+     title="JowoScript Native Code Version 8.7.6 in Edge"
+     alt="JowoScript Native Code Version 8.7.6 in Edge"     
+     height="100%" width="100%"></img>
+
+#### JowoScript Native Code Version 8.7.6 in FireFox
+<img src="JowoScript Native Code Version 8.7.6 in firefox.png" 
+     title="JowoScript Native Code Version 8.7.6 in FireFox"
+     alt="JowoScript Native Code Version 8.7.6 in FireFox"     
+     height="100%" width="100%"></img>
+
+#### JowoScript Native Code Version 8.7.6 in Yandex
+<img src="JowoScript Native Code Version 8.7.6 in yandex.png" 
+     title="JowoScript Native Code Version 8.7.6 in Yandex"
+     alt="JowoScript Native Code Version 8.7.6 in Yandex"     
      height="100%" width="100%"></img>
      
 ## PT JowoScript Technology Indonesia products list :
