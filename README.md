@@ -10,6 +10,14 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always productive
 </strong>
+<br><br>
+<strong>
+	who am i
+</strong>
+<br>
+<strong>
+	I`m a simple person from java of indonesia
+</strong>
 <br>
 <strong>
 	Muhammad Nurcahyo Pratomo develop JowoScript and Jowo Kingdom Machine and Kingdom Studio it every day behind the scenes and the price goes up with every new version.
