@@ -60,6 +60,12 @@
      alt="Kingdom Studio version 0.1.2"     
      height="100%" width="100%"></img>
 
+#### Kingdom Studio Version 0.1.5
+<img src="Kingdom Studio version 0.1.5.png" 
+     title="Kingdom Studio version 0.1.5"
+     alt="Kingdom Studio version 0.1.5"     
+     height="100%" width="100%"></img>
+
 #### JowoScript Native Code Version 8.7.6 in Chrome
 <img src="JowoScript Native Code Version 8.7.6.png" 
      title="JowoScript Native Code Version 8.7.6 in Chrome"
