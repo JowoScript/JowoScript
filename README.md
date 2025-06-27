@@ -45,7 +45,7 @@
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br><br>
-	Modal besar buat produk kalo gagal bayar hutang yang ada. Apa lagi hanya bisa niru bisnis
+	Modal besar buat produk kalo gagal bayar hutang yang ada. Apa lagi hanya bisa niru bisnis gue
 </strong>
 <br><br>
 <strong>
