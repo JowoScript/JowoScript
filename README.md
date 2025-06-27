@@ -36,6 +36,8 @@
 	Your can visited my personal facebook
 	<br>
 	Baru 4 tahun kita lihat banyak perusahaan tutup. Bacot sama yang pengalaman
+	<br>
+	Lu baru kerja gue sudah kerja dulu
 </strong>
 <br><br>
 <strong>
