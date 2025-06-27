@@ -41,7 +41,7 @@
 	<br>
 	Lu kerja sama perusahaan orang atau istansi pemerintah selama ini pakai target bukan dan buat laporan. Bacot sama yang pengalaman
 	<br>
-	Lu kerja sama perusahaan orang atau istansi pemerintah selama ini pasti buang tenaga itu juga masa depannya belum tentu di jamin
+	Lu kerja sama perusahaan orang atau istansi pemerintah selama ini pasti buang tenaga itu juga masa depan lu belum tentu di jamin
 </strong>
 <br><br>
 <strong>
