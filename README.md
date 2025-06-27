@@ -30,6 +30,8 @@
 	PT JowoScript Technology Indonesia products list must be purchased to activate all the features
 	<br>
 	Buying the product must be legal and registered under the law
+	<br>
+	More information about js3 product development and kingdom studio, your can visited my personal facebook
 </strong>
 <br><br>
 <strong>
