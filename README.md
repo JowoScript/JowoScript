@@ -37,7 +37,7 @@
 	<br>
 	Baru 4 tahun kita lihat banyak perusahaan tutup. Bacot sama yang pengalaman
 	<br>
-	Lu baru kerja dan gue sudah pernah kerja dulu
+	Lu baru kerja dan gue sudah pernah kerja dulu. Paham bedanya ya
 </strong>
 <br><br>
 <strong>
