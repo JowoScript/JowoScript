@@ -54,6 +54,12 @@
 </div>
 </div>
 
+#### Legality Statement Letter of PT JowoScript Technology Indonesia
+<img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
+     title="Legality Statement Letter of PT JowoScript Technology Indonesia"
+     alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
+     height="100%" width="100%"></img>
+
 #### Kingdom Studio Version 0.1.1
 <img src="Kingdom Studio version 0.1.1.png" 
      title="Kingdom Studio version 0.1.1"
