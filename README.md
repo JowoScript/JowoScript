@@ -44,6 +44,8 @@
 	Lu kerja sama perusahaan orang atau istansi pemerintah selama ini pasti buang tenaga dan kapanpun bisa kena pecat itu juga masa depan lu belum tentu di jamin kalo hanya janji manis gue hanya tertawa saja di atas materai saja bisa nipu. Bacot sama yang pengalaman
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
+	<br><br>
+	Modal besar buat produk kalo gagal bayar hutang yang ada.
 </strong>
 <br><br>
 <strong>
