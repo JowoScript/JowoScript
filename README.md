@@ -34,6 +34,8 @@
 	More information about jowoscript product development and kingdom studio product development.
 	<br>
 	Your can visited my personal facebook
+	<br>
+	Baru 4 tahun kita lihat banyak perusahaan tutup. Bacot sama yang pengalaman
 </strong>
 <br><br>
 <strong>
