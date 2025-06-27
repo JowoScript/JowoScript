@@ -31,7 +31,9 @@
 	<br>
 	Buying the product must be legal and registered under the law
 	<br>
-	More information about jowoscript product development and kingdom studio product development , your can visited my personal facebook
+	More information about jowoscript product development and kingdom studio product development.
+	<br>
+	Your can visited my personal facebook
 </strong>
 <br><br>
 <strong>
