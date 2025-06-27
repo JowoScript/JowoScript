@@ -39,7 +39,7 @@
 	<br>
 	Lu baru kerja dan gue sudah pernah kerja dulu. Paham bedanya ya
 	<br>
-	Lu kerja sama perusahaan orang selama ini pakai target bukan dan buat laporan. Bacot sama yang pengalaman
+	Lu kerja sama perusahaan orang atau istansi pemerintah selama ini pakai target bukan dan buat laporan. Bacot sama yang pengalaman
 </strong>
 <br><br>
 <strong>
