@@ -43,7 +43,7 @@
 	<br><br>
 	Modal besar buat produk kalo gagal bayar hutang yang ada. Apa lagi hanya bisa niru bisnis gue
 	<br><br>
-	Unversitas dan Yayasan wajib modal kalo mau beli Kingdom Studio. Selama ini memperkaya yayasan dan pihak kampus dan dari dulu mahasiswa bayar mahal sekolah ya dan termasuk gue juga dulu bayar sekolah tidak murah ya itu juga gratisan belajar pakai bahasa pemegromannya. Kita lihat kedepannya Univeristas dan yayasan mana tidak ada muridnya akan tertinggal perubahan zaman. Tidak usah sekolah di universitas dan yayasan yang tidak mau modal nanti juga pada tutup kampusnya
+	Unversitas dan Yayasan wajib modal kalo mau beli Kingdom Studio. Selama ini memperkaya yayasan dan pihak kampus dan dari dulu mahasiswa bayar mahal sekolah ya dan termasuk gue juga dulu bayar sekolah tidak murah ya itu juga gratisan belajar pakai bahasa pemegromannya. Kita lihat kedepannya Univeristas dan yayasan mana tidak ada muridnya akan tertinggal perubahan zaman. Tidak usah sekolah di universitas dan yayasan yang tidak mau modal nanti juga pada tutup sekolahnya
 </strong>
 <br><br>
 <strong>
