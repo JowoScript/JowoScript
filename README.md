@@ -54,6 +54,12 @@
 </div>
 </div>
 
+#### Kingdom Studio Version 0.1.6 Commend Prompt
+<img src="Kingdom Studio Version 0.1.6 Comment Prompt.png" 
+     title="Kingdom Studio Version 0.1.6 Commend Prompt"
+     alt="Kingdom Studio Version 0.1.6 Commend Prompt"     
+     height="100%" width="100%"></img>
+     
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
