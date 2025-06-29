@@ -42,6 +42,8 @@
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br><br>
 	Modal besar buat produk kalo gagal bayar hutang yang ada. Apa lagi hanya bisa niru bisnis gue
+	<br><br>
+	Unversitas dan Yayasan wajib modal kalo mau beli Kingdom Studio. Selama ini dan dar dulu mahasiswa bayar mahal sekolah ya dan termasuk gue juga dulu bayar sekolah tidak murah ya. Permainan berubah sekarang.
 </strong>
 <br><br>
 <strong>
