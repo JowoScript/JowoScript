@@ -45,7 +45,7 @@
 	<br><br>
 	Unversitas dan Yayasan wajib modal kalo mau beli Kingdom Studio. Selama ini memperkaya yayasan dan pihak kampus dan dari dulu mahasiswa bayar mahal sekolah ya dan termasuk gue juga dulu bayar sekolah tidak murah ya itu juga gratisan belajar pakai bahasa pemrograman nya tapi bayar sekolah mahal. Kita lihat kedepannya Univeristas dan yayasan mana tidak ada muridnya akan tertinggal perubahan zaman. Tidak usah sekolah di universitas dan yayasan yang tidak mau modal nanti juga pada tutup sekolahnya.
 	<br><br>
-	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak
+	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya
 </strong>
 <br><br>
 <strong>
