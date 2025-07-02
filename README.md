@@ -72,10 +72,10 @@
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
 
-#### Kingdom Studio Version 0.1.7
-<img src="Kingdom Studio Version 0.1.7.png" 
-     title="Kingdom Studio Version 0.1.7"
-     alt="Kingdom Studio Version 0.1.7"     
+#### Kingdom Studio Version 0.1.8
+<img src="Kingdom Studio Version 0.1.8.png" 
+     title="Kingdom Studio Version 0.1.8"
+     alt="Kingdom Studio Version 0.1.8"     
      height="100%" width="100%"></img>
 
 #### JowoScript Native Code Version 8.7.6 in Chrome
