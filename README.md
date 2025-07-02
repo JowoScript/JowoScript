@@ -60,10 +60,10 @@
 </div>
 </div>
 
-#### Kingdom Studio Version 0.2.0 Commend Prompt By Creator Technology
-<img src="Kingdom Studio Version 0.2.0 Commend Prompt By Creator Technology.png" 
-     title="Kingdom Studio Version 0.2.0 Commend Prompt By Creator Technology"
-     alt="Kingdom Studio Version 0.2.0 Commend Prompt By Creator Technology"     
+#### Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology
+<img src="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology.png" 
+     title="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology"
+     alt="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology"     
      height="100%" width="100%"></img>
      
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
