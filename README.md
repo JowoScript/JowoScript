@@ -47,7 +47,7 @@
 	<br><br>
 	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya
 	<br><br>
-	Sekarang siapa yang tidak berguna dan tidak produktif
+	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
 </strong>
 <br><br>
 <strong>
