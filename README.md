@@ -55,6 +55,8 @@
 	<br><br>
 	Semua ada kepentingan di akhir baik baik hidup yang maki maki gue lewat music dj
 	<br><br>
+	Belum paham dunia bisnis itu kejam baik baik ya yg maki maki gue
+	<br><br>
 	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
 </strong>
 <br><br>
