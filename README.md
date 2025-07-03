@@ -51,6 +51,8 @@
 	<br><br>
 	I've been listening to music, it doesn't mean I'm stupid.
 	<br><br>
+	Orang lain yang akan membunuhmu dj paham sampai sini
+	<br><br>
 	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
 </strong>
 <br><br>
