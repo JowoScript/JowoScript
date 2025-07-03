@@ -666,7 +666,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 <li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
 <li>The company (Indonesia and Malaysia) that had problems with me was the entrance test and etc are strictly prohibited from obtaining licenses forever. back to point number 7 (i have big data private so no can lie)</li>
 <li>Friends Of Muhammad Nurchayo Pratomo (Indonesia and Malaysia) and people (Indonesia and Malaysia) who have problems with me are strictly prohibited from obtaining licenses forever. Even if the problematic friend works for a government agency, the same rules apply to that agency. back to point number 7</li>
-<li>Especially for those who insert sound into music at Disc Jockey (DJ) and the conclusion is that the sound is changed into music for cursing and being alone, the perpetrator must die first if there is a company or government that wants to buy the license. back to point number 7<li>
+<li>Especially for those who insert sound into music at Disc Jockey (DJ) and the conclusion is that the sound is changed into music for cursing and being alone, the perpetrator must die first if there is a company or government that wants to buy the license. back to point number 7</li>
 <li>Registered trademark products of PT JowoScript Technology Indonesia</li>
 <li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
 </ol>
