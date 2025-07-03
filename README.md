@@ -47,7 +47,7 @@
 	<br><br>
 	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya
 	<br><br>
-	Read my rules number or point 15 your will be die the future
+	Read my rules number or point 15 your will be die the future. Rules is a rule
 	<br><br>
 	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
 </strong>
