@@ -49,6 +49,8 @@
 	<br><br>
 	Read my rules number or point 15 your will be die the future. Rules is a rule
 	<br><br>
+	I've been listening to music, it doesn't mean I'm stupid.
+	<br><br>
 	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
 </strong>
 <br><br>
