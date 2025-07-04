@@ -75,6 +75,12 @@
      title="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology"
      alt="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology"     
      height="100%" width="100%"></img>
+
+#### Kingdom Studio Version 0.1.9 Do you think this failed ? Do you know i create jowoscript from zero too
+<img src="Kingdom Studio Version 0.1.9.png" 
+     title="Kingdom Studio Version 0.1.9"
+     alt="Kingdom Studio Version 0.1.9"     
+     height="100%" width="100%"></img>
      
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
