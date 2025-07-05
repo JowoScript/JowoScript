@@ -55,7 +55,11 @@
 	<br><br>
 	Orang lain yang akan membunuhmu dj paham sampai sini
 	<br><br>
-	Semua ada kepentingan di akhir baik baik hidup yang maki maki gue lewat music dj. Mendengarkan lu bacot DJ semua orang tau siapa yang sampah paham
+	Berteman sama orang orang tidak berguna untungnya apa ? Bacot lewat music doang malah rugi berteman.
+	<br>
+	Sampai sekarang ada untungnya gue tanya bacotin gue lewat music ? Gak ada malah rugi gue masukin blacklist. Dapat apa dari DJ nya sampai sekarang selama ini provokator doang
+	<br><br>
+	Semua ada kepentingan di akhir baik baik hidup yang maki maki gue lewat music dj. Mendengarkan lu bacot DJ semua orang tau siapa yang sampah
 	<br><br>
 	Belum paham dunia bisnis itu kejam baik baik ya yg maki maki gue
 	<br><br>
