@@ -45,6 +45,8 @@
 	<br><br>
 	Unversitas dan Yayasan wajib modal kalo mau beli Kingdom Studio. Selama ini memperkaya yayasan dan pihak kampus dan dari dulu mahasiswa bayar mahal sekolah ya dan termasuk gue juga dulu bayar sekolah tidak murah ya itu juga gratisan belajar pakai bahasa pemrograman nya tapi bayar sekolah mahal. Kita lihat kedepannya Univeristas dan yayasan mana tidak ada muridnya akan tertinggal perubahan zaman. Tidak usah sekolah di universitas dan yayasan yang tidak mau modal nanti juga pada tutup sekolahnya.
 	<br><br>
+	Contoh : Gaji dosen di universitas 10 juta perbuulan kalo pertahun 120 juta. SPP murid satu orang persemester 10 juta itu 6 bulan cukup berapa murid 12 mmurid hanya 6 bulan. Hitung saja berapa murid selama ini sekolah dari zaman dulu
+	<br><br>
 	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya
 	<br><br>
 	Read my rules number or point 15 your will be die the future. Rules is a rule
