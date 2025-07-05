@@ -47,7 +47,7 @@
 	<br><br>
 	Contoh : Gaji dosen di universitas 10 juta perbuulan kalo pertahun 120 juta. SPP murid satu orang persemester 10 juta itu 6 bulan cukup berapa murid 12 mmurid hanya 6 bulan. Hitung saja berapa murid selama ini sekolah dari zaman dulu
 	<br><br>
-	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue
+	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue. Siapa yang pengangguran dan tidak berguna selama ini anda bukan gue
 	<br><br>
 	Read my rules number or point 15 your will be die the future. Rules is a rule
 	<br><br>
