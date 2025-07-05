@@ -55,7 +55,7 @@
 	<br><br>
 	Orang lain yang akan membunuhmu dj paham sampai sini
 	<br><br>
-	Semua ada kepentingan di akhir baik baik hidup yang maki maki gue lewat music dj. Mendengarkan lu bacot DJ semua orang tau 
+	Semua ada kepentingan di akhir baik baik hidup yang maki maki gue lewat music dj. Mendengarkan lu bacot DJ semua orang tau siapa yang sampah paham
 	<br><br>
 	Belum paham dunia bisnis itu kejam baik baik ya yg maki maki gue
 	<br><br>
