@@ -67,7 +67,7 @@
 	<br><br>
 	Sudah miskin banyak bacot dan tidak ada skillnya dan kerja saja hasil orang dalam paham kamu dj. Fakta bukan datanya
 	<br><br>
-	Hasil karya lu DJ hanya buat onar saja lewat music
+	Hasil karya lu DJ hanya buat onar atau keributan saja lewat music
 </strong>
 <br><br>
 <strong>
