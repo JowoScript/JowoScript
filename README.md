@@ -64,6 +64,8 @@
 	Belum paham dunia bisnis itu kejam baik baik ya yg maki maki gue
 	<br><br>
 	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
+	<br><br>
+	Sudah miskin banyak bacot dan tidak ada skillnya dan kerja saja hasil orang dalam paham kamu dj
 </strong>
 <br><br>
 <strong>
