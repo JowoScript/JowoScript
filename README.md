@@ -65,7 +65,7 @@
 	<br><br>
 	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
 	<br><br>
-	Sudah miskin banyak bacot dan tidak ada skillnya dan kerja saja hasil orang dalam paham kamu dj. Fakta bukan datanya
+	Sudah miskin banyak bacot dan tidak ada skillnya dan masuk kerja saja hasil orang dalam paham kamu dj. Fakta bukan datanya
 	<br><br>
 	Hasil karya lu DJ hanya buat onar atau keributan saja lewat music. Fakta bukan datanya
 </strong>
