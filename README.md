@@ -88,49 +88,49 @@
 <img src="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology.png" 
      title="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology"
      alt="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology"     
-     height="100%" width="100%" style="max-width: 100%; max-height: 100%;"></img>
+     width="100%" height="750pt"></img>
 
 #### Kingdom Studio Version 0.1.9 Do you think this failed ? Do you know i create jowoscript from zero too
 <img src="Kingdom Studio Version 0.1.9.png" 
      title="Kingdom Studio Version 0.1.9"
      alt="Kingdom Studio Version 0.1.9"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
      
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 
 #### Kingdom Studio Version 0.1.8
 <img src="Kingdom Studio Version 0.1.8.png" 
      title="Kingdom Studio Version 0.1.8"
      alt="Kingdom Studio Version 0.1.8"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 
 #### JowoScript Native Code Version 8.7.6 in Chrome
 <img src="JowoScript Native Code Version 8.7.6.png" 
      title="JowoScript Native Code Version 8.7.6 in Chrome"
      alt="JowoScript Native Code Version 8.7.6 in Chrome"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 
 #### JowoScript Native Code Version 8.7.6 in Edge
 <img src="JowoScript Native Code Version 8.7.6 in edge.png" 
      title="JowoScript Native Code Version 8.7.6 in Edge"
      alt="JowoScript Native Code Version 8.7.6 in Edge"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 
 #### JowoScript Native Code Version 8.7.6 in FireFox
 <img src="JowoScript Native Code Version 8.7.6 in firefox.png" 
      title="JowoScript Native Code Version 8.7.6 in FireFox"
      alt="JowoScript Native Code Version 8.7.6 in FireFox"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 
 #### JowoScript Native Code Version 8.7.6 in Yandex
 <img src="JowoScript Native Code Version 8.7.6 in yandex.png" 
      title="JowoScript Native Code Version 8.7.6 in Yandex"
      alt="JowoScript Native Code Version 8.7.6 in Yandex"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
      
 ## PT JowoScript Technology Indonesia products list :
 <div align="justify">
@@ -598,17 +598,17 @@ VM460:20 Digits Doctoral Level : ╡╡╡╞╞╡╞╞╡╡╞╡╡╡╡�
 <img src="Example 1.png" 
      title="Screen Example 1"
      alt="Screen Example 1"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 #### File JowoScript Screen Encryption
 <img src="encryption.jpg" 
      title="Screen Encryption"
      alt="Screen Encryption"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 #### File JowoScript Screen Encryption RipeMD
 <img src="encryption RipeMD.jpg" 
      title="Screen Encryption RipeMD"
      alt="Screen Encryption RipeMD"     
-     height="100%" width="100%"></img>
+     width="100%" height="750pt"></img>
 #### File JowoKingdom Example
 ```html
  /*
