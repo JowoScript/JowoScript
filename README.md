@@ -69,6 +69,8 @@
 	<br><br>
 	Masuk kerja hasil orang dalam jangan banyak gaya kalo skill past pastan. Fakta bukan datanya
 	<br><br>
+	Persaingan kerja dan usaha makin berat sebelum menghina gue tidak berguna
+	<br><br>
 	Hasil karya lu DJ hanya buat onar atau keributan saja lewat music. Fakta bukan datanya
 </strong>
 <br><br>
