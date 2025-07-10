@@ -92,8 +92,8 @@
 <div align="justify">
 <ol>
 <li>JowoScript Technology Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript technology not for javascript</li>
-<li>Cant be read in Artificial Intelligence (AI)</li>
-<li>Smart automatic run Mainframe Computer</li>
+<li>Cant be read in Artificial Intelligence (AI) with license jowoscript programing language</li>
+<li>Can lock in native code with license jowoscript programing language</li>
 <li>Auto compile and dive deeper JowoScript of compile inside file extension *.js or *.jowo with type of application/jowoscript or text/jowoscript</li>
 <li>Auto compile and dive deeper JowoStyle of compile inside file extension *.jss or *.js3 with type of application/jowostyle or text/jowostyle</li>
 <li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li>
