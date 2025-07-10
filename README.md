@@ -99,6 +99,8 @@
 <li>Jowo Kingdom Machine product copyright is PT JowoScript Technology Indonesia</li>
 <li>Cant be read in Artificial Intelligence (AI) with license business jowoscript programing language</li>
 <li>Can lock in native code with license business jowoscript programing language</li>
+<li>Can lock in Kingdom Studio with license business kingdom studio</li>
+<li>Can lock in Jowo Kingdom Machine with license business jowo kingdom programing language</li>
 <li>Auto compile and dive deeper JowoScript of compile inside file extension *.js or *.jowo with type of application/jowoscript or text/jowoscript with license business jowoscript programing language</li>
 <li>Auto compile and dive deeper JowoStyle of compile inside file extension *.jss or *.js3 with type of application/jowostyle or text/jowostyle with license business jowoscript programing language</li>
 <li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li>
