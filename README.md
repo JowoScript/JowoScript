@@ -53,7 +53,7 @@
 	<br><br>
 	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue. Siapa yang pengangguran dan tidak berguna selama ini anda bukan gue
 	<br><br>
-	Jika pemerintah yang beli akan menjadi pemasukan besar untuk pemerintah
+	Price 75 Trilion Rupiah/Years for all license products
 </strong>
 <br><br>
 <strong>
