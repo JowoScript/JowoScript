@@ -92,7 +92,6 @@
 </ol>
 </div>
 
-
 #### Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion
 <img src="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology Revesion.png" 
      title="Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion"
