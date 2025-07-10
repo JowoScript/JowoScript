@@ -51,31 +51,7 @@
 	<br><br>
 	Contoh : Gaji dosen di universitas 10 juta perbuulan kalo pertahun 120 juta. SPP murid satu orang persemester 10 juta itu 6 bulan cukup berapa murid 12 mmurid hanya 6 bulan. Hitung saja berapa murid selama ini sekolah dari zaman dulu
 	<br><br>
-	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue. Siapa yang pengangguran dan tidak berguna selama ini anda bukan gue
-	<br><br>
-	Read my rules number or point 15 your will be die the future. Rules is a rule if stop blame me i can delete my rules point 15
-	<br><br>
-	I've been listening to music, it doesn't mean I'm stupid.
-	<br><br>
-	Orang lain yang akan membunuhmu dj paham sampai sini
-	<br><br>
-	Berteman sama orang orang tidak berguna untungnya apa ? Bacot lewat music doang malah rugi berteman sama dj. 
-	<br>
-	Sampai sekarang ada untungnya gue tanya bacotin gue lewat music ? Gak ada malah rugi gue masukin blacklist. Dapat apa dari DJ nya sampai sekarang selama ini provokator doang. Salah gaul end game
-	<br><br>
-	Semua ada kepentingan di akhir baik baik hidup yang maki maki gue lewat music dj. Mendengarkan lu bacot DJ semua orang tau siapa yang sampah
-	<br><br>
-	Belum paham dunia bisnis itu kejam baik baik ya yg maki maki gue
-	<br><br>
-	Sekarang siapa yang tidak berguna dan tidak produktif jelas bukan gue. gue yang buat bahasa pememgroman
-	<br><br>
-	Sudah miskin banyak bacot dan tidak ada skillnya dan masuk kerja saja hasil orang dalam paham kamu dj. Fakta bukan datanya
-	<br><br>
-	Masuk kerja hasil orang dalam jangan banyak gaya kalo skill past pastan. Fakta bukan datanya
-	<br><br>
-	Persaingan kerja dan usaha makin berat sebelum menghina gue tidak berguna
-	<br><br>
-	Hasil karya lu DJ hanya buat onar atau keributan saja lewat music. Fakta bukan datanya
+	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue. Siapa yang pengangguran dan tidak berguna selama ini anda bukan gue	
 </strong>
 <br><br>
 <strong>
