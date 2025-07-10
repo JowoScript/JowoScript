@@ -92,6 +92,7 @@
 <div align="justify">
 <ol>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
+<li>JowoScript programing language product copyright is PT JowoScript Technology Indonesia</li>
 <li>Cant be read in Artificial Intelligence (AI) with license business jowoscript programing language</li>
 <li>Can lock in native code with license business jowoscript programing language</li>
 <li>Auto compile and dive deeper JowoScript of compile inside file extension *.js or *.jowo with type of application/jowoscript or text/jowoscript with license business jowoscript programing language</li>
