@@ -70,6 +70,8 @@
 <div align="justify">
 <ol>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
+<li>Kingdom Studio Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of IDE technology for licensing business.</li>
+<li>Jowo Kingdom Machine Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of backend programing language for licensing business.</li>
 <li>PT JowoScript Technology Indonesia products list must be purchased license business to activate all the features</li>
 <li>Buying the license business product must be legal and registered under the law</li>
 <li>JowoScript programing language product copyright is PT JowoScript Technology Indonesia</li>
