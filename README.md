@@ -57,7 +57,7 @@
 	<br><br>
 	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue. Siapa yang pengangguran dan tidak berguna selama ini anda bukan gue
 	<br><br>
-	Price 75 Trillion Rupiah/Years for all licensed products
+	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time
 </strong>
 <br><br>
 <strong>
