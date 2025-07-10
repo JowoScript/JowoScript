@@ -92,6 +92,7 @@
 <div align="justify">
 <ol>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
+<li>PT JowoScript Technology Indonesia products list must be purchased to activate all the features</li>
 <li>JowoScript programing language product copyright is PT JowoScript Technology Indonesia</li>
 <li>Kingdom Studio product copyright is PT JowoScript Technology Indonesia</li>
 <li>Jowo Kingdom Machine product copyright is PT JowoScript Technology Indonesia</li>
@@ -105,8 +106,7 @@
 <li>Native platform (For example, a cross-platform application may run on Microsoft Mobile, Microsoft Windows, Android, z/OS, Linux OS, Unix OS, iOS and macOS)</li>
 <li>Smart automatic detection error in javascript engine with license business jowoscript programing language</li>
 <li>Smart automatic detection error in jowoscript engine with license business jowoscript programing language</li>
-<li>Handling array of objects and decided multiple of attributes and pseudo with license business jowoscript programing language</li>
-	
+<li>Handling array of objects and decided multiple of attributes and pseudo with license business jowoscript programing language</li>	
 </ol>
 </div>
 
