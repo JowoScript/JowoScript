@@ -53,7 +53,7 @@
 	<br><br>
 	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue. Siapa yang pengangguran dan tidak berguna selama ini anda bukan gue
 	<br><br>
-	Read my rules number or point 15 your will be die the future. Rules is a rule
+	Read my rules number or point 15 your will be die the future. Rules is a rule if stop blame me i can delete my rules point 15
 	<br><br>
 	I've been listening to music, it doesn't mean I'm stupid.
 	<br><br>
@@ -98,6 +98,7 @@
 <li>Kingdom Studio product copyright is PT JowoScript Technology Indonesia</li>
 <li>Jowo Kingdom Machine product copyright is PT JowoScript Technology Indonesia</li>
 <li>Cant be read in Artificial Intelligence (AI) with license business jowoscript programing language</li>
+<li>Cant be read in Artificial Intelligence (AI) with license business jowo kingdom programing language</li>
 <li>Can lock in native code with license business jowoscript programing language</li>
 <li>Can lock in Kingdom Studio with license business kingdom studio</li>
 <li>Can lock in Jowo Kingdom Machine with license business jowo kingdom programing language</li>
