@@ -44,8 +44,12 @@
 	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya	
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
+	<br>
+	Having a large capital for a product doesn't guarantee success. Experience is key.
 	<br><br>
-	Modal besar buat produk kalo gagal bayar hutang yang ada. Apa lagi hanya bisa niru bisnis gue
+	Modal besar buat produk kalo gagal bayar hutang yang ada. What's more, you can only copy my business
+	<br>
+	Huge capital to create products if you fail to pay existing debts.
 	<br><br>
 	Unversitas dan Yayasan wajib modal kalo mau beli Kingdom Studio. Selama ini memperkaya yayasan dan pihak kampus dan dari dulu mahasiswa bayar mahal sekolah ya dan termasuk gue juga dulu bayar sekolah tidak murah ya itu juga gratisan belajar pakai bahasa pemrograman nya tapi bayar sekolah mahal. Kita lihat kedepannya Univeristas dan yayasan mana tidak ada muridnya akan tertinggal perubahan zaman. Tidak usah sekolah di universitas dan yayasan yang tidak mau modal nanti juga pada tutup sekolahnya.
 	<br><br>
