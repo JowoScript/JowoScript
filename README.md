@@ -88,7 +88,7 @@
 </div>
 </div>
 
-## Support Technology :
+## Support Technology with license business :
 <div align="justify">
 <ol>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
