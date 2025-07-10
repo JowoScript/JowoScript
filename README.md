@@ -31,9 +31,9 @@
 <strong>
 	PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far
 	<br>
-	PT JowoScript Technology Indonesia products list must be purchased to activate all the features
+	PT JowoScript Technology Indonesia products list must be purchased license business to activate all the features
 	<br>
-	Buying the product must be legal and registered under the law
+	Buying the license business product must be legal and registered under the law
 	<br>
 	More information about jowoscript product development and kingdom studio product development.
 	<br>
@@ -92,8 +92,8 @@
 <div align="justify">
 <ol>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
-<li>PT JowoScript Technology Indonesia products list must be purchased to activate all the features</li>
-<li>Buying the product must be legal and registered under the law</li>
+<li>PT JowoScript Technology Indonesia products list must be purchased license business to activate all the features</li>
+<li>Buying the license business product must be legal and registered under the law</li>
 <li>JowoScript programing language product copyright is PT JowoScript Technology Indonesia</li>
 <li>Kingdom Studio product copyright is PT JowoScript Technology Indonesia</li>
 <li>Jowo Kingdom Machine product copyright is PT JowoScript Technology Indonesia</li>
