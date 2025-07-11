@@ -41,7 +41,9 @@
 	<br>
 	Baru 3 tahun kita lihat banyak perusahaan tutup. Bacot sama yang pengalaman
 	<br>
-	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya	
+	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya
+	<br>
+	Pecatin saja tidak bisa kerja dan tidak disiplin kerja. biar jadi pengangguran dan tidak berguna 
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
@@ -50,12 +52,6 @@
 	Modal besar buat produk kalo gagal bayar hutang yang ada. Terlebih lagi, Anda hanya dapat meniru bisnis saya
 	<br>
 	Huge capital to create products if you fail to pay existing debts. What's more, you can only copy my business
-	<br><br>
-	Unversitas dan Yayasan wajib modal kalo mau beli Kingdom Studio. Selama ini memperkaya yayasan dan pihak kampus dan dari dulu mahasiswa bayar mahal sekolah ya dan termasuk gue juga dulu bayar sekolah tidak murah ya itu juga gratisan belajar pakai bahasa pemrograman nya tapi bayar sekolah mahal. Kita lihat kedepannya Univeristas dan yayasan mana tidak ada muridnya akan tertinggal perubahan zaman. Tidak usah sekolah di universitas dan yayasan yang tidak mau modal nanti juga pada tutup sekolahnya.
-	<br><br>
-	Contoh : Gaji dosen di universitas 10 juta perbuulan kalo pertahun 120 juta. SPP murid satu orang persemester 10 juta itu 6 bulan cukup berapa murid 12 mmurid hanya 6 bulan. Hitung saja berapa murid selama ini sekolah dari zaman dulu
-	<br><br>
-	Selama ini mahasiswa jadi sapi perah dan setelah lulus sekolah jadi pengangguran itu banyak termasuk gue di buat begituh ya dulu. Selama ini gue punya perusahaan sendiri dan selama ini tidak perlu kerja sama orang, gue tetap berkembang produk gue. Siapa yang pengangguran dan tidak berguna selama ini anda bukan gue
 	<br><br>
 	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time
 </strong>
