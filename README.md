@@ -53,7 +53,7 @@
 	<br>
 	Huge capital to create products if you fail to pay existing debts. What's more, you can only copy my business
 	<br><br>
-	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time
+	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time, Back to Legal Rights of Technology Creators point number 7
 </strong>
 <br><br>
 <strong>
