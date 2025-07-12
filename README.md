@@ -33,9 +33,9 @@
 	<br>
 	PT JowoScript Technology Indonesia tidak menggunakan uang pemerintah dan tidak menggunakan uang investor dalam membuat semua produknya selama ini
 	<br><br>
-	PT JowoScript Technology Indonesia products list must be purchased license business to activate all the features
+	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features.
 	<br>
-	Daftar produk PT JowoScript Technology Indonesia harus membeli lisensi bisnis untuk mengaktifkan semua fitur
+	Daftar produk PT JowoScript Technology Indonesia tidak gratis dan Anda harus membeli lisensi bisnis untuk mengaktifkan semua fitur.
 	<br><br>
 	Buying the license business product must be legal and registered under the law
 	<br>
