@@ -32,9 +32,11 @@
 	PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far
 	<br>
 	PT JowoScript Technology Indonesia tidak menggunakan uang pemerintah dan tidak menggunakan uang investor dalam membuat semua produknya selama ini
-	<br>
+	<br><br>
 	PT JowoScript Technology Indonesia products list must be purchased license business to activate all the features
 	<br>
+	Daftar produk PT JowoScript Technology Indonesia harus membeli lisensi bisnis untuk mengaktifkan semua fitur
+	<br><br>
 	Buying the license business product must be legal and registered under the law
 	<br>
 	More information about jowoscript product development and kingdom studio product development.
