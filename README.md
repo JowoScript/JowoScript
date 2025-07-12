@@ -35,7 +35,7 @@
 	<br><br>
 	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair
 	<br>
-	Daftar produk PT JowoScript Technology Indonesia tidak gratis dan Anda harus membeli lisensi bisnis untuk mengaktifkan semua fitur. Ini semua adil
+	Daftar produk PT JowoScript Technology Indonesia tidak gratis dan Anda harus membeli lisensi bisnis untuk mengaktifkan semua fitur. Ini semua adil. Derita anda jadi pemales mana ada enaknya doang ya
 	<br><br>
 	Buying the license business product must be legal and registered under the law
 	<br>
