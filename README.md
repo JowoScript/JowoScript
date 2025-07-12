@@ -47,7 +47,7 @@
 	<br>
 	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya
 	<br>
-	Pecatin saja tidak bisa kerja dan tidak disiplin kerja. biar jadi pengangguran dan tidak berguna 
+	pecatin saja tidak bisa kerja dan tidak disiplin kerja dan tidak ada hasil kerjanya. . biar jadi pengangguran dan tidak berguna 
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
