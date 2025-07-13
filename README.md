@@ -31,6 +31,8 @@
 <br><br>
 <strong>
 	Biar paham jadi pengusaha itu gimana ya biasa di manja mana bisa seperti gue. Apa lagi kerja lewat orang dalam selama ini
+	<br>
+	Siapa yang tidak berguna akan terlihat nantinya karena persaingan makin berat kedepannya
 </strong>
 <br>
 <br>
