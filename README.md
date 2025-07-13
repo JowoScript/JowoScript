@@ -20,11 +20,13 @@
 </strong>
 <br>
 <strong>
-	only one god name with always behind me and protect me is Allah SWT
-</strong>
-<br>
-<strong>
 	Muhammad Nurcahyo Pratomo develop JowoScript and Jowo Kingdom Machine and Kingdom Studio it every day behind the scenes and the price goes up with every new version.
+</strong>
+<br><br>
+<strong>
+	no company mergers. only product licenses may be purchased
+	<br>
+	tidak ada penggabungan perusahaan. hanya boleh beli lisensi produk 
 </strong>
 <br>
 <br>
