@@ -28,6 +28,10 @@
 	<br>
 	tidak ada penggabungan perusahaan. hanya boleh beli lisensi produk 
 </strong>
+<br><br>
+<strong>
+	Biar paham jadi pengusaha itu gimana ya biasa di manja mana bisa seperti gue. Apa lagi kerja lewat orang dalam selama ini
+</strong>
 <br>
 <br>
 <strong>
