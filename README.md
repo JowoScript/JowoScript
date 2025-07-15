@@ -65,7 +65,7 @@
 	<br>
 	Sombong tidak masalah asal pintar dan sebaliknya kalo bodoh di ketawain publik world wide.
 	<br>
-	Disorot world wide selama ini gue
+	Disorot world wide selama ini gue kalo goblok tidak mungkin di sorot world wide
 	<br>
 	Mampu buat sendiri di bilang sombong namanya percaya diri tinggi dan terbukti siapa yang tidak berguna
 	<br><br>
