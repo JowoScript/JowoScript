@@ -64,6 +64,8 @@
 	Anda kerja pasti ada target dan laporan bukan. Jangan banyak bacot kalo bodoh. Makan tuh aturan gue buat
 	<br>
 	Sombong tidak masalah asal pintar dan sebaliknya kalo bodoh di ketawain publik world wide.
+	<br>
+	Mampu buat sendiri di bilang sombong. Makane pintar jangan goblok
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
