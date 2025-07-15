@@ -77,7 +77,7 @@
 	<br><br>
 	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. 
 	<br>
-	Kalo tidak mampu ya tidak usah nikah. Siapa yang bodoh. Menikah itu harus berani tanggung jawab paham sampai sini. Masa perlu gue ajarin juga 
+	Kalo tidak mampu ya tidak usah nikah dan tidak usah pacaran dulu. Siapa yang bodoh. Menikah itu harus berani tanggung jawab paham sampai sini. Masa perlu gue ajarin juga 
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
