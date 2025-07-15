@@ -70,6 +70,8 @@
 	Mampu buat sendiri di bilang sombong namanya percaya diri tinggi dan terbukti siapa yang tidak berguna
 	<br>
 	Anda mampu buat sendiri baru bacot seperti gue
+	<br>
+	Anda kerja sama orang kapan pun bisa kena pecat paham ya jadi jangan banyak gaya. Bacotan pengalaman di pegang
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
