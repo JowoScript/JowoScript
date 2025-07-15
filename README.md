@@ -53,13 +53,13 @@
 	<br>
 	Your can visited my personal facebook
 	<br>
-	Baru 3 tahun kita lihat banyak perusahaan tutup. Bacot sama yang pengalaman
-	<br>
-	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya
+	Baru 3 tahun kita lihat banyak perusahaan tutup. Bacot sama yang pengalaman	
 	<br>
 	pecatin saja tidak bisa kerja dan tidak disiplin kerja dan tidak ada hasil kerjanya. . biar jadi pengangguran dan tidak berguna 
 	<br><br>
 	Anda baru bisa buat website dan Ai kapanpun bisa di gantikan. Jangan banyak bacot kalo bodoh
+	<br>
+	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
