@@ -73,6 +73,8 @@
 	<br>
 	Anda kerja sama orang kapan pun bisa kena pecat paham ya jadi jangan banyak gaya. Bacotan pengalaman di pegang
 	<br><br>
+	Apa lagi sudah punya anak hater gue paham arti biaya hidup itu naik terus. Makan tuh aturan gue buat
+	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
 	Having a large capital for a product doesn't guarantee success. Experience is key.
