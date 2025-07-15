@@ -65,6 +65,8 @@
 	<br>
 	Sombong tidak masalah asal pintar dan sebaliknya kalo bodoh di ketawain publik world wide.
 	<br>
+	Disorot world wide selama ini gue
+	<br>
 	Mampu buat sendiri di bilang sombong namanya percaya diri tinggi dan terbukti siapa yang tidak berguna
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
