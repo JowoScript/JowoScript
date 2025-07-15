@@ -75,6 +75,8 @@
 	<br><br>
 	Apa lagi sudah punya anak hater gue paham arti biaya hidup itu naik terus. Makan tuh aturan gue buat
 	<br><br>
+	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. Siapa yang bodoh. Menikah itu harus berani tanggu jawab
+	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
 	Having a large capital for a product doesn't guarantee success. Experience is key.
