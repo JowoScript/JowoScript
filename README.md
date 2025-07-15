@@ -75,7 +75,9 @@
 	<br><br>
 	Apa lagi sudah punya anak hater gue paham arti biaya hidup itu naik terus. Makan tuh aturan gue buat
 	<br><br>
-	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. Siapa yang bodoh. Menikah itu harus berani tanggu jawab
+	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. 
+	<br>
+	Siapa yang bodoh. Menikah itu harus berani tanggung jawab paham sampai sini. Masa perlu gue ajarin juga 
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
