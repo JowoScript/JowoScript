@@ -57,7 +57,7 @@
 	<br>
 	pecatin saja tidak bisa kerja dan tidak disiplin kerja dan tidak ada hasil kerjanya. . biar jadi pengangguran dan tidak berguna 
 	<br><br>
-	Anda baru bisa buat website dan Ai kapanpun bisa di gantikan. Jangan banyak bacot kalo bodoh
+	Anda baru bisa buat website dan Ai kapanpun bisa di gantikan. Jangan banyak bacot kalo bodoh. Makan tuh aturan gue buat
 	<br>
 	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya
 	<br><br>
