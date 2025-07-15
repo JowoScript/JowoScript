@@ -68,6 +68,8 @@
 	Disorot world wide selama ini gue kalo goblok tidak mungkin di sorot world wide. Simple logic
 	<br>
 	Mampu buat sendiri di bilang sombong namanya percaya diri tinggi dan terbukti siapa yang tidak berguna
+	<br>
+	Anda mampu buat sendiri baru bacot seperti gue
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
