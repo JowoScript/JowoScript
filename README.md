@@ -62,6 +62,8 @@
 	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya
 	<br>
 	Anda kerja pasti ada target dan laporan bukan. Jangan banyak bacot kalo bodoh. Makan tuh aturan gue buat
+	<br>
+	Sombong tidak masalah asal pintar
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
