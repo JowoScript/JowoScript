@@ -58,6 +58,8 @@
 	Siapa yang suka markup keuangan dan tidak ada hasil kerjanya itu lah tikus tikus
 	<br>
 	Kalo bersih kenapa takut kecuali perusahaan milik sendiri mau rugi atau untung tanggung sendiri
+	<br>
+	Gimana gue cerdas bukan :)
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
