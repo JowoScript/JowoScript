@@ -81,7 +81,7 @@
 	<br>
 	Skill biasa biasa saja jadi pengangguran susah ya bicara apa apa backingan kalo goblok sadar diri. The checkmate
 	<br>
-	karena paham siapa yang butuh di akhir bukan gue
+	karena paham persaingan industri kedepannya itu berat
 	<br><br>
 	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. 
 	<br>
