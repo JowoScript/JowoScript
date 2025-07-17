@@ -52,42 +52,10 @@
 	More information about jowoscript product development and kingdom studio product development.
 	<br>
 	Your can visited my personal facebook
-	<br>
-	Baru 3 tahun kita lihat banyak perusahaan tutup. Bacot sama yang pengalaman	
-	<br>
-	pecatin saja tidak bisa kerja dan tidak disiplin kerja dan tidak ada hasil kerjanya. . biar jadi pengangguran dan tidak berguna 
 	<br><br>
-	Anda baru bisa buat website dan Ai kapanpun bisa di gantikan. Jangan banyak bacot kalo bodoh. Makan tuh aturan gue buat
+	Cara mudah membersihkan tikus tikus di pemerintahaan atau perusahaan bisa di lihat dari laporan keuangan setiap istansi pemerintah atau perusahaan.
 	<br>
-	Anda baru kerja dan gue sudah pernah kerja dulu. Paham ya
-	<br>
-	Anda kerja pasti ada target dan laporan bukan. Jangan banyak bacot kalo bodoh. Makan tuh aturan gue buat
-	<br>
-	Sombong tidak masalah asal pintar dan sebaliknya kalo bodoh di ketawain publik world wide.
-	<br>
-	Disorot world wide selama ini gue kalo goblok tidak mungkin di sorot world wide. Simple logic
-	<br>
-	Mampu buat sendiri di bilang sombong namanya percaya diri tinggi dan terbukti siapa yang tidak berguna
-	<br>
-	Anda mampu buat sendiri baru bacot seperti gue
-	<br>
-	Anda kerja sama orang kapan pun bisa kena pecat paham ya jadi jangan banyak gaya. Bacotan pengalaman di pegang
-	<br><br>
-	Apa lagi sudah punya anak hater gue paham arti biaya hidup itu naik terus. Makan tuh aturan gue buat
-	<br><br>
-	Zaman now orang jadi pengangguran salahkan pemerintah minimal jadi penguasaha kalo tidak mau jadi pengangguran 
-	<br>
-	seperti gue cerdas mampu sendiri tidak minta ke pemerintah seperti kebanyakaan orang fakta
-	<br>
-	Skill biasa biasa saja jadi pengangguran susah ya bicara apa apa backingan kalo goblok sadar diri. The checkmate
-	<br>
-	karena paham persaingan industri kedepannya itu berat
-	<br><br>
-	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. 
-	<br>
-	Kalo tidak mampu ya tidak usah nikah dan tidak usah pacaran dulu. Siapa yang bodoh. Menikah itu harus berani tanggung jawab paham sampai sini. Masa perlu gue ajarin juga 
-	<br>
-	Punya anak terus kasih makan batu apa kalo tidak di nafkahkan ? goblok hahahahaha
+	Siapa yang suka markup keuangan dan tidak ada hasil kerjanya itu lah tikus tikus
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
