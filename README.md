@@ -77,7 +77,9 @@
 	<br><br>
 	Zaman now orang jadi pengangguran salahkan pemerintah minimal jadi penguasaha kalo tidak mau jadi pengangguran 
 	<br>
-	seperti gue cerdas mampu sendiri tidak minta ke pemerintah seperti kebanyakaan orang 
+	seperti gue cerdas mampu sendiri tidak minta ke pemerintah seperti kebanyakaan orang fakta
+	<br>
+	Skill biasa biasa saja jadi pengangguran susah ya bicara apa apa backingan kalo goblok sadar diri
 	<br>
 	karena paham siapa yang butuh di akhir bukan gue
 	<br><br>
