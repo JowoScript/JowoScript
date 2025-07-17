@@ -77,7 +77,9 @@
 	<br><br>
 	Zaman now orang jadi pengangguran salahkan pemerintah minimal jadi penguasaha kalo tidak mau jadi pengangguran 
 	<br>
-	seperti gue cerdas mampu sendiri tidak minta ke pemerintah seperti kebanyakaan orang karena paham siapa yang butuh di akhir bukan gue
+	seperti gue cerdas mampu sendiri tidak minta ke pemerintah seperti kebanyakaan orang karena paham 
+	<br>
+	siapa yang butuh di akhir bukan gue
 	<br><br>
 	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. 
 	<br>
