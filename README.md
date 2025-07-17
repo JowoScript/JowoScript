@@ -76,8 +76,8 @@
 	Apa lagi sudah punya anak hater gue paham arti biaya hidup itu naik terus. Makan tuh aturan gue buat
 	<br><br>
 	Zaman now orang jadi pengangguran salahkan pemerintah minimal jadi penguasaha kalo tidak mau jadi pengangguran 
-	<br><br>
-	seperti gue cerdas mampu sendiri tidak minta ke pemerintah
+	<br>
+	seperti gue cerdas mampu sendiri tidak minta ke pemerintah karena paham siapa yang butuh di akhir bukan gue
 	<br><br>
 	Zaman now orang maunya menikah dan buat anak saja tapi tidak mampu nafkahi jangan salahkan orang lain. 
 	<br>
