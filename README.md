@@ -56,6 +56,8 @@
 	Cara mudah membersihkan tikus tikus di pemerintahaan atau perusahaan bisa di lihat dari laporan keuangan setiap istansi pemerintah atau perusahaan.
 	<br>
 	Siapa yang suka markup keuangan dan tidak ada hasil kerjanya itu lah tikus tikus
+	<br>
+	Kalo bersih kenapa takut kecuali perusahaan milik sendiri mau rugi atau untung tanggung sendiri
 	<br><br>
 	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
 	<br>
