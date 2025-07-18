@@ -42,6 +42,8 @@
 	<br>
 	Hanya gue sendiri bisa kembangkan produk gue buat tanya yang sudah pengalaman coding puluhan tahun
  	<br>
+	DJ nya selama ini hanya jadi provokator dan fitnah saja siapa yang dapat pahala banyak dan dosa banyak
+	<br>
 	The checkmate forever baby
 </strong>
 <br><br>
