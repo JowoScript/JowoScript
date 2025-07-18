@@ -32,7 +32,7 @@
 	<br>
 	Orang pintar dan cerdas belum tentu miskin kedepanya sudah banyak contoh dari pendahulunya
 	<br>
-	Apa lagi banyak sudah di gantikan oleh Ai
+	Apa lagi banyak sudah di gantikan oleh Ai (Pion gue saja sudah stress)
 </strong>
 <br><br>
 <strong>
