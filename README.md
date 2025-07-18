@@ -26,7 +26,9 @@
 <strong>
 	no company mergers. only product licenses may be purchased
 	<br>
-	tidak ada penggabungan perusahaan. hanya boleh beli lisensi produk 
+	tidak ada penggabungan perusahaan. hanya boleh beli lisensi produk
+	<br>
+	Orang kaya bisa miskin sudah banyak contohnya. Orang pintar dan cerdas belum tentu miskin kedepanya sudah banyak contoh dari pendahulunya
 </strong>
 <br><br>
 <strong>
