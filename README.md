@@ -38,6 +38,8 @@
 	<br>
 	Jadi presiden dan wakil presiden hanya sementara sudah banyak contoh dari pendahulunya (10 tahun tidak lebih)
 	<br>
+	Regulasi kekuasaan bisa berubah berubah setiap penggantian presiden  (10 tahun tidak lebih)
+	<br>
 	The checkmate forever baby
 </strong>
 <br><br>
