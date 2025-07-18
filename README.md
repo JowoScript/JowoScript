@@ -32,7 +32,9 @@
 	<br>
 	Orang pintar dan cerdas belum tentu miskin kedepanya sudah banyak contoh dari pendahulunya
 	<br>
-	Apa lagi banyak pekerjaan sudah di gantikan oleh Ai kedepannya (Pion gue saja sudah stress)
+	Apa lagi banyak pekerjaan sudah di gantikan oleh Ai kedepannya
+	<br>
+	Jadi pejabat hanya sementara sudah banyak contoh dari pendahulunya
 </strong>
 <br><br>
 <strong>
