@@ -31,6 +31,8 @@
 	Orang kaya bisa miskin sudah banyak contoh dari pendahulunya
 	<br>
 	Orang pintar dan cerdas belum tentu miskin kedepanya sudah banyak contoh dari pendahulunya
+	<br>
+	Apa lagi banyak sudah di gantikan oleh Ai
 </strong>
 <br><br>
 <strong>
