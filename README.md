@@ -28,7 +28,9 @@
 	<br>
 	tidak ada penggabungan perusahaan. hanya boleh beli lisensi produk
 	<br>
-	Orang kaya bisa miskin sudah banyak contohnya. Orang pintar dan cerdas belum tentu miskin kedepanya sudah banyak contoh dari pendahulunya
+	Orang kaya bisa miskin sudah banyak contoh dari pendahulunya
+	<br>
+	Orang pintar dan cerdas belum tentu miskin kedepanya sudah banyak contoh dari pendahulunya
 </strong>
 <br><br>
 <strong>
