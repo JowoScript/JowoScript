@@ -10,7 +10,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always productive
 	<br>
-	everything product list is process because build from zero with experience
+	everything product list is process because build from zero with experience and love hahahaha
 </strong>
 <br><br>
 <strong>
