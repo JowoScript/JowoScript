@@ -9,6 +9,8 @@
 <div align="center">
 <strong>
 	PT JowoScript Technology Indonesia - Always productive
+	<br>
+	everything product list is process because build from zero with experience
 </strong>
 <br><br>
 <strong>
