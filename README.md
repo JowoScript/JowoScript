@@ -40,7 +40,7 @@
 	<br>
 	Regulasi kekuasaan bisa berubah berubah setiap penggantian presiden  (10 tahun tidak lebih)
 	<br>
-	Hanya gue sendiri bisa kembangkan produk gue buat
+	Hanya gue sendiri bisa kembangkan produk gue buat tanya yang sudah pengalaman coding puluhan tahun
  	<br>
 	The checkmate forever baby
 </strong>
