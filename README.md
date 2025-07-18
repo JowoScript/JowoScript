@@ -35,6 +35,8 @@
 	Apa lagi banyak pekerjaan sudah di gantikan oleh Ai kedepannya
 	<br>
 	Jadi pejabat hanya sementara sudah banyak contoh dari pendahulunya
+	<br>
+	Jadi presiden dan wakil presiden hanya sementara sudah banyak contoh dari pendahulunya (10 tahun tidak lebih)
 </strong>
 <br><br>
 <strong>
