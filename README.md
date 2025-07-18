@@ -37,6 +37,8 @@
 	Jadi pejabat hanya sementara sudah banyak contoh dari pendahulunya
 	<br>
 	Jadi presiden dan wakil presiden hanya sementara sudah banyak contoh dari pendahulunya (10 tahun tidak lebih)
+	<br>
+	The checkmate forever baby
 </strong>
 <br><br>
 <strong>
