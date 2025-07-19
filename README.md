@@ -23,6 +23,8 @@
 	Pemilik perusahaan bekerja sendiri selama ini untuk membuat produk
 	<br>
 	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri
+	<br>
+	Di tonton world wide i know
 </strong>
 <br><br>
 <strong>
