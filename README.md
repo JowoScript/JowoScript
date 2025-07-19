@@ -28,13 +28,11 @@
 	<br>
 	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan dan istansi yang di manja di modali
 	<br>
-	Badan besar saja bisa tumbang. Lu tidak perlu tau ya dek
-	<br>
-	Badan besar belum tentu bisa bela diri apa lagi badan kecil tidak bisa bela diri kelar sama gue
-	<br>
 	Kalo bukan negara hukum gue juga punya senjata. Jadi tidak perlu test yang pengalaman
  	<br>
-	Kalo tidak di modali mana bisa seperti gue selama ini buat produk sendiri biar paham ya
+	Kalo bukan negara hukum gue juga punya senjata. Jadi tidak perlu test yang pengalaman. 
+	<br>
+	Paham sampai sini siapa yang jadi pengangguran makin berat bukan persaingan dunia kerja
 	<br>
 	Diamkan saja nikah muda biar paham biaya hidup gimana. 
 	<br>
