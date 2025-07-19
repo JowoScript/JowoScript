@@ -13,6 +13,10 @@
 	Everything PT JowoScript Technology Indonesia product listing is process because build from zero
 	<br>
 	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features
+	<br>
+	PT JowoScript Technology Indonesia does not open job vacancies in any country
+	<br>
+	PT JowoScript Technology Indonesia tidak membuka lowongan pekerjaan di negara mana pun
 </strong>
 <br><br>
 <strong>
@@ -68,6 +72,10 @@
 	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair
 	<br>
 	Daftar produk PT JowoScript Technology Indonesia tidak gratis dan Anda harus membeli lisensi bisnis untuk mengaktifkan semua fitur. Ini semua adil. Derita anda jadi pemales mana ada enaknya doang ya
+	<br>
+	PT JowoScript Technology Indonesia does not open job vacancies in any country
+	<br>
+	PT JowoScript Technology Indonesia tidak membuka lowongan pekerjaan di negara mana pun
 	<br><br>
 	Buying the license business product must be legal and registered under the law
 	<br>
