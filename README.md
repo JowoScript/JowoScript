@@ -28,8 +28,6 @@
 	<br>
 	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan dan istansi yang di manja di modali
 	<br>
-	Kalo bukan negara hukum gue juga punya senjata. Jadi tidak perlu test yang pengalaman
- 	<br>
 	Kalo bukan negara hukum gue juga punya senjata. Jadi tidak perlu test yang pengalaman. 
 	<br>
 	Paham sampai sini siapa yang jadi pengangguran dan tidak berguna
