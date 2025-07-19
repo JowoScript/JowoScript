@@ -28,7 +28,7 @@
 	<br>
 	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan dan istansi yang di manja di modali
 	<br>
-	Gue ke senggol tukang pukul gue lebih sadis. Lu tidak perlu tau ya dek
+	Badan besar saja bisa tumbang. Mau test
 	<br>
 	Kalo tidak di modali mana bisa seperti gue selama ini buat produk sendiri biar paham ya
 	<br>
