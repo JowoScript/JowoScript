@@ -26,6 +26,8 @@
 	<br>
 	Tidak bisa kerja di pecat pecatin saja biar merasakan gimana kerja. Kontrak kerja saja semuanya supaya tidak jadi beban keuangan perusahaan juga
 	<br>
+	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan yang di manja di modali
+	<br>
 	Di tonton world wide i know
 </strong>
 <br><br>
