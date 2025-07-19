@@ -28,6 +28,8 @@
 	<br>
 	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan yang di manja di modali
 	<br>
+	Kalo tidak di modali mana bisa seperti gue selama ini buat produk sendiri biar paham ya
+	<br>
 	Di tonton world wide i know
 </strong>
 <br><br>
