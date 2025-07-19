@@ -28,6 +28,8 @@
 	<br>
 	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan dan istansi yang di manja di modali
 	<br>
+	Dari hasil pembelian lisensi produk gue bisa hire pasukan dan pegawai. Gue bukan orang bodoh ya
+	<br>
 	Kalo tidak di modali mana bisa seperti gue selama ini buat produk sendiri biar paham ya
 	<br>
 	Diamkan saja nikah muda biar paham biaya hidup gimana. 
