@@ -24,7 +24,7 @@
 	<br>
 	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri
 	<br>
-	Tidak bisa kerja di pecat pecatin saja biar merasakan gimana kerja. Kontrak kerja saja semuanya
+	Tidak bisa kerja di pecat pecatin saja biar merasakan gimana kerja. Kontrak kerja saja semuanya supaya tidak jadi beban keuangan perusahaan juga
 	<br>
 	Di tonton world wide i know
 </strong>
