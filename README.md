@@ -30,6 +30,8 @@
 	<br>
 	Badan besar saja bisa tumbang. Lu tidak perlu tau ya dek
 	<br>
+	Badan besar belum tentu bisa bela diri apa lagi badan kecil tidak bisa bela diri kelar sama gue
+ 	<br>
 	Kalo tidak di modali mana bisa seperti gue selama ini buat produk sendiri biar paham ya
 	<br>
 	Diamkan saja nikah muda biar paham biaya hidup gimana. 
