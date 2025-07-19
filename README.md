@@ -17,6 +17,10 @@
 	PT JowoScript Technology Indonesia does not open job vacancies in any country
 	<br>
 	PT JowoScript Technology Indonesia tidak membuka lowongan pekerjaan di negara mana pun
+	<br>
+	The company owner has been working alone all this time to make the product
+	<br>
+	Pemilik perusahaan bekerja sendiri selama ini untuk membuat produk
 </strong>
 <br><br>
 <strong>
