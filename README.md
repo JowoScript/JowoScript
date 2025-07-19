@@ -21,6 +21,8 @@
 	The company owner has been working alone all this time to make the product
 	<br>
 	Pemilik perusahaan bekerja sendiri selama ini untuk membuat produk
+	<br>
+	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri
 </strong>
 <br><br>
 <strong>
