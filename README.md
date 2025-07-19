@@ -32,7 +32,7 @@
  	<br>
 	Kalo bukan negara hukum gue juga punya senjata. Jadi tidak perlu test yang pengalaman. 
 	<br>
-	Paham sampai sini siapa yang jadi pengangguran makin berat bukan persaingan dunia kerja
+	Paham sampai sini siapa yang jadi pengangguran dan tidak berguna
 	<br>
 	Diamkan saja nikah muda biar paham biaya hidup gimana. 
 	<br>
