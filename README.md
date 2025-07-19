@@ -31,6 +31,8 @@
 	Badan besar saja bisa tumbang. Lu tidak perlu tau ya dek
 	<br>
 	Badan besar belum tentu bisa bela diri apa lagi badan kecil tidak bisa bela diri kelar sama gue
+	<br>
+	Kalo bukan negara hukum semua orang punya senjata. Jadi tidak perlu test yang pengalaman
  	<br>
 	Kalo tidak di modali mana bisa seperti gue selama ini buat produk sendiri biar paham ya
 	<br>
