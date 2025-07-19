@@ -24,6 +24,8 @@
 	<br>
 	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri
 	<br>
+	Tidak bisa kerja di pecat pecatin saja biar merasakan gimana kerja
+	<br>
 	Di tonton world wide i know
 </strong>
 <br><br>
