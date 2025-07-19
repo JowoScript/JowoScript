@@ -30,7 +30,7 @@
 	<br>
 	Kalo tidak di modali mana bisa seperti gue selama ini buat produk sendiri biar paham ya
 	<br>
-	Diamkan saja nikah muda biar paham biaya hidup gimana
+	Diamkan saja nikah muda biar paham biaya hidup gimana. Anak orang punya masih bisa mikir ya gimana yang di bawahnya kalo tidak mau mikir
  	<br>
 	Di tonton world wide i know
 </strong>
