@@ -24,8 +24,6 @@
 	<br>
 	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri
 	<br>
-	Tidak bisa kerja di pecat pecatin saja biar merasakan gimana kerja. Kontrak kerja saja semuanya supaya tidak jadi beban keuangan perusahaan juga
-	<br>
 	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan dan istansi yang di manja di modali
 	<br>
 	Kalo bukan negara hukum gue juga punya senjata. Jadi tidak perlu test yang pengalaman. 
