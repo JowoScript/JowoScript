@@ -30,6 +30,8 @@
 	<br>
 	Ada pasalnya dan dasar hukumnya tidak bisa kerja itu di pecat. The checkmate
 	<br>
+	Kerja itu yang benar ya. Pecat jadi pengangguran dan tidak berguna. hahahhaha
+	<br>
 	Tidak ada di manapun tidak bisa kerja atau tidak kerja mau minta gajian dan tunjangan
 	<br>
 	Lulusan S3 saja harvad bisnis saja paham persaingan makin berat dan lulus S3 saja pengangguran juga banyak mau lulusan SD dan SMA tidak di anggap
