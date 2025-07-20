@@ -28,7 +28,7 @@
 	<br>
 	Tidak bisa kerja pecat pecatin. Talk blablabla. The checkmate. Hahahahaha
 	<br>
-	Tidak ada di manapun tidak bisa kerja mau minta gajian dan tunjangan
+	Tidak ada di manapun tidak bisa kerja atau tidak kerja mau minta gajian dan tunjangan
 	<br>
 	Lulusan S3 saja harvad bisnis saja paham persaingan makin berat dan lulus S3 saja pengangguran juga banyak mau lulusan SD dan SMA tidak di anggap
  	<br>
