@@ -24,15 +24,7 @@
 	<br>
 	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri
 	<br>
-	Hire pegawai itu mudah kalo sekarang sendiri saja dulu saingan gue perusahaan dan istansi yang di manja di modali
-	<br>
-	Kalo bukan negara hukum gue juga punya senjata. Jadi tidak perlu test yang pengalaman. 
-	<br>
-	Paham sampai sini siapa yang jadi pengangguran dan tidak berguna
-	<br>
-	Diamkan saja nikah muda biar paham biaya hidup gimana. 
-	<br>
-	Anak orang punya masih bisa mikir ya gimana yang di bawahnya kalo tidak mau mikir
+	Sifat setan salah satunya menjadi pemales dan siapa jadi pemales sekarang.
 	<br>
 	Lulusan S3 saja harvad bisnis saja paham persaingan makin berat dan lulus S3 saja pengangguran juga banyak mau lulusan SD dan SMA tidak di anggap
  	<br>
