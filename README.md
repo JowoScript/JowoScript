@@ -28,7 +28,7 @@
 	<br>
 	Tidak bisa kerja pecat pecatin. Talk blablabla. The checkmate. Hahahahaha
 	<br>
-	Ada pasalnya tidak bisa kerja itu di pecat
+	Ada pasalnya dan dasar hukumnya tidak bisa kerja itu di pecat. The checkmate
 	<br>
 	Tidak ada di manapun tidak bisa kerja atau tidak kerja mau minta gajian dan tunjangan
 	<br>
