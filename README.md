@@ -26,7 +26,7 @@
 	<br>
 	Sifat setan salah satunya menjadi pemales dan siapa jadi pemales sekarang.
 	<br>
-	Tidak bisa kerja pecat pecatin. Talk blablabla. The checkmate
+	Tidak bisa kerja pecat pecatin. Talk blablabla. The checkmate. Hahahahaha
 	<br>
 	Lulusan S3 saja harvad bisnis saja paham persaingan makin berat dan lulus S3 saja pengangguran juga banyak mau lulusan SD dan SMA tidak di anggap
  	<br>
