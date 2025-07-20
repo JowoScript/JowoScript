@@ -22,15 +22,13 @@
 	<br>
 	Pemilik perusahaan bekerja sendiri selama ini untuk membuat produk
 	<br>
-	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri
-	<br>
-	Sifat setan salah satunya menjadi pemales dan siapa jadi pemales sekarang.
+	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri buatnya dari zero
 	<br>
 	Tidak bisa kerja pecat pecatin. Talk blablabla. The checkmate. Hahahahaha
 	<br>
 	Ada pasalnya dan dasar hukumnya tidak bisa kerja itu di pecat. The checkmate
 	<br>
-	Kerja itu yang benar ya. Pecat jadi pengangguran dan tidak berguna. hahahhaha
+	Kerja itu yang benar ya. Pecat in saja biar jadi pengangguran dan tidak berguna. hahahhaha
 	<br>
 	Tidak ada di manapun tidak bisa kerja atau tidak kerja mau minta gajian dan tunjangan
 	<br>
