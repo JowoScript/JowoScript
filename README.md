@@ -26,6 +26,8 @@
 	Buying the license business product must be legal and registered under the law
 	<br><br>
 	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time, Back to Legal Rights of Technology Creators point number 7
+	<br><br>
+	Tidak mampu beli ya nonton saja hahahahaha
 </strong>
 <strong>
 	Introduction
