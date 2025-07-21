@@ -76,7 +76,7 @@
      alt="Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion"     
      width="100%" height="100%"></img>
 
-#### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio
+#### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio and has ben protected by the law
 <img src="Kingdom Studio Version 0.1.12 fiture create a new project.png" 
      title="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"
      alt="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"     
