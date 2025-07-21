@@ -27,8 +27,9 @@
 	<br><br>
 	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time, Back to Legal Rights of Technology Creators point number 7
 	<br><br>
-	Tidak mampu beli ya nonton saja hahahahaha
+	Tidak mampu beli ya nonton saja hahahahaha 
 </strong>
+<br><br>
 <strong>
 	Introduction
 </strong>
