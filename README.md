@@ -27,11 +27,6 @@
 	<br><br>
 	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time, Back to Legal Rights of Technology Creators point number 7
 </strong>
-<br><br>
-<strong>
-	JowoScript | JowoStyle | Jowo Kingdom Machine | Kingdom Studio | Jowo Kingdom Server | Structured Query Jowo Language
-</strong>
-<br>
 <strong>
 	Introduction
 </strong>
