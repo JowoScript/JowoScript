@@ -14,6 +14,8 @@
 	<br>
 	with experience by muhammad nurcahyo pratomo
 	<br>
+	Perusahaan dan istansi lain sudah pasti minus gaji dan tunjangan orang setiap bulannya
+	<br>
 	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features
 	<br>
 	PT JowoScript Technology Indonesia does not open job vacancies in any country
