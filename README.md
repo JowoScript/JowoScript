@@ -31,7 +31,7 @@
 	<br>
 	Tidak punya uang jangan beli paham sadar diri kalo miskin mau minta murah hahahaha
 	<br>
-	Derita anda salah inventasi yg belum tentu ada hasil
+	Derita anda salah inventasi yg belum tentu ada hasil dan masa depan
 </strong>
 <br><br>
 <strong>
