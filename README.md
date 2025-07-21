@@ -29,7 +29,9 @@
 	<br><br>
 	Tidak mampu beli ya nonton saja hahahahaha
 	<br>
-	Tidak punya uang jangan beli paham sadar diri kalo miskin mau minta murah
+	Tidak punya uang jangan beli paham sadar diri kalo miskin mau minta murah hahahaha
+	<br>
+	Derita anda salah inventasi yg belum tentu ada hasil
 </strong>
 <br><br>
 <strong>
