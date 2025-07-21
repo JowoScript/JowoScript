@@ -34,6 +34,14 @@
 	Derita anda salah inventasi yg belum tentu ada hasil dan masa depan
 	<br>
 	Derita anda pemerintah salah pendanaan selama ini dan tidak ada masa depannyya juga
+	<br>
+	Only Product Of PT JowoScript Technology Indonesia support in kingdom studio and has ben protected by the law
+	<br>
+	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
+	<br>
+	no matter whois in power. The power every 10 years can change
+	<br>
+	Who is my friend who has problems with me in Indonesia must die. kill them with silent
 </strong>
 <br><br>
 <strong>
