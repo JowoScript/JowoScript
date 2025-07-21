@@ -29,7 +29,7 @@
 	<br><br>
 	Tidak mampu beli ya nonton saja hahahahaha
 	<br>
-	Tidak punya uang jangan beli paham hahahaha
+	Tidak punya uang jangan beli paham sadar diri kalo miskin mau minta murah
 </strong>
 <br><br>
 <strong>
