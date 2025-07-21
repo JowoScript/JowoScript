@@ -27,14 +27,6 @@
 	<br><br>
 	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time, Back to Legal Rights of Technology Creators point number 7
 	<br><br>
-	Tidak mampu beli ya nonton saja hahahahaha
-	<br>
-	Tidak punya uang jangan beli paham sadar diri kalo miskin mau minta murah hahahaha
-	<br>
-	Derita anda salah inventasi yg belum tentu ada hasil dan masa depan
-	<br>
-	Derita anda pemerintah salah pendanaan selama ini dan tidak ada masa depannyya juga
-	<br>
 	Only Product Of PT JowoScript Technology Indonesia support in kingdom studio and has ben protected by the law
 	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
