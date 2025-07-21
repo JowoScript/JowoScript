@@ -76,13 +76,19 @@
      alt="Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion"     
      width="100%" height="100%"></img>
 
+#### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio
+<img src="Kingdom Studio Version 0.1.12 fiture create a new project.png" 
+     title="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"
+     alt="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"     
+     width="100%" height="100%"></img>
+     
 #### Jowo Kingdom Machine in Kingdom Studio
 <img src="Kingdom Studio Version 0.1.12 fiture create a new project if click.png" 
      title="Jowo Kingdom Machine in Kingdom Studio"
      alt="Jowo Kingdom Machine in Kingdom Studio"     
      width="100%" height="100%"></img>
      
-#### Kingdom Studio Version 0.1.12 Do you think this failed ? Do you know i create jowoscript from zero too
+#### Kingdom Studio Version 0.1.12
 <img src="Kingdom Studio Version 0.1.12 about.png" 
      title="Kingdom Studio Version 0.1.12"
      alt="Kingdom Studio Version 0.1.12"     
