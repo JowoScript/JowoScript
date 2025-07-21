@@ -8,118 +8,22 @@
 </div>
 <div align="center">
 <strong>
-	PT JowoScript Technology Indonesia - Always productive
+	PT JowoScript Technology Indonesia - Always productive and move forward
 	<br>
 	Everything PT JowoScript Technology Indonesia product listing is process because build from zero 
 	<br>
 	with experience by muhammad nurcahyo pratomo
-	<br>
-	Perusahaan dan istansi lain sudah pasti minus gaji dan tunjangan orang setiap bulannya belum tentu berhasil niru
-	<br>
-	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features
-	<br>
-	PT JowoScript Technology Indonesia does not open job vacancies in any country
-	<br>
-	PT JowoScript Technology Indonesia tidak membuka lowongan pekerjaan di negara mana pun
-	<br>
-	The company owner has been working alone all this time to make the product
-	<br>
-	Pemilik perusahaan bekerja sendiri selama ini untuk membuat produk
-	<br>
-	SDM Mahal itu dilihat Mental dan skill seseorang di lihat waktu bekerja sendiri buatnya dari zero
-	<br>
-	Tidak bisa kerja pecat pecatin. Talk blablabla. The checkmate. Hahahahaha
-	<br>
-	Ada pasalnya dan dasar hukumnya tidak bisa kerja itu di pecat. The checkmate
-	<br>
-	Kerja itu yang benar ya. Pecat in saja biar jadi pengangguran dan tidak berguna. hahahhaha
-	<br>
-	Tidak ada di manapun tidak bisa kerja atau tidak kerja mau minta gajian dan tunjangan
-	<br>
-	Lulusan S3 saja harvad bisnis saja paham persaingan makin berat dan lulus S3 saja pengangguran juga banyak mau lulusan SD dan SMA tidak di anggap
- 	<br>
-	Di tonton world wide i know
 </strong>
 <br><br>
-<strong>
-	who am i
-</strong>
-<br>
-<strong>
-	I`m a simple person from java of indonesia
-</strong>
-<br>
-<strong>
-	Muhammad Nurcahyo Pratomo develop JowoScript and Jowo Kingdom Machine and Kingdom Studio it every day behind the scenes and the price goes up with every new version.
-</strong>
-<br><br>
-<strong>
-	no company mergers. only product licenses may be purchased
-	<br>
-	tidak ada penggabungan perusahaan. hanya boleh beli lisensi produk
-	<br>
-	Orang kaya bisa miskin sudah banyak contoh dari pendahulunya
-	<br>
-	Orang pintar dan cerdas belum tentu miskin kedepanya sudah banyak contoh dari pendahulunya
-	<br>
-	Apa lagi banyak pekerjaan sudah di gantikan oleh Ai kedepannya
-	<br>
-	Jadi pejabat hanya sementara sudah banyak contoh dari pendahulunya
-	<br>
-	Jadi presiden dan wakil presiden hanya sementara sudah banyak contoh dari pendahulunya (10 tahun tidak lebih)
-	<br>
-	Regulasi kekuasaan bisa berubah berubah setiap penggantian presiden  (10 tahun tidak lebih)
-	<br>
-	Hanya gue sendiri bisa kembangkan produk gue buat tanya yang sudah pengalaman coding puluhan tahun
- 	<br>
-	DJ nya selama ini hanya jadi provokator dan fitnah saja siapa yang dapat pahala banyak dan dosa banyak
-	<br>
-	The checkmate forever baby
-</strong>
-<br><br>
-<strong>
-	Biar paham jadi pengusaha itu gimana ya dan perusahaan biasa di manja mana bisa seperti gue. 
-	<br>
-	Apa lagi kerja lewat orang dalam selama ini
-	<br>
-	Siapa yang tidak berguna akan terlihat nantinya karena persaingan makin berat kedepannya
-</strong>
-<br>
 <br>
 <strong>
 	PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far
-	<br>
-	PT JowoScript Technology Indonesia tidak menggunakan uang pemerintah dan tidak menggunakan uang investor dalam membuat semua produknya selama ini
 	<br><br>
 	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair
 	<br>
-	Daftar produk PT JowoScript Technology Indonesia tidak gratis dan Anda harus membeli lisensi bisnis untuk mengaktifkan semua fitur. Ini semua adil. Derita anda jadi pemales mana ada enaknya doang ya
-	<br>
 	PT JowoScript Technology Indonesia does not open job vacancies in any country
-	<br>
-	PT JowoScript Technology Indonesia tidak membuka lowongan pekerjaan di negara mana pun
 	<br><br>
 	Buying the license business product must be legal and registered under the law
-	<br>
-	More information about jowoscript product development and kingdom studio product development.
-	<br>
-	Your can visited my personal facebook
-	<br><br>
-	Cara mudah membersihkan tikus tikus di pemerintahaan atau perusahaan bisa di lihat dari laporan keuangan setiap istansi pemerintah atau perusahaan.
-	<br>
-	Siapa yang suka markup keuangan dan tidak ada hasil kerjanya itu lah tikus tikus
-	<br>
-	Kalo bersih kenapa takut kecuali perusahaan milik sendiri mau rugi atau untung tanggung sendiri
-	<br>
-	Gimana gue cerdas bukan :)
-	<br><br>
-	Modal besar buat produk belum tentu berhasil ya. Bacotan pengalaman di pegang
-	<br>
-	Having a large capital for a product doesn't guarantee success. Experience is key.
-	<br><br>
-	Modal besar buat produk kalo gagal bayar hutang yang ada. Terlebih lagi, Anda hanya dapat meniru bisnis saya
-	<br>
-	Huge capital to create products if you fail to pay existing debts. What's more, you can only copy my business
 	<br><br>
 	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time, Back to Legal Rights of Technology Creators point number 7
 </strong>
@@ -166,49 +70,49 @@
 <img src="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology Revesion.png" 
      title="Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion"
      alt="Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion"     
-     width="100%" height="750pt"></img>
+     width="100%" height="100%"></img>
 
-#### Kingdom Studio Version 0.1.9 Do you think this failed ? Do you know i create jowoscript from zero too
-<img src="Kingdom Studio Version 0.1.9.png" 
-     title="Kingdom Studio Version 0.1.9"
-     alt="Kingdom Studio Version 0.1.9"     
-     width="100%" height="750pt"></img>
+#### Kingdom Studio Version 0.1.12 Do you think this failed ? Do you know i create jowoscript from zero too
+<img src="Kingdom Studio Version 0.1.12 about.png" 
+     title="Kingdom Studio Version 0.1.12"
+     alt="Kingdom Studio Version 0.1.12"     
+     width="100%" height="100%"></img>
      
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
-     width="100%" height="750pt"></img>
+     width="100%" height="100%"></img>
 
 #### Kingdom Studio Version 0.1.8
 <img src="Kingdom Studio Version 0.1.8.png" 
      title="Kingdom Studio Version 0.1.8"
      alt="Kingdom Studio Version 0.1.8"     
-     width="100%" height="750pt"></img>
+     width="100%" height="100%"></img>
 
 #### JowoScript Native Code Version 8.7.6 in Chrome
 <img src="JowoScript Native Code Version 8.7.6.png" 
      title="JowoScript Native Code Version 8.7.6 in Chrome"
      alt="JowoScript Native Code Version 8.7.6 in Chrome"     
-     width="100%" height="750pt"></img>
+     width="100%" height="100%"></img>
 
 #### JowoScript Native Code Version 8.7.6 in Edge
 <img src="JowoScript Native Code Version 8.7.6 in edge.png" 
      title="JowoScript Native Code Version 8.7.6 in Edge"
      alt="JowoScript Native Code Version 8.7.6 in Edge"     
-     width="100%" height="750pt"></img>
+     width="100%" height="100%"></img>
 
 #### JowoScript Native Code Version 8.7.6 in FireFox
 <img src="JowoScript Native Code Version 8.7.6 in firefox.png" 
      title="JowoScript Native Code Version 8.7.6 in FireFox"
      alt="JowoScript Native Code Version 8.7.6 in FireFox"     
-     width="100%" height="750pt"></img>
+     width="100%" height="100%"></img>
 
 #### JowoScript Native Code Version 8.7.6 in Yandex
 <img src="JowoScript Native Code Version 8.7.6 in yandex.png" 
      title="JowoScript Native Code Version 8.7.6 in Yandex"
      alt="JowoScript Native Code Version 8.7.6 in Yandex"     
-     width="100%" height="750pt"></img>
+     width="100%" height="100%"></img>
      
 ## PT JowoScript Technology Indonesia products list :
 <div align="justify">
