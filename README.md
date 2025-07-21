@@ -10,7 +10,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always productive
 	<br>
-	Everything PT JowoScript Technology Indonesia product listing is process because build from zero with experince
+	Everything PT JowoScript Technology Indonesia product listing is process because build from zero with experience by muhammad nurcahyo pratomo
 	<br>
 	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features
 	<br>
