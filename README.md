@@ -12,7 +12,7 @@
 	<br>
 	Everything PT JowoScript Technology Indonesia product listing is process because build from zero 
 	<br>
-	with experience and deep love by muhammad nurcahyo pratomo
+	with deep experience and deep love and deep love by muhammad nurcahyo pratomo
 </strong>
 <br><br>
 <br>
