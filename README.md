@@ -14,7 +14,7 @@
 	<br>
 	with experience by muhammad nurcahyo pratomo
 	<br>
-	Perusahaan dan istansi lain sudah pasti minus gaji dan tunjangan orang setiap bulannya
+	Perusahaan dan istansi lain sudah pasti minus gaji dan tunjangan orang setiap bulannya belum tentu berhasil niru
 	<br>
 	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features
 	<br>
