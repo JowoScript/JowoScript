@@ -32,6 +32,8 @@
 	Tidak punya uang jangan beli paham sadar diri kalo miskin mau minta murah hahahaha
 	<br>
 	Derita anda salah inventasi yg belum tentu ada hasil dan masa depan
+	<br>
+	Derita anda pemerintah salah pendanaan selama ini dan tidak ada masa depannyya juga
 </strong>
 <br><br>
 <strong>
