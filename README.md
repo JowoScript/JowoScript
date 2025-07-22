@@ -18,7 +18,7 @@
 	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
-	Israel will be mad with my play hahahaha
+	Israel will be mad every days with my play hahahaha
 </strong>
 <br><br>
 <br>
