@@ -37,6 +37,8 @@
 	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
+	Pertumbuhan korupsi akan bertambah terus karena banyak yang gagal
+ 	<br>
 	no matter whois in power. The power every 10 years can change
 	<br>
 	Who is my friend who has problems with me in Indonesia must die. kill them with silent
