@@ -17,6 +17,8 @@
 	Mau gratisan tidak usah beli. Gampangkan. Situ yg tidak berguna bukan creatornya
 	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
+	<br>
+	Israel will be mad with my play hahahaha
 </strong>
 <br><br>
 <br>
