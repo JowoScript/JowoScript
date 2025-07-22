@@ -15,6 +15,8 @@
 	with deep experience and deep love by muhammad nurcahyo pratomo
 	<br>
 	Mau gratisan tidak usah beli. Gampangkan. Situ yg tidak berguna bukan creatornya
+	<br>
+	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 </strong>
 <br><br>
 <br>
