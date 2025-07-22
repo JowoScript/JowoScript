@@ -37,7 +37,7 @@
 	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
-	Pertumbuhan korupsi akan bertambah terus karena banyak yang gagal
+	Pertumbuhan korupusi akan bertambah terus karena banyak yang gagal dalam menjalankan roda bisnis.
  	<br>
 	no matter whois in power. The power every 10 years can change
 	<br>
