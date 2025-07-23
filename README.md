@@ -30,6 +30,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Tidak salahin ke pemerintah kalo jadi pengangguran paham sampai sini dan tidak menjadi penjilat ke pemerintah ya
  	<br>
 	Persaingan makin berat kedepannya
+	<br>
+	Banyak bacot DJ nya masih beban perusahaan dan pemerintah saja bacot
 </strong>
 <br><br>
 <br>
