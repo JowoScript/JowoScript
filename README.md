@@ -25,7 +25,9 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Gue tidak ikutan politik dari dulu ya tapi paham politik
 	<br>
-	Gue dulu juuga begituh ya tidak bisa dapat kerjaan dan di persulit test masuk kerja ya buka perusahaan sendiri siapa yang hancur sekarang
+	Gue dulu juuga begituh ya tidak dapat kerjaan dan di persulit test masuk kerja ya buka perusahaan sendiri siapa yang hancur sekarang
+	<br>
+	Persaingan makin berat kedepannya
 </strong>
 <br><br>
 <br>
