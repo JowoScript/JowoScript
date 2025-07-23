@@ -27,6 +27,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Gue dulu juuga begituh ya tidak dapat kerjaan dan di persulit test masuk kerja ya buka perusahaan sendiri siapa yang hancur sekarang
 	<br>
+	Tidak salahin ke pemerintah kalo jadi pengangguran paham sampai sini
+ 	<br>
 	Persaingan makin berat kedepannya
 </strong>
 <br><br>
