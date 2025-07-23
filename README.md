@@ -24,6 +24,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Akhir tahun bentar lagi buat laporan keuangan siap siap siapa lagi kena kasus koruptor dan perusahaan mana lagi tutup
 	<br>
 	Gue tidak ikutan politik dari dulu ya tapi paham politik
+	<br>
+	Gue dulu juuga begituh ya tidak bisa dapat kerjaan dan di persulit test masuk kerja ya buka perusahaan sendiri siapa yang hancur sekarang
 </strong>
 <br><br>
 <br>
