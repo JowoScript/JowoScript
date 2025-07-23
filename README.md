@@ -22,6 +22,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
 	Akhir tahun bentar lagi buat laporan keuangan siap siap siapa lagi kena kasus koruptor dan perusahaan mana lagi tutup
+	<br>
+	Gue tidak ikutan politik dari dulu ya tapi paham politik
 </strong>
 <br><br>
 <br>
