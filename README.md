@@ -37,7 +37,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 </strong>
 <br><br>
-<br>
 <strong>
 	PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far
 	<br><br>
@@ -94,6 +93,12 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </ol>
 </div>
 
+#### Kingdom Studio Version 0.1.13 Account license By Creator Technology
+<img src="Kingdom Studio Version 0.1.13 Account license.png" 
+     title="Kingdom Studio Version 0.1.13 Account license"
+     alt="Kingdom Studio Version 0.1.13 Account license"     
+     width="100%" height="100%"></img>
+     
 #### Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion
 <img src="Kingdom Studio Version 0.2.1 Commend Prompt By Creator Technology Revesion.png" 
      title="Kingdom Studio Version 0.2.1 Command Prompt By Creator Technology Revesion"
