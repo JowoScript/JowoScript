@@ -17,6 +17,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	with deep experience and deep love by muhammad nurcahyo pratomo
 	<br>
+	All the products I make are not a burden but have become a hobby or habit
+	<br>
 	Mau gratisan tidak usah beli. Gampangkan. Situ yg tidak berguna bukan creatornya
 	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
@@ -32,6 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Persaingan makin berat kedepannya
 	<br>
 	Banyak bacot DJ nya masih beban perusahaan dan pemerintah saja bacot
+	<br>
 </strong>
 <br><br>
 <br>
