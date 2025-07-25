@@ -101,15 +101,15 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
      width="100%" height="100%"></img>
 
 #### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio and has ben protected by the law
-<img src="Kingdom Studio Version 0.1.12 fiture create a new project.png" 
+<img src="Kingdom Studio Version 0.1.13 fiture create a new project.png" 
      title="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"
      alt="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"     
      width="100%" height="100%"></img>
      
-#### Jowo Kingdom Machine in Kingdom Studio
-<img src="Kingdom Studio Version 0.1.12 fiture create a new project if click.png" 
-     title="Jowo Kingdom Machine in Kingdom Studio"
-     alt="Jowo Kingdom Machine in Kingdom Studio"     
+#### Configure your new project
+<img src="Kingdom Studio Version 0.1.13 fiture configure your new project.png" 
+     title="configure your new project"
+     alt="configure your new project"     
      width="100%" height="100%"></img>
      
 #### Kingdom Studio Version 0.1.12
