@@ -15,7 +15,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
 	<br>
-	Lu kerja seumur hidup belum tentu mampu buat ini sendiri. Sadar diri kalo merasa goblok ya
+	Lu kerja seumur hidup belum tentu mampu buat ini sendiri. Sadar diri kalo merasa goblok ya. Bisa brain repairs hahahahaha
  	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
