@@ -18,6 +18,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Derita anda salah beli saham perusahaan dan investasi selama ini. 
 	<br>
 	Minta uangnya balik saja kalo tidak jalur hukum gituh repot tidak mau jalur hukum baru jalur otot
+	<br>
+	Jangan pernah bermain api dengan orang lebih cerdas paham pengusaha sekarang. Apa lagi hanya mau nipu gue yang buat
  	<br><br><br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
