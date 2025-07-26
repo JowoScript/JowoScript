@@ -15,7 +15,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
 	<br>
-	Derita anda salah beli saham perusahaan dan investasi selama ini. Minta uangnya balik saja kalo tidak jalur hukum gituh repot
+	Derita anda salah beli saham perusahaan dan investasi selama ini. Minta uangnya balik saja kalo tidak jalur hukum gituh repot tidak mau jalur hukum baru jalur otot
  	<br><br><br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
