@@ -17,6 +17,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Derita anda salah beli saham perusahaan dan investasi selama ini. 
 	<br>
+	Selama ini idak beli ya gue yg buat lebih tau ya
+ 	<br>
 	Minta uangnya balik saja kalo tidak jalur hukum gituh repot tidak mau jalur hukum baru jalur otot
 	<br>
 	Jangan pernah bermain api dengan orang lebih cerdas paham pengusaha sekarang. Apa lagi hanya mau nipu gue yang buat
