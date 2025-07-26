@@ -13,13 +13,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <strong>
 	PT JowoScript Technology Indonesia - Always productive and move forward
 	<br>
-	Everything PT JowoScript Technology Indonesia product listing is process because build from zero 
-	<br>
-	with deep experience and deep love by muhammad nurcahyo pratomo
-	<br>
-	All the products I make are not a burden but have become a hobby or habit, that's what classy people call it. Iam stay cool
-	<br>
-	Mau gratisan tidak usah beli. Gampangkan. Situ yg tidak berguna bukan creatornya
+	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku saldo tidak mencukupi. Paham sampai sini
 	<br>
 	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
 	<br>
