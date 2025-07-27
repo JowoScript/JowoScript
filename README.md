@@ -13,8 +13,10 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <strong>
 	PT JowoScript Technology Indonesia - Always productive and move forward
 	<br>
-	Level anda main proyek ? Bukan level gue ya. Kalo GOBLOK itu jangan banyak tingkah sama gue ya. Anda yang malu selama ini ya bukan gue ya.
- 	<br>
+	Level anda main proyek ? Bukan level gue ya. Kalo GOBLOK itu jangan banyak tingkah sama gue ya. 
+	<br>
+	Anda yang malu selama ini ya bukan gue ya.
+ 	<br><br>
 	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
 	<br>
 	Derita anda salah beli saham perusahaan dan investasi selama ini. 
