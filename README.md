@@ -13,6 +13,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <strong>
 	PT JowoScript Technology Indonesia - Always productive and move forward
 	<br>
+	For example, if an organization like Google buys a license in the name of Google, Google will automatically become rich too.
+	<br>
 	Level anda main proyek ? Bukan level gue ya. Kalo GOBLOK itu jangan banyak tingkah sama gue ya. 
 	<br>
 	Anda yang malu selama ini ya bukan gue ya.
