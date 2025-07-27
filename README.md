@@ -19,7 +19,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Kamu nurut sama orang lebih bodoh dari gue ya akan gelap selamanya. Terbukti sampai sekarang
 	<br>
-	Pengangguran dari gue itu juga banyak dan punya anak pengangguran juga banyak.
+	Pengangguran dari gue itu juga banyak dan punya anak pengangguran juga banyak tidak nurut sama gue ya gelap selamanya
  	<br><br>
 	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
 	<br>
