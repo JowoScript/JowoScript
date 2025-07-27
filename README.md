@@ -16,6 +16,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Level anda main proyek ? Bukan level gue ya. Kalo GOBLOK itu jangan banyak tingkah sama gue ya. 
 	<br>
 	Anda yang malu selama ini ya bukan gue ya.
+	<br>
+	Kamu nurut sama yang lebih bodoh dari gue dan gelar yg banyak saja itu akan gelap selamanya.
  	<br><br>
 	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
 	<br>
