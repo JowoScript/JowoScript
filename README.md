@@ -25,7 +25,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Bisa di lihat trader dan invenstasi sekarang berantakan semua. Kamu nurut sama orang lebih bodoh dari gue ya akan gelap selamanya.
 	<br>
-	Creator teknologi buka peluang dan lebih cerdas tidak perlu debat ya
+	Creator teknologi buka peluang dan lebih cerdas tidak perlu debat ya. Creator teknologi lebih paham keamanan IT dari lu bayangkan
  	<br><br>
 	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
 	<br>
