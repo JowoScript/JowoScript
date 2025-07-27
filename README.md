@@ -19,7 +19,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	tidak punya uang untuk beli suka maki maki seperti DJ nya selama ini. Aturan tetap aturan ya karena bikin gue emosi selama ini
 	<br>
-	selama ini gue dengar ya maki maki gue. makan tuh aturan
+	selama ini gue dengar ya maki maki gue. makan tuh aturan go die
  	<br>
 	Level anda main proyek ? Bukan level gue ya. Kalo GOBLOK itu jangan banyak tingkah sama gue ya. 
 	<br>
