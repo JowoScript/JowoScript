@@ -129,7 +129,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 #### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio and has ben protected by the law
 #### Punya uang apa beli ini produk ? pasti kan saldo rekening cukup dari pada gue ketawain.
 #### Kalo miskin jangan berharap bisa beli ini. Paham sampai sini. Siapa yg tertawa itu gue selama ini.
-<img src="Kingdom Studio Version 0.1.14 fiture create a new project by creator technology.png" 
+<img src="Kingdom Studio Version 0.1.14 new project.png" 
      title="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"
      alt="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"     
      width="100%" height="100%"></img>
