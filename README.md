@@ -98,6 +98,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 
 #### Kingdom Studio Version 0.1.14 Account license your need the serial number key not more and not less too. Smooth hahahaha. Mr lovers lovers hahaha
+#### The license price will increase again at an unspecified time. Smooth hahahaha. Mr lovers lovers hahaha
 #### Punya uang apa beli ini produk ? pasti kan saldo rekening cukup dari pada gue ketawain.
 #### Kalo miskin jangan berharap bisa beli ini. Paham sampai sini. Siapa yg tertawa itu gue selama ini.
 <img src="Kingdom Studio Version 0.1.14 Account license.png" 
