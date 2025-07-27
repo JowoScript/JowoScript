@@ -22,6 +22,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Pengangguran dari gue itu juga banyak dan punya anak pengangguran juga banyak tidak nurut sama gue ya gelap selamanya
 	<br>
 	Semakin lama tidak di beli siapa yang gelap ? Sebelum beli baca aturannya dulu
+	<br>
+	Bisa di lihat trader dan invenstasi sekarang berantakan semua. Kamu nurut sama orang lebih bodoh dari gue ya akan gelap selamanya.
  	<br><br>
 	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
 	<br>
