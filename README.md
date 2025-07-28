@@ -41,6 +41,10 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>If you don't have money to buy the product, don't insult it because fall into the hater category. Do you understand ?</li>
 <li>Muhammad Nurcahyo Pratomo create product list with a good stuff and only him can development product list. This hurt and have much experience looks like 50 years more (because alone) but the ages under 40 years thats not bad and good for him to next capability</li>
 <li>If you are smart in business, you can buy product list. This simple like a chain business everything company and organization and school</li>
+<li>Muhammad Nurcahyo Pratomo have company alone that a name PT JowoScript Technology Indonesia</li>
+<li>PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far</li>
+<li>PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair</li>
+<li>PT JowoScript Technology Indonesia does not open job vacancies in any country</li>
 </ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
