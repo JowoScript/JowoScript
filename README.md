@@ -57,7 +57,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </ol>
 </div>
 <br>
-<div align="center">
 
 ## Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
 <div align="justify">
@@ -72,7 +71,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </ol>
 </div>
 <br>
-<div align="center">
 
 ## Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
 <div align="justify">
@@ -85,9 +83,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </ol>
 </div>
 <br>
-<div align="center">
-	
-## Support Technology with license business :
+
+### Support Technology with license business :
 <div align="justify">
 <ol>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
