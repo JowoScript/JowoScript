@@ -120,18 +120,13 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
      alt="Kingdom Studio About Technology"     
      width="100%" height="100%"></img>
      
-#### Kingdom Studio Version 0.1.14 Account license your need the serial number key not more and not less too. Smooth hahahaha. Mr lovers lovers hahaha
-#### The license price will increase again at an unspecified time. Smooth hahahaha. Mr lovers lovers hahaha
-#### Punya uang apa beli ini produk ? pasti kan saldo rekening cukup dari pada gue ketawain.
-#### Kalo miskin jangan berharap bisa beli ini. Paham sampai sini. Siapa yg tertawa itu gue selama ini.
+#### Kingdom Studio Version 0.1.14 Account license your need the serial number key not more and not less too.
 <img src="Kingdom Studio Version 0.1.14 Account license.png" 
      title="Kingdom Studio Version 0.1.14 Account license"
      alt="Kingdom Studio Version 0.1.14 Account license"     
      width="100%" height="100%"></img>
      
-#### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio and has ben protected by the law
-#### Punya uang apa beli ini produk ? pasti kan saldo rekening cukup dari pada gue ketawain.
-#### Kalo miskin jangan berharap bisa beli ini. Paham sampai sini. Siapa yg tertawa itu gue selama ini.
+#### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio
 <img src="Kingdom Studio Version 0.1.14 new project.png" 
      title="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"
      alt="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"     
