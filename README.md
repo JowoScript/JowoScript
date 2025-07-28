@@ -16,6 +16,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	For example, if an organization like Google buys a license in the name of Google, Google will automatically become rich too.
 	<br>
 	so stop judge me if you are stupid play business
+	<br>
+	Buy legally, and you must comply with the rules. Buy illegally, but no one is selling or producing it yet. Do you understand?
 </strong>
 <br><br>
 <strong>
