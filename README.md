@@ -17,7 +17,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	so stop judge me if you are stupid play business
 	<br>
-	Buy legally, and you must comply with the rules. Buy illegally, but no one is selling or producing it yet. Do you understand?
+	Buy legally, and the rules must be met. Buy illegally  no one is selling or producing it yet. Do you understand ?
 </strong>
 <br><br>
 <strong>
