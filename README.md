@@ -12,14 +12,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 <strong>
 	PT JowoScript Technology Indonesia - Always productive and move forward
-	<br>
-	For example, if an organization like Google buys a license in the name of Google, Google will automatically become rich too.
-	<br>
-	so stop judge me if you are stupid play business
-	<br>
-	Buy legally, and the rules must be met. Buy illegally  no one is selling or producing it yet. Do you understand ?
-	<br>
-	It's getting harder to find work and business competition is getting tougher. Do you understand ?
 </strong>
 <br><br>
 <strong>
