@@ -16,51 +16,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	For example, if an organization like Google buys a license in the name of Google, Google will automatically become rich too.
 	<br>
 	so stop judge me if you are stupid play business
-	<br>
-	tidak punya uang untuk beli suka maki maki seperti DJ nya selama ini. Aturan tetap aturan ya karena bikin gue emosi selama ini
-	<br>
-	selama ini gue dengar ya maki maki gue. makan tuh aturan go die. kita lihat saja kalo tidak percaya. 
- 	<br>
-	Level anda main proyek ? Bukan level gue ya. Kalo GOBLOK itu jangan banyak tingkah sama gue ya. 
-	<br>
-	Anda yang malu selama ini ya bukan gue ya.
-	<br>
-	Kamu nurut sama orang lebih bodoh dari gue ya akan gelap selamanya. Terbukti sampai sekarang
-	<br>
-	Pengangguran dari gue itu juga banyak dan punya anak pengangguran juga banyak tidak nurut sama gue ya gelap selamanya
-	<br>
-	Semakin lama tidak di beli siapa yang gelap ? Sebelum beli baca aturannya dulu
-	<br>
-	Bisa di lihat trader dan invenstasi sekarang gelap semua. Kamu nurut sama orang lebih bodoh dari gue ya akan gelap selamanya.
-	<br>
-	Creator teknologi buka peluang dan lebih cerdas tidak perlu debat ya. Creator teknologi lebih paham keamanan IT dari lu bayangkan
- 	<br><br>
-	Kalo miskin tidak usah beli ya mau gaya lu selangit di medsos tidak berlaku jika saldo tidak mencukupi. Paham sampai sini
-	<br>
-	Derita anda salah beli saham perusahaan dan investasi selama ini. 
-	<br>
-	Selama ini tidak beli ya gue yg buat lebih tau ya
- 	<br>
-	Minta uangnya balik saja kalo tidak jalur hukum gituh repot tidak mau jalur hukum baru jalur otot
-	<br>
-	Jangan pernah bermain api dengan orang lebih cerdas paham pengusaha sekarang. Apa lagi hanya mau nipu gue yang buat
-	<br>
-	Dalam sidang kalo salah pembuktian habis kamu pengusaha sekarang.
- 	<br><br><br>
-	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
-	<br>
-	Akhir tahun bentar lagi buat laporan keuangan siap siap siapa lagi kena kasus koruptor dan perusahaan mana lagi tutup
-	<br>
-	Gue tidak ikutan politik dari dulu ya tapi paham politik
-	<br>
-	Gue dulu juuga begituh ya tidak dapat kerjaan dan di persulit test masuk kerja ya buka perusahaan sendiri siapa yang hancur sekarang
-	<br>
-	Tidak salahin ke pemerintah kalo jadi pengangguran paham sampai sini dan tidak menjadi penjilat ke pemerintah ya
- 	<br>
-	Persaingan makin berat kedepannya
-	<br>
-	Banyak bacot DJ nya masih beban perusahaan dan pemerintah saja bacot baca itu aturan no 15 mau sodara sendiri gue tetap tidak peduli
-	<br>
 </strong>
 <br><br>
 <strong>
@@ -71,18 +26,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	PT JowoScript Technology Indonesia does not open job vacancies in any country
 	<br><br>
 	Buying the license business product must be legal and registered under the law
-	<br><br>
-	Price 75 Trillion Rupiah/Years for all licensed products. Prices will rise again at an unspecified time, Back to Legal Rights of Technology Creators point number 7
-	<br><br>
-	Only Product Of PT JowoScript Technology Indonesia support in kingdom studio and has ben protected by the law
-	<br>
-	Business is business. Rules is rules. Love is love. Haters is haters. Fans is fans.
-	<br>
-	Pertumbuhan korupusi akan bertambah terus karena banyak yang gagal dalam menjalankan roda bisnis.
- 	<br>
-	no matter whois in power. The power every 10 years can change
-	<br>
-	Who is my friend who has problems with me in Indonesia must die. kill them with silent
 </strong>
 <br><br>
 <strong>
@@ -91,6 +34,59 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
+## Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
+<div align="justify">
+<ol>
+<li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
+<li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
+<li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
+<li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
+<li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
+<li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
+<li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
+<li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
+<li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 1 and point number 7</li>
+<li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
+<li>It is strictly prohibited for weapons of war such as politics, crime and kindly, back to point number 1 and point number 7</li>
+<li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
+<li>The company (Indonesia and Malaysia) that had problems with me was the entrance test and etc are strictly prohibited from obtaining licenses forever. back to point number 7 (i have big data private so no can lie)</li>
+<li>Friends Of Muhammad Nurchayo Pratomo (Indonesia and Malaysia) and people (Indonesia and Malaysia) who have problems with me are strictly prohibited from obtaining licenses forever and MUST DIE FIRST. Even if the problematic friend works for a government agency, the same rules apply to that agency. back to point number 7</li>
+<li>Especially for those who insert sound into music in Disc Jockey (DJ) and the conclusion is that the sound is changed into music to curse and be alone, the perpetrator MUST DIE FIRST if there is a company or government that wants to buy the license. Life is a choice. Rules are rules. If you dare to insult and curse by inserting sound into music, it means you have to dare to take risks. There must be proof of death of the perpetrator who made the music insert all this time. back to point number 7</li>
+<li>Registered trademark products of PT JowoScript Technology Indonesia</li>
+<li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
+</ol>
+</div>
+<br>
+<div align="center">
+
+## Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
+<div align="justify">
+<ol>
+<li>Must follow and obey basic regulatory requirements in registration</li>
+<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker and a lawyer or legal entity, back to point number 1 and point number 7</li>
+<li>Must have a legality flag that is a legal entity</li>
+<li>Must have a domain name server live as your legality flag name masters (example of a live universal domain is *.gov.your name of goverment or any domain)</li>
+<li>Technology remains in end to end encryption</li>
+<li>Can use Technology features if the license token runs out will not be able to use</li>
+<li>Technology can be controlled for localhost or 127.0.0.1 and can be changed choices to your own ip settings</li>
+</ol>
+</div>
+<br>
+<div align="center">
+
+## Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
+<div align="justify">
+<ol>
+<li>Will deal with the laws in force in the country where you live or jail the future, back to point number 1</li>
+<li>Lawyers, police and prosecutors will act to prosecute existing violations cannot be contested by any party, either in the future or now</li>
+<li>Gambling The minimum fine for violation is the minimum price of the license purchased cannot be contested by any party, either in the future or now, back to point number 7</li>
+<li>Case studies on the inability to pay the minimum fine for violations will be submitted to existing laws, both based on the legal basis in force in the country where you live and cannot be challenged by any party, back to point number 1 and point number 7</li>
+<li>Payment of fines is made by both parties witnessed by the court and and lawyers or prosecutors or legal entities, back to point number 1 and number 7</li>
+</ol>
+</div>
+<br>
+<div align="center">
+	
 ## Support Technology with license business :
 <div align="justify">
 <ol>
@@ -733,59 +729,8 @@ PT JowoScript Technology Indonesia is a company registered as a legal entity and
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's license name. Example your company name or organization name or government name
 ```
-#### Legality Products | $.legality (Stronger in the eyes of the law) Thats rules baby
+#### Legality Products | $.legality (Stronger in the eyes of the law)
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
-## Legal Rights of Technology Creators | Basic regulatory requirements in registration
-<div align="justify">
-<ol>
-<li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
-<li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
-<li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
-<li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
-<li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
-<li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
-<li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
-<li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
-<li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 1 and point number 7</li>
-<li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
-<li>It is strictly prohibited for weapons of war such as politics, crime and kindly, back to point number 1 and point number 7</li>
-<li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) are strictly prohibited from obtaining licenses forever, be it a company or an individual, back to point number 7</li>
-<li>The company (Indonesia and Malaysia) that had problems with me was the entrance test and etc are strictly prohibited from obtaining licenses forever. back to point number 7 (i have big data private so no can lie)</li>
-<li>Friends Of Muhammad Nurchayo Pratomo (Indonesia and Malaysia) and people (Indonesia and Malaysia) who have problems with me are strictly prohibited from obtaining licenses forever. Even if the problematic friend works for a government agency, the same rules apply to that agency. back to point number 7</li>
-<li>Especially for those who insert sound into music in Disc Jockey (DJ) and the conclusion is that the sound is changed into music to curse and be alone, the perpetrator must die first if there is a company or government that wants to buy the license. Life is a choice. Rules are rules. If you dare to insult and curse by inserting sound into music, it means you have to dare to take risks. There must be proof of death of the perpetrator who made the music insert all this time. back to point number 7</li>
-<li>Registered trademark products of PT JowoScript Technology Indonesia</li>
-<li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
-</ol>
-</div>
-<br>
-<div align="center">
 
-## Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
-<div align="justify">
-<ol>
-<li>Must follow and obey basic regulatory requirements in registration</li>
-<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker and a lawyer or legal entity, back to point number 1 and point number 7</li>
-<li>Must have a legality flag that is a legal entity</li>
-<li>Must have a domain name server live as your legality flag name masters (example of a live universal domain is *.gov.your name of goverment or any domain)</li>
-<li>Technology remains in end to end encryption</li>
-<li>Can use Technology features if the license token runs out will not be able to use</li>
-<li>Technology can be controlled for localhost or 127.0.0.1 and can be changed choices to your own ip settings</li>
-</ol>
-</div>
-<br>
-<div align="center">
-
-## Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
-<div align="justify">
-<ol>
-<li>Will deal with the laws in force in the country where you live or jail the future, back to point number 1</li>
-<li>Lawyers, police and prosecutors will act to prosecute existing violations cannot be contested by any party, either in the future or now</li>
-<li>Gambling The minimum fine for violation is the minimum price of the license purchased cannot be contested by any party, either in the future or now, back to point number 7</li>
-<li>Case studies on the inability to pay the minimum fine for violations will be submitted to existing laws, both based on the legal basis in force in the country where you live and cannot be challenged by any party, back to point number 1 and point number 7</li>
-<li>Payment of fines is made by both parties witnessed by the court and and lawyers or prosecutors or legal entities, back to point number 1 and number 7</li>
-</ol>
-</div>
-<br>
-<div align="center">
