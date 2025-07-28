@@ -18,6 +18,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	so stop judge me if you are stupid play business
 	<br>
 	Buy legally, and the rules must be met. Buy illegally  no one is selling or producing it yet. Do you understand ?
+	<br>
+	It's getting harder to find work and business competition is getting tougher. Do you understand ?
 </strong>
 <br><br>
 <strong>
