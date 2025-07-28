@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
-## Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
+### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
 <ol>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
@@ -58,7 +58,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 <br>
 
-## Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
+### Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
 <div align="justify">
 <ol>
 <li>Must follow and obey basic regulatory requirements in registration</li>
@@ -72,7 +72,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 <br>
 
-## Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
+### Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
 <div align="justify">
 <ol>
 <li>Will deal with the laws in force in the country where you live or jail the future, back to point number 1</li>
