@@ -15,16 +15,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </strong>
 <br><br>
 <strong>
-	PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far
-	<br><br>
-	PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair
-	<br>
-	PT JowoScript Technology Indonesia does not open job vacancies in any country
-	<br><br>
-	Buying the license business product must be legal and registered under the law
-</strong>
-<br><br>
-<strong>
 	Introduction
 </strong>
 </div>
