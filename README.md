@@ -38,6 +38,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Artificial Intelligence and Robotics will replace yours jobs in the future. Do you understand ?</li>
 <li>If you don't have any problem with Muhammad Nurcahyo Pratomo just skip and protected</li>
 <li>Muhammad Nurcahyo Pratomo is noisy but kind</li>
+<li>If you don't have money to buy the product, don't insult it because fall into the hater category</li>
 </ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
