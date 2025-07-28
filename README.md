@@ -34,6 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <ul>
 <li>Buy legally, and the rules must be met. Buy illegally  no one is selling or producing it yet. Do you understand ?</li>
 <li>It's getting harder to find work and business competition is getting tougher. Do you understand ?</li>
+<li>In the future, business and finding jobs will be more difficult. Do you understand ?</li>
 </ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
