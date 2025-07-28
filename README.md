@@ -40,6 +40,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Muhammad Nurcahyo Pratomo is noisy but kind</li>
 <li>If you don't have money to buy the product, don't insult it because fall into the hater category. Do you understand ?</li>
 <li>Muhammad Nurcahyo Pratomo create product list with a good stuff</li>
+<li>If you are smart in business, you can buy product list. This simple like a chain business everything company and organization and school</li>
 </ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
