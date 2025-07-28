@@ -43,6 +43,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Buy legally, and the rules must be met. Buy illegally  no one is selling or producing it yet. Do you understand ?</li>
 <li>It's getting harder to find work and business competition is getting tougher. Do you understand ?</li>
 </ul>
+
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
 <ol>
@@ -65,7 +66,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
 </ol>
 </div>
-<br>
 
 ### Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
 <div align="justify">
@@ -79,7 +79,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Technology can be controlled for localhost or 127.0.0.1 and can be changed choices to your own ip settings</li>
 </ol>
 </div>
-<br>
 
 ### Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
 <div align="justify">
@@ -91,7 +90,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Payment of fines is made by both parties witnessed by the court and and lawyers or prosecutors or legal entities, back to point number 1 and number 7</li>
 </ol>
 </div>
-<br>
 
 ### Support Technology with license business :
 <div align="justify">
