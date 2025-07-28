@@ -39,7 +39,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>The company (Indonesia and Malaysia) that had problems with Muhammad Nurchayo Pratomo was the entrance test and etc before thats way him(Muhammad Nurcahyo Pratomo) unlock the real capability. So it's clear who's useless (him have big data private so no can lie) so we see thats hurt and how much times before him apply jobs. Now we must to kick useless company too in indonesia and malaysia had problems with Muhammad Nurchayo Pratomo</li>
 <li>If we talk about money, he (Muhammad Nurchayo Pratomo) could be a trillionaire. Your see product listing is not free and you must purchase a business license to activate all features. This all fair</li>
 <li>Muhammad Nurcahyo Pratomo is not a public figure like most people, that's really cool</li>
-<li>Whenever it is he will definitely release all global products jowo script, kingdom studio and jowo kingdom machine. That's really cool</li>
+<li>Whenever it is he will definitely release all global products jowo script, kingdom studio and jowo kingdom machine. That's really cool and whole world now before</li>
 <li>Only Jowo Script shocked the whole world.. how above kingdom studio and jowo kingdom machine...</li>
 </ul>
 
