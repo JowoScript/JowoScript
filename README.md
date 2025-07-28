@@ -39,7 +39,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>If you don't have any problem with Muhammad Nurcahyo Pratomo just skip and protected</li>
 <li>Muhammad Nurcahyo Pratomo is noisy but kind</li>
 <li>If you don't have money to buy the product, don't insult it because fall into the hater category. Do you understand ?</li>
-<li>Muhammad Nurcahyo Pratomo create product list with a good stuff and only him can development product list. This hurt and have much experience looks like 50 years more (because alone) but the ages under 40 years thats not bad and good for him to next capability</li>
+<li>Muhammad Nurcahyo Pratomo create product list with a good stuff and only him can development product list. This hurt and have much experience looks like 50 years more (because alone) but the ages under 40 years thats not bad and good for him to next capability then before</li>
 <li>If you are smart in business, you can buy product list. This simple like a chain business everything company and organization and school</li>
 <li>Muhammad Nurcahyo Pratomo have company alone that a name PT JowoScript Technology Indonesia</li>
 <li>PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far</li>
