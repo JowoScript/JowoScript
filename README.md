@@ -43,6 +43,9 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Only Jowo Script shocked the whole world.. how above kingdom studio and jowo kingdom machine...</li>
 <li>Minimum age required to be 18 years old in using programming language code and can use good logic. This right way too</li>
 <li>User strictly prohibited as an instrument of crime. This right way too</li>
+<li>In the future, business and finding jobs will be more difficult. This right way too</li>
+<li>Artificial Intelligence and Robotics will replace yours jobs in the future. This right way too</li>
+<li>Pirated music also causes a lot of harm to music creators. This right way too</li>
 </ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
