@@ -48,7 +48,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <ol>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
 <li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
-<li>Minimum age required to be 7 years old in using programming language code, back to point point number 7</li>
+<li>Minimum age required to be 18 years old in using programming language code, back to point point number 7</li>
 <li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
