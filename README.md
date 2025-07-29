@@ -46,6 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>In the future, business and finding jobs will be more difficult. This right way too</li>
 <li>Artificial Intelligence and Robotics will replace yours jobs in the future. This right way too</li>
 <li>Pirated music also causes a lot of harm to music creators. This right way too</li>
+<li>The more school graduates there are, the more unemployed there are. Who will open up opportunities? Number 7</li>
 </ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
