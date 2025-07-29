@@ -41,6 +41,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Muhammad Nurcahyo Pratomo is not a public figure like most people, that's really cool</li>
 <li>Whenever it is he will definitely release all global products jowo script, kingdom studio and jowo kingdom machine. That's really cool and whole world now before</li>
 <li>Only Jowo Script shocked the whole world.. how above kingdom studio and jowo kingdom machine...</li>
+<li>Minimum age required to be 18 years old in using programming language code and can use good logic. This right way too</li>
 </ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
