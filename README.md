@@ -23,7 +23,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Jadi pengangguran tidak punya skill ya itu derita anda ya bukan gue.
 	<br>
-	Pengalaman Skill coding gue di atas 50 tahun jadi baik baik kalo merasa pintar dari gue ya
+	Pengalaman Skill coding gue di atas 50 tahun jadi baik baik kalo merasa pintar dari gue ya. Kalo lu pengalaman kerja hanya absensi saja tidak gue anggap ya
 </strong>
 <br><br>
 <strong>
