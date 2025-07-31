@@ -18,6 +18,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Mau adu argumentasi ? Anda terima gaji dan tunjangan selama ini hasil kerjanya apa ?
 	<br>
 	Kerja di luar negeri enak apa kalo tidak ada skill ? Di negara manapun itu sama tidak ada skill ya pasti berat
+	<br>
+	Hidup senang senang giliran susah salahin pemerintah. Beda gue setiap hari kerja sendiri ya
 </strong>
 <br><br>
 <strong>
