@@ -16,6 +16,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Sekecil apapun bisnisku, gue tetap bosnya
 	<br>
 	Mau adu argumentasi ? Anda terima gaji dan tunjangan selama ini hasil kerjanya apa ?
+	<br>
+	Kerja di luar negeri enak apa kalo tidak ada skill ? Enak di bangsa sendiri ya
 </strong>
 <br><br>
 <strong>
