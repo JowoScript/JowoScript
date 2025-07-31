@@ -20,6 +20,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Kerja di luar negeri enak apa kalo tidak ada skill ? Di negara manapun itu sama tidak ada skill ya pasti berat
 	<br>
 	Hidup senang senang giliran susah salahin pemerintah. Beda gue setiap hari kerja sendiri ya
+	<br>
+	Jadi pengangguran tidak punya skill ya itu derita anda ya bukan gue.
 </strong>
 <br><br>
 <strong>
