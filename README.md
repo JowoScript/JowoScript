@@ -13,7 +13,9 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <strong>
 	PT JowoScript Technology Indonesia - Always productive and move forward
 	<br>
-	Sekecil apapun bisnisku, gue tetap bosnya
+	Sekecil apa pun bisnisku, gue tetap bosnya dan hanya aku yang bisa mengembangkan produkku.
+	<br>
+	No matter how small my business is, I'm still the boss and only me can development my product
 	<br>
 	Mau adu argumentasi ? Anda terima gaji dan tunjangan selama ini hasil kerjanya apa ?
 	<br>
