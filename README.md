@@ -22,6 +22,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Hidup senang senang giliran susah salahin pemerintah. Beda gue setiap hari kerja sendiri ya
 	<br>
 	Jadi pengangguran tidak punya skill ya itu derita anda ya bukan gue.
+	<br>
+	Pengalaman Skill coding gue di atas 50 tahun jadi baik baik kalo merasa goblok ya
 </strong>
 <br><br>
 <strong>
