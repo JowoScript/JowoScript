@@ -47,6 +47,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Contoh lagi kamu menjual barang di toko supermarket itu hampir sama dengan perdagangan elektronik hanya beda caranya saja. Satu online dan satu lagi offline. Suka jalan jalan lebih suka offline dan sebaliknya males jalan jalan ya lebih suka online. Sudah paham sampai sini sekolah pajak nya
 </li>
 <li>Contoh lagi kamu menerima gaji dari kerja di perusahaan atau pemerintah ya hanya kena pajak penambahan hasil (PPh) saja ya tidak ada pajak penanbahan nilai (PPn). Sudah paham sampai sini sekolah pajak nya</li>
+<li>Contoh lagi penghasilan dealer kendaraan pendapatannya hanya dari penjualan unit dari dari hasil unit di jual baru bisa pajak penambahan hasil (PPh) dari pegawainya untuk di setor ke negara indonesia dan (PPn) di bebankan ke pembeli dari hasil ppn di setor ke negara indonesia. Sudah paham sampai sini sekolah pajak nya</li>
 </ul>
 
 ### Note impulse of Technology Creators
