@@ -22,6 +22,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Do you know how evil the Gemini zodiac is ? More than devils
 	<br>
 	Orang bodoh selalu maki maki orang yang lebih cerdas
+	<br>
+	Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu
 </strong>
 <br><br>
 <strong>
