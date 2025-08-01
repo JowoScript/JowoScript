@@ -20,6 +20,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Orang bodoh itu selalu maki maki orang yg lebih cerdas
 	<br>
 	Do you know how evil the Gemini zodiac is ? More than devils
+	<br>
+	Orang bodoh selalu maki maki orang yang lebih cerdas
 </strong>
 <br><br>
 <strong>
