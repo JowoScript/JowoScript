@@ -23,6 +23,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	Orang bodoh selalu maki maki orang yang lebih cerdas
 	<br>
+	Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas
+	<br>
 	Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu
 </strong>
 <br><br>
