@@ -41,7 +41,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Contoh kamu menjual perangkat lunak atau software produk akan kena pajak penambahan nilai yang beli software produk dan yang buat software tidak kena.</li>
 <li>Contoh kamu membeli barang bajakan atau palsu tidak ada jaminannya dari yang buat produk. Produk PT JowoScript Technology Indonesia tidak di jual di pasar publik atau bebas karena pembeliannya wajib secara legal. Paham Orang bodoh selalu maki maki orang yang lebih cerdas dan Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas. Jika belinya secara legal tidak ada yang di rugikan. Jika tidak punya uang tidak usah beli. Simple logic</li>
 <li>Contoh kamu menerima gaji dari hasil konten di platform sosial media akan kena pajak penambahan penghasilan dan platform sosial media wajib setor pajak penghasilan dari konten kreator ke negara indonesia dan pendapatan platform sosial media hanya dari biaya administrasi saja karena menyediakan platform sosial media</li>
-</ul>
 <li>Contoh lagi kamu menerima gaji kerja di perusahaan ya hanya kena pajak penambahan hasil saja ya tidak ada pajak penanbahan nilai. Sudah paham sampai sini sekolah pajak nya</li>
 </ul>
 
