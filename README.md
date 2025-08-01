@@ -48,7 +48,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </li>
 <li>Contoh lagi kamu menerima gaji dari kerja di perusahaan atau pemerintah ya hanya kena pajak penambahan hasil (PPh) saja ya tidak ada pajak penanbahan nilai (PPn). Sudah paham sampai sini sekolah pajak nya</li>
 <li>Contoh lagi penghasilan dealer kendaraan pendapatannya hanya dari penjualan unit dari dari hasil unit di jual baru bisa bayar pajak penambahan hasil (PPh) dari pegawainya untuk di setor ke negara indonesia dan (PPn) di bebankan ke pembeli dari hasil ppn di setor ke negara indonesia. Sudah paham sampai sini sekolah pajak nya</li>
-<li>Istansi pemerintah bayarnya gaji sampai tunjangan dari hasil pajak tapi yang minta jatah apbn paling banyak tapi kerjanya santai santai dan korupsi dari hasil negara itu di sebut beban pemerintah ada kamera publik yaitu rakyatnya sendiri</li>
+<li>Istansi pemerintah bayarnya gaji sampai tunjangan dari hasil pajak tapi yang minta jatah apbn paling banyak tapi kerjanya santai santai atau tidak ada hasil kerjanya dan korupsi dari hasil negara itu di sebut beban pemerintah ada kamera publik yaitu rakyatnya sendiri</li>
 </ul>
 
 ### Note impulse of Technology Creators
