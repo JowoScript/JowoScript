@@ -34,6 +34,12 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
+### Muhammad Nurcahyo Pratomo The smart person and smoothy, introduction for my lecturers and teachers at school before
+<ul>
+<li>Dosen dan guru sekolah saya dulu akan belajar konsep baru dari bahasa pemrograman baru saya buat di akhir. Apapun itu argumentasinya</li>
+<li>Umur hanya angka atau jumlah umur untuk belajar konsep baru dari bahasa pemrograman baru saya buat di akhir. Apapun itu argumentasinya</li>
+</ul>
+
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
 <ul>
 <li>PPh (Pajak Penambahan Hasil) Jika menerima gaji akan di kenakan pajak jika tidak menerima gaji tidak ada pajak. PPh ada ukurannya berapa persen. Do you understand baby ? </li>
@@ -761,6 +767,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
