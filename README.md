@@ -38,7 +38,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <ul>
 <li>PPh (Pajak Penambahan Hasil) Jika menerima gaji akan di kenakan pajak jika tidak menerima gaji tidak ada pajak. PPh ada ukurannya berapa persen. Do you understand baby ? </li>
 <li>PPn (Pajak Penambahan Nilai) Jika anda menjual produk maka beban pajak di bayar oleh pembeli produk bukan pembuat produk atau penjual produk. PPn ada ukurannya berapa persen. Do you understand baby ?</li>
-<li>Contoh kamu menjual perangkat lunak atau software produk akan kena pajak penambahan nilai yang buat software tidak kena.</li>
+<li>Contoh kamu menjual perangkat lunak atau software produk akan kena pajak penambahan nilai yang beli software produk dan yang buat software tidak kena.</li>
 </ul>
 
 ### Note impulse of Technology Creators
