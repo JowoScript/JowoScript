@@ -47,7 +47,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Siapa lagi kalo bukan teman gue yg provokatornya selama ini maki maki lewat music DJ</li>
 <li>Belum pernah di culik secara militer itu DJ nya ? baik baik kalo mental masih ayam. Mau oknum yang lindungi DJ saja bisa kena nantinya</li>
 <li>Selama ini tidak ada yang meledak ya servernya paham sampai sini. Mampus itu DJ nya provokator calon mayat</li>
-<li>Baca itu aturannya kalo mau beli</li>
+<li>Baca itu aturannya kalo mau beli. Tidak di beli yang butuh juga bukan gue nantinya.</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -777,6 +777,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
