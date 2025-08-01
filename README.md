@@ -44,6 +44,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </li>
 <li>Contoh lagi kamu menjual barang di platform E-commerce atau perdagangan elektronik akan kena pajak penambahan nilai (PPn) dan platform E-commerce atau perdagangan elektronik wajib setor pajak penghasilan nilai (PPn) dari konten menjual barang ke negara indonesia dan pendapatan platform E-commerce atau perdagangan elektronik hanya dari biaya administrasi saja karena menyediakan E-commerce atau perdagangan elektronik. Contoh biaya administrasi seperti menyewakan tempat jual online di platform E-commerce atau perdagangan elektronik hasilnya untuk bayar gaji dan sejenisnya di perusahaan tersebut. Sudah paham sampai sini sekolah pajak nya
 </li>
+<li>Contoh lagi kamu menjual barang di toko supermarket itu hampir sama dengan perdagangan elektronik hanya beda caranya saja. Sudah paham sampai sini sekolah pajak nya
+</li>
 <li>Contoh lagi kamu menerima gaji dari kerja di perusahaan atau pemerintah ya hanya kena pajak penambahan hasil (PPh) saja ya tidak ada pajak penanbahan nilai (PPn). Sudah paham sampai sini sekolah pajak nya</li>
 </ul>
 
