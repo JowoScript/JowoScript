@@ -26,6 +26,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas
 	<br>
 	Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu
+	<br>
+	Punya anak tapi tidak punya penghasilan dan skill akan binasa sendirinya oleh waktu. Makan tuh dj nya
 </strong>
 <br><br>
 <strong>
@@ -771,6 +773,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
