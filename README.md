@@ -44,6 +44,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Jual barang palsu dari produk saya buat akan kena sendiri yang jualan</li>
 <li>Punya anak tapi tidak punya penghasilan dan skill hanya standart saja akan binasa sendirinya oleh waktu. Makan tuh lambemu dj nya selamanya</li>
 <li>Di beli atau tidak gue tidak merugikan orang hanya kamu DJ provokatornya</li>
+<li>Siapa lagi kalo bukan teman gue yg provokatornya selama ini maki maki lewat music DJ</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -773,6 +774,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
