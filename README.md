@@ -50,7 +50,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Contoh lagi penghasilan dealer kendaraan pendapatannya hanya dari penjualan unit dari dari hasil unit di jual baru bisa bayar pajak penambahan hasil (PPh) dari pegawainya untuk di setor ke negara indonesia dan (PPn) di bebankan ke pembeli dari hasil ppn di setor ke negara indonesia. Sudah paham sampai sini sekolah pajak nya</li>
 <li>Istansi pemerintah bayarnya gaji sampai tunjangan dari hasil pajak tapi yang minta jatah apbn paling banyak tapi kerjanya santai santai atau tidak ada hasil kerjanya di sebut beban pemerintah ada kamera publik yaitu rakyatnya sendiri</li>
 <li>Oknum melakukan korupsi, pungli dan gratifikasi di pemerintahaan atau perusahaan merupakan tindak kejahatan</li>
-<li>Oknum di pemerintahaan bisa lulus masuk kerja tapi tidak bisa kerja kasih SP 1 terus SP2 Terakhir pecat</li>
+<li>Oknum di pemerintahaan atau perusahaan bisa lulus masuk kerja tapi tidak bisa kerja kasih SP 1 terus SP2 Terakhir pecat</li>
 <li>Negara bisa maju di lihat dari Sumber Daya Manusianya yang berkualitas bukan sebaliknya</li>
 <li>Indonesia akan jadi negara maju bukan berkembang lagi kedepanya jika kerjanya benar dan sebaliknya. Paham sampai sini</li>
 </ul>
@@ -761,6 +761,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
