@@ -34,6 +34,12 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
+### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
+<ul>
+<li>PPh (Pajak Penambahan Hasil) Jika menerima gaji akan di kenakan pajak jika tidak menerima gaji tidak ada pajak</li>
+<li>PPn (Pajak Penambahan Nilai) Jika anda menjual produk maka beban pajak di bayar oleh pembeli produk bukan pembuat produk.</li>
+</ul>
+
 ### Note impulse of Technology Creators
 <ul>
 <li>Buy legally, and the rules must be met. Buy illegally  no one is selling or producing it yet. Do you understand ?</li>
