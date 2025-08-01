@@ -39,7 +39,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>PPh (Pajak Penambahan Hasil) Jika menerima gaji akan di kenakan pajak jika tidak menerima gaji tidak ada pajak. PPh ada ukurannya berapa persen. Do you understand baby ? </li>
 <li>PPn (Pajak Penambahan Nilai) Jika anda menjual produk maka beban pajak di bayar oleh pembeli produk bukan pembuat produk atau penjual produk. PPn ada ukurannya berapa persen. Do you understand baby ?</li>
 <li>Contoh kamu menjual perangkat lunak atau software produk akan kena pajak penambahan nilai yang beli software produk dan yang buat software tidak kena.</li>
-<li>Contoh kamu membeli barang bajakan atau palsu tidak ada jaminannya dari yang buat produk. Produk PT JowoScript Technology Indonesia tidak di jual pasar publik karena pembeliannyaw wajib secara legal</li>
+<li>Contoh kamu membeli barang bajakan atau palsu tidak ada jaminannya dari yang buat produk. Produk PT JowoScript Technology Indonesia tidak di jual pasar publik karena pembeliannyaw wajib secara legal. Paham Orang bodoh selalu maki maki orang yang lebih cerdas dan Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas</li>
 <li>Contoh kamu menerima gaji dari hasil konten di platform sosial media akan kena pajak penambahan penghasilan dan platform sosial media wajib setor pajak penghasilan dari konten kreator ke negara indonesia dan pendapatan platform sosial media hanya dari biaya administrasi saja karena menyediakan platform sosial media</li>
 </ul>
 
