@@ -34,20 +34,9 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
-### Muhammad Nurcahyo Pratomo The smart person and smoothy, introduction for my lecturers and teachers at school before
+### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Dosen dan guru sekolah saya dulu akan belajar konsep baru dari bahasa pemrograman baru saya buat di akhir. Apapun itu argumentasinya</li>
-<li>Umur hanya angka atau jumlah nomer dalam kehidupan untuk belajar konsep baru dari bahasa pemrograman baru saya buat di akhir. Apapun itu argumentasinya</li>
-<li>Jadilah salah satu dosen dan guru yang bangga akan muridmu di sekolah dulu yang bodoh ini karena melampaui batas kemampuan yang ada dari waktu belajar di sekolah</li>
-<li>Apapun produk saya buat ini untuk komersial dan economic cycle di masa depan lebih baik. Jadi belajarlah netral dan jangan terpancing oleh lambene DJ</li>
-<li>Apapun produk saya buat ini juga untuk bersih bersih oknum melakukan korupsi, pungli dan gratifikasi di pemerintahaan atau perusahaan</li>
-<li>Jual barang palsu dari produk saya buat akan kena sendiri yang jualan</li>
-<li>Punya anak tapi tidak punya penghasilan dan skill hanya standart saja akan binasa sendirinya oleh waktu. Makan tuh lambemu dj nya selamanya</li>
-<li>Di beli atau tidak gue tidak merugikan orang hanya kamu DJ provokatornya</li>
-<li>Siapa lagi kalo bukan teman gue yg provokatornya selama ini maki maki lewat music DJ</li>
-<li>Belum pernah di culik secara militer itu DJ nya ? baik baik kalo mental masih ayam. Mau oknum yang lindungi DJ saja bisa kena nantinya</li>
-<li>Selama ini tidak ada yang meledak ya servernya paham sampai sini. Mampus itu DJ nya provokator calon mayat</li>
-<li>Baca itu aturannya kalo mau beli. Tidak di beli yang butuh juga bukan gue nantinya. Teman gue yang tidak bermasalah sama gue dan orang yang tidak bermasalah sama gue yang rugi nantinya dan next generation. Teman gue yang bermasalah sama gue dan bermuka dua selama ini yang ketakutan</li>
+<li>I'm work for create money not find money</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -777,6 +766,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
