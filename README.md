@@ -31,6 +31,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
 <li>Orang bodoh selalu maki maki orang yang lebih cerdas</li>
+<li>Sekecil apa pun bisnisku, gue tetap bosnya</li>
 <li>Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas</li>
 <li>Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu</li>
 <li>I think long term by time</li>
@@ -47,7 +48,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </li>
 <li>Siapa yang mati ya teman gue yg bermasalah itu aturan pembelian produk</li>
 <li>Gue bukan orang miskin ya kasihan deh lu siapa yang tidak berguna ? waktu terus maju dan jelas produk gue buat makin berkembang</li>
-<li>Perusahaan mana lagi akan tutup paham sampai sini</li>
+<li>Perusahaan mana lagi akan tutup paham sampai sini dan persaingan makin berat kedepannya</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -777,6 +778,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
