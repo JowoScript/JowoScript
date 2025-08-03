@@ -43,7 +43,9 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Nanti juga akan mati sendiri yang di danai pemerintah dan investor. Mereka bisnisnya putar disitu saja</li>
 <li>Aturan tetap aturan gue dulu juga di gituin</li>
 <li>Tunggu waktu saja siapa yang tidak berguna nantinya. Kalian gaji pegawai sudah otomatis minus terus belum biaya lainnya ya</li>
-<li>Gue ungkit waktu dulu dulu teman gue yang bermasalah sama gue dan yang persulit gue dulu masuk test kerja kalo mau adu argumentasi</li>
+<li>Gue ungkit waktu dulu dulu teman gue yang bermasalah sama gue di Indonesia + Malaysia dan yang persulit gue dulu masuk test kerja di Indonesia + Malaysia kalo mau adu argumentasi.
+</li>
+<li>Siapa yang mati ya teman gue yg bermasalah itu aturan pembelian produk</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -773,6 +775,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
