@@ -46,7 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Gue ungkit waktu dulu dulu teman gue yang bermasalah sama gue di Indonesia + Malaysia dan yang persulit gue dulu masuk test kerja di Indonesia + Malaysia kalo mau adu argumentasi.
 </li>
 <li>Siapa yang mati ya teman gue yg bermasalah itu aturan pembelian produk</li>
-<li>Gue bukan orang miskin ya jadi tidak perlu tau ya kasihan deh lu</li>
+<li>Gue bukan orang miskin ya jadi tidak perlu tau ya kasihan deh lu siapa yang tidak berguna ? waktu terus maju</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -776,6 +776,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
