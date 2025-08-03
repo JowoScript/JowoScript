@@ -41,6 +41,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>I can create many new a project with my new programing language and license legals</li>
 <li>Read this one too : Muhammad Nurcahyo Pratomo create product list with a good stuff and only him can development product list. This hurt and have much experience looks like 50 years more (because alone) but the ages under 40 years thats not bad and good for him to next capability then before</li>
 <li>Nanti juga akan mati sendiri yang di danai pemerintah dan investor. Mereka bisnisnya putar disitu saja</li>
+<li>Aturan tetap aturan gue dulu juga di gituin</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -770,6 +771,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
