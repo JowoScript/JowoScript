@@ -20,12 +20,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	Orang bodoh itu selalu maki maki orang yg lebih cerdas
 	<br>
 	Do you know how evil the Gemini zodiac is ? More than devils
-	<br>
-	Orang bodoh selalu maki maki orang yang lebih cerdas
-	<br>
-	Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas
-	<br>
-	Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu
 </strong>
 <br><br>
 <strong>
@@ -36,6 +30,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
+<li>Orang bodoh selalu maki maki orang yang lebih cerdas</li>
+<li>Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas</li>
 <li>Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu</li>
 <li>I think long term by time</li>
 <li>I think with different people in general</li>
@@ -774,6 +770,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
