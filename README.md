@@ -33,6 +33,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>No merger of companies</li>
 <li>Tidak ada hasil kerjanya itu resiko anda ya</li>
 <li>Gue ungkit dulu dulu gimana ?</li>
+<li>Siapa lagi kena kasus korupsi ?</li>
 <li>Orang bodoh selalu maki maki orang yang lebih cerdas</li>
 <li>Sekecil apa pun bisnisku, gue tetap bosnya</li>
 <li>Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas</li>
@@ -781,6 +782,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
