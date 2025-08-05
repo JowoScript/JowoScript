@@ -35,6 +35,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Gue ungkit dulu dulu gimana ?</li>
 <li>Oknum mana lagi yang mau korupsi ?</li>
 <li>Gue buat produk bahasa pemrograman baru sendiri tidak pakai uang negara dan invenstor dan tidak di modali orang tua juga apa lagi sodara, pure skill</li>
+<li>Kalo mau pakai bahasa pemrograman baru gue buat wajib bayar. Adil bukan</li>
 <li>Orang bodoh selalu maki maki orang yang lebih cerdas</li>
 <li>Sekecil apa pun bisnis gue, gue tetap bosnya</li>
 <li>Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas</li>
@@ -783,6 +784,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
