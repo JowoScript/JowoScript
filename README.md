@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Tidak ada hasil kerjanya anak IT itu resiko anda ya bukan gue ya</li>
 <li>Gue ungkit dulu dulu gimana ?</li>
 <li>Oknum mana lagi yang mau korupsi ?</li>
-<li>Gue buat produk bahasa pemrograman baru sendiri tidak pakai uang negara dan invenstor dan tidak di modali orang tua juga apa lagi sodara, pure skill</li>
+<li>Gue buat produk bahasa pemrograman baru sendiri tidak pakai uang negara dan invenstor dan tidak di modali orang tua juga apa lagi sodara dan apa lagi teman, pure skill semua gue buat sendiri</li>
 <li>Kalo mau pakai bahasa pemrograman baru gue buat wajib bayar. Adil bukan</li>
 <li>Siapa yang butuh nanti juga bukan gue karena gue bukan orang bodoh. Paham sampai sini</li>
 <li>Tenang saja ? Persaingan makin berat kedepannya dan biaya sekolah juga naik terus dan biaya hidup juga naik terus. The checkmate forever siapa rajanya</li>
@@ -786,6 +786,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
