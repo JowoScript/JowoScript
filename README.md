@@ -30,7 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Rakyat Indonesia bisa melihat siapa yang tidak berani sahkan undang undang perampasan asset ? tugas anggota dewan selama ini yang tidak berani sahkan</li>
+<li>Rakyat Indonesia bisa melihat siapa yang tidak berani sahkan undang undang perampasan asset ? tugas anggota dewan selama ini yang tidak berani sahkan. Kalo bersih kenapa takut ?</li>
 <li>No merger of companies</li>
 <li>Tidak ada hasil kerjanya anak IT itu resiko anda ya bukan gue ya</li>
 <li>Gue ungkit dulu dulu gimana ?</li>
@@ -787,6 +787,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
