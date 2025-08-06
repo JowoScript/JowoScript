@@ -67,6 +67,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Berapa banyak kasus koruptor ? Paham sampai sini</li>
 <li>Berapa banyak pengangguran meningkat ? Paham sampai sini</li>
 <li>Sebelum menghina gue tak suruh ngaca dulu kamu. Paham sampai sini</li>
+<li>Mau adu argumentasi tetap gue yang menang. Anda terima jatah apbn dan invenstor selama ini hasil kerjanya apa ?</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -797,6 +798,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
