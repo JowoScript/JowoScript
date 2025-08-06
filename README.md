@@ -30,7 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Biasanya ilmu piskologi orang goblok itu tidak mau sadar diri paham sampai sini</li>
+<li>Biasanya dalam ilmu piskologi orang goblok itu tidak mau sadar diri paham sampai sini dan sebaliknya</li>
 <li>Sehebat hebat lu coding tetap gue yang bisa kembangkan produk gue. Biar paham siapa bossnya</li>
 <li>Sehebat hebat lu coding tetap akan belajar juga dari gue ya. Biar paham siapa bossnya</li>
 <li>Emang ada jowoscript, jowo kingdom machine dan kingdom studio selama ini tanpa izin gue. Biar paham siapa bossnya</li>
@@ -808,6 +808,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
