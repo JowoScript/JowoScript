@@ -110,12 +110,13 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <div align="justify">
 <ol>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
+<li>If an Indonesian citizen working abroad is injured or tortured or something similar but there is no legal process in the government concerned, then that government will be blacklisted. back to point number 7</li>
 <li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
-<li>Minimum age required to be 18 years old in using programming language code and can use good logic, back to point point number 7</li>
 <li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
+<li>Minimum age required to be 18 years old in using programming language code and can use good logic, back to point point number 7</li>
 <li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
 <li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
 <li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 1 and point number 7</li>
@@ -795,6 +796,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
