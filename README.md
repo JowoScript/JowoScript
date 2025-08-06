@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Siapa api politik ? Kalo yang bersih tidak takut ya dan sebaliknya</li>
 <li>Paham artinya bersih tidak neko neko atau aneh aneh yaitu menerima gaji dan tunjangan saja dalam bekerja dan ikutin aturan sop yang ada dan taat hukum dan sebaliknya</li>
 <li>Jangan salahkan pemerintah kalo ada badai PHK karena itu resiko persaingan kerja dan persaingan bisnis dari dulu begituh ya</li>
-<li>Orang tidak berguna pasti di singkirkan dari dulu begituh</li>
+<li>Orang tidak berguna pasti di singkirkan dari dulu begituh ya</li>
 <li>No merger of companies</li>
 <li>Tidak ada hasil kerjanya anak IT itu resiko anda ya bukan gue ya</li>
 <li>Gue ungkit dulu dulu gimana ?</li>
@@ -794,6 +794,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
