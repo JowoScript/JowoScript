@@ -30,7 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Next Iam watching Palestine political (Hamas People) internal see condicition with Arab Saudi political internal.</li>
+<li>Next Iam watching Palestine political (Hamas People) internal see condicition with Arab Saudi political internal. (when observing so far it has only been about religious ideology)</li>
 <li>Satu warga negara indonesia kerja di luar negeri di lukai atau disiksa dan sejenisnya tapi tidak ada prosess hukum di pemerintahannya bersangkutan maka pemerintahan tersebut masuk blacklist</li>
 <li>Rakyat Indonesia bisa melihat siapa yang tidak berani sahkan undang undang perampasan asset ? tugas anggota dewan selama ini yang tidak berani sahkan. Kalo bersih kenapa takut ?</li>
 <li>Siapa api politik ? Kalo yang bersih tidak takut ya dan sebaliknya</li>
@@ -797,6 +797,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
