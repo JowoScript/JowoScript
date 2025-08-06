@@ -33,7 +33,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Sehebat hebat lu coding tetap gue yang bisa kembangkan produk gue. Biar paham siapa bossnya</li>
 <li>Sehebat hebat lu coding tetap akan belajar juga dari gue ya. Biar paham siapa bossnya</li>
 <li>Emang ada jowoscript, jowo kingdom machine dan kingdom studio selama ini tanpa izin gue. Biar paham siapa bossnya</li>
-<li>Contoh Sehebat hebat lu coding di python tetap belajar coding lagi kalo pakai bahasa java, php dan sejenisnya. Paham sampai sini dan itu fakta lu mau protes di ketawain sama yang buat</li>
+<li>Contoh Sehebat hebat lu coding di python tetap belajar coding lagi kalo pakai bahasa java, php dan sejenisnya. Paham sampai sini dan itu fakta lu mau protes di ketawain sama yang buat bahasa pemegromannya lu tidak pakai juga yang buat tidak rugi</li>
 <li>Sehebat hebat lu coding di python, php dan java ya kalo mau pakai jowo kingdom machine tetap belajar lagi. Gue yang ngajarin di akhir paham sampai sini</li>
 <li>Sehebat hebat lu coding di javascript, node.js dan sejenisnya ya kalo mau pakai jowoscript tetap belajar lagi. Gue yang ngajarin di akhir paham sampai sini</li>
 <li>Next Iam watching Palestine political (Shia People) internal see condicition with Arab Saudi political internal (Sunni People). (I have so far only observed the religious ideology between Shia and Sunni) I'm not stupid all this time about the war who is the mastermind</li>
@@ -804,6 +804,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
