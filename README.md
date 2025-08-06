@@ -46,7 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Siapa yang butuh nanti juga bukan gue karena gue bukan orang bodoh. Paham sampai sini</li>
 <li>Tenang saja ? Persaingan makin berat kedepannya dan biaya sekolah juga naik terus dan biaya hidup juga naik terus. The checkmate forever siapa rajanya</li>
 <li>Orang bodoh selalu maki maki orang yang lebih cerdas</li>
-<li>Sekecil apa pun bisnis gue, gue tetap bosnya</li>
+<li>Sekecil apapun perusahaan gue tetap gue bossnya</li>
 <li>Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas</li>
 <li>Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu</li>
 <li>I think long term by time</li>
@@ -798,6 +798,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
