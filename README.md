@@ -36,7 +36,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Contoh Sehebat hebat lu coding di python tetap belajar coding lagi kalo pakai bahasa java, php dan sejenisnya. Paham sampai sini dan itu fakta lu mau protes di ketawain sama yang buat bahasa pemegromannya lu tidak pakai juga yang buat tidak rugi seperti itu gue juga prinsipnya</li>
 <li>Sehebat hebat lu coding di python, php dan java ya kalo mau pakai jowo kingdom machine tetap belajar lagi. Gue yang ngajarin di akhir paham sampai sini</li>
 <li>Sehebat hebat lu coding di javascript tetap belajar lagi pakai typescript. Paham sampai sini kalo goblok dan itu fakta sadar diri ya</li>
-<li>Sehebat hebat lu coding di javascript, node.js dan sejenisnya ya kalo mau pakai jowoscript tetap belajar lagi. Gue yang ngajarin di akhir paham sampai sini</li>
+<li>Sehebat hebat lu coding di javascript, node.js dan sejenisnya ya kalo mau pakai jowoscript tetap belajar lagi. Gue yang ngajarin di akhir paham sampai sini kalo goblok dan itu fakta sadar diri ya</li>
 <li>Next Iam watching Palestine political (Shia People) internal see condicition with Arab Saudi political internal (Sunni People). (I have so far only observed the religious ideology between Shia and Sunni) I'm not stupid all this time about the war who is the mastermind</li>
 <li>Satu warga negara indonesia kerja di luar negeri di lukai atau disiksa dan sejenisnya tapi tidak ada prosess hukum di pemerintahannya bersangkutan maka pemerintahan tersebut masuk blacklist</li>
 <li>Rakyat Indonesia bisa melihat siapa yang tidak berani sahkan undang undang perampasan asset ? tugas anggota dewan selama ini yang tidak berani sahkan. Kalo bersih kenapa takut ?</li>
@@ -805,6 +805,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
