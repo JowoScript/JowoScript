@@ -99,7 +99,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Oknum melakukan korupsi, pungli dan gratifikasi di pemerintahaan atau perusahaan merupakan tindak kejahatan</li>
 <li>Oknum di pemerintahaan atau perusahaan bisa lulus masuk kerja tapi tidak bisa kerja kasih SP 1 terus SP2 Terakhir pecat</li>
 <li>Negara bisa maju di lihat dari Sumber Daya Manusianya yang berkualitas bukan sebaliknya</li>
-<li>Uang korupsi, pungli dan gratifikasi di pemerintahaan atau perusahaan di balikan ke bangsa negara indonesia untuk pembangunan bangsa negara indonesia bukan sebaliknya</li>
+<li>Uang hasil korupsi, pungli dan gratifikasi di pemerintahaan atau perusahaan di balikan ke bangsa negara indonesia untuk pembangunan bangsa negara indonesia bukan sebaliknya</li>
 <li>Uang hasil pajak untuk apa ? untuk pembangunan bangsa negara indonesia bukan sebaliknya</li>
 <li>Indonesia akan jadi negara maju bukan berkembang lagi kedepanya jika kerjanya benar dan sebaliknya. Paham sampai sini</li>
 </ul>
@@ -811,6 +811,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
