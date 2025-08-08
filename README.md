@@ -30,6 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
+<li>Do you know how evil the Gemini zodiac if have hurt before is ? More than devils</li>
 <li>Sinau meneh kalian https://www.youtube.com/watch?v=WU6HptnXDzY</li>
 <li>Orang mau kaya tapi masuk penjara dan bermasalah itu banyak ya dan ini akan terus berlanjut bagi orang orang yg kurang imannya. Paham sampai sini</li>
 <li>Kalo belajar sejarah lahirnya israel anak tk juga bisa belajar tapi kamu sanggup belajar sejarah sebuah ideologi di negara arab sebelum terbelah belah jadi iran sendiri, emirat  sendiri dan seterusnya ?  gue sudah belajar semuanya intinya isinya keras kepala semua</li>
@@ -807,6 +808,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
