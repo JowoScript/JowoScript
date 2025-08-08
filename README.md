@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Kalo hanya main IPO saja anak tk juga bisa tapi paham resikonya. Mau kaya tapi masuk penjara namanya goblok. Seperti contoh kasus sebelumnya Efishery, belum kasus Doni Salmanan. paham sampai sini carzy rich masuk penjara ? malu dong gaya elit</li>
+<li>Kalo hanya main IPO saja anak tk juga bisa tapi paham resikonya. Mau kaya tapi masuk penjara namanya goblok. Seperti contoh kasus sebelumnya Gibran Huzaifah Detained, belum kasus Doni Salmanan. paham sampai sini carzy rich masuk penjara ? malu dong gaya elit</li>
 <li>Di kira gue tidak tau anak muda licik licik main IPO di belakang gue tapi goblok tidak bisa kembangkan produk. Salah bermain kalian sama gue, kalian akan bermasalah dengan hukum, orang mau kaya tapi masuk penjara dan bermasalah itu banyak ya di akhir bukan gue ya</li>
 <li>Sinau meneh kalian https://www.youtube.com/watch?v=WU6HptnXDzY</li>
 <li>Orang mau kaya tapi masuk penjara dan bermasalah itu banyak ya dan ini akan terus berlanjut. Paham sampai sini</li>
@@ -807,6 +807,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
