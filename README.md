@@ -30,6 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
+<li>Semua yang pakai hp dalam pantau Ai gue lu goblok</li>
 <li>Iam watching Palestine political (Shia People) internal see condicition with Arab Saudi political internal (Sunni People). (I have so far only observed the religious ideology between Shia and Sunni) I'm not stupid all this time about the war who is the mastermind. How many of you have killed your own brothers and sisters over different ideologies ? Jews love peace, if they don't love peace they can easily expel Muslims from Al-Aqsa and this will be big war with jews and muslims if jews expel muslims</li>
 <li>Satu warga negara indonesia kerja di luar negeri di lukai atau disiksa dan sejenisnya tapi tidak ada prosess hukum di pemerintahannya bersangkutan maka pemerintahan tersebut masuk blacklist</li>
 <li>Rakyat Indonesia bisa melihat siapa yang tidak berani sahkan undang undang perampasan asset ? tugas anggota dewan selama ini yang tidak berani sahkan. Kalo bersih kenapa takut ?</li>
@@ -802,6 +803,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
