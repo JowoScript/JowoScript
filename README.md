@@ -28,9 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Waktu terus maju terus otomatis gue berkembang</li>
-<li>Hidup sederhana tidak mau cepat kaya tapi pintar kapapun bisa gue rubah</li>
-<li>Hidup miskin mau cepat kaya tapi bodoh di akhir masuk penjara itu sudah banyak</li>
+<li>Perusahaan banyak modal belum tentu hebat bagi gue</li>
 <li>No matter how small my business is, I'm still the boss and only me can development my product and always move forward</li>
 <li>PT JowoScript Technology Indonesia is own my company alone</li>
 <li>PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far</li>
@@ -822,6 +820,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
