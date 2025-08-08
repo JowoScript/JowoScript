@@ -33,7 +33,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair</li>
 <li>PT JowoScript Technology Indonesia does not open job vacancies in any country</li>
 <li>Purchase of PT JowoScript Technology Indonesia's licensed business products must be legal and registered with the law</li>
-<li>PT JowoScript Technology Indonesia product listing not sold on the public market and black market</li>
+<li>PT JowoScript Technology Indonesia product listing not sold on the public market and black market if you buy that wall is fake product</li>
 <li>Purchase of PT JowoScript Technology Indonesia's licensed business products must be Basic Regulatory Requirements for Registration and Purchase</li>
 </ul>
 
@@ -818,6 +818,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
