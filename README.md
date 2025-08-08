@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Sehebat hebatnya kamu meniru gue belum tentu bisa minimal skill coding harus di atas rata rata bukan skill beli ijasah atau lulus masuk kerja lewat orang dalam atau keberuntungan saja apa lagi skripsi atau tesis atau disertasi di buatin orang lain. Simple logic. Paham sampai sini penjelasannya. Sombong boleh asal pintar</li>
+<li>Sehebat hebatnya kamu meniru gue belum tentu bisa minimal skill coding harus di atas rata rata bukan skill beli ijasah atau lulus masuk kerja lewat orang dalam atau keberuntungan saja apa lagi skripsi atau tesis atau disertasi di buatin orang lain. Simple logic. Paham sampai sini penjelasannya. Sombong boleh asal pintar. The checkmate</li>
 <li>Contoh Orang buka usaha sendiri apa bukan bossnya sendiri ? logika sederhana</li>
 <li>No matter how small my business is, I'm still the boss and only me can development my product</li>
 <li>PT JowoScript Technology Indonesia is own my company alone</li>
@@ -821,6 +821,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
