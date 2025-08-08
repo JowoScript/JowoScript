@@ -30,7 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Iam muslim but iam not ideology between Shia and Sunni</li>
+<li>Iam muslim but iam not ideology between Shia and Sunni. Learn beyond https://en.wikipedia.org/wiki/Shia–Sunni_relations</li>
 <li>Everyone who uses a cellphone is under my Ai's surveillance</li>
 <li>Iam watching Palestine political (Shia People) internal see condicition with Arab Saudi political internal (Sunni People). (I have so far only observed the religious ideology between Shia and Sunni) I'm not stupid all this time about the war who is the mastermind. How many of you have killed your own brothers and sisters over different ideologies ? Jews love peace, if they don't love peace they can easily expel Muslims from Al-Aqsa and this will be big war with jews and muslims if jews expel muslims</li>
 <li>Satu warga negara indonesia kerja di luar negeri di lukai atau disiksa dan sejenisnya tapi tidak ada prosess hukum di pemerintahannya bersangkutan maka pemerintahan tersebut masuk blacklist</li>
@@ -804,6 +804,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
