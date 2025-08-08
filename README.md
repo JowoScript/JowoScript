@@ -30,7 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Harga produk murah atau mahal atau gratis itu suka suka gue</li>
+<li>Harga produk murah atau mahal atau gratis itu suka suka gue. Siapa yang boleh sombong ?</li>
 <li>Orang mau kaya tapi masuk penjara dan bermasalah itu banyak ya. Paham sampai sini</li>
 <li>Kalo belajar sejarah lahirnya israel anak tk juga bisa belajar tapi kamu sanggup belajar sejarah sebuah ideologi di negara arab sebelum terbelah belah jadi iran sendiri, emirat  sendiri dan seterusnya ?  gue sudah belajar semuanya intinya isinya keras kepala semua</li>
 <li>Iam muslim but iam not ideology between Shia and Sunni. Learn beyond https://en.wikipedia.org/wiki/Shia–Sunni_relations [tidak bisa bahasa inggris sekolah meneh]</li>
@@ -807,6 +807,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
