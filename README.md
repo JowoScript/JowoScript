@@ -29,7 +29,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
 <li>Pengusaha indonesia mau bertanding ? belum tentu berhasil niru buat, mau masuk penjara kalo gagal niru ? semua itu ada resikonya. Mau uang tapi tidak ada hasil kerjanya buat laporannya gimana ? kasus itu jelas</li>
-<li>Bisnis jual minuman masih bisa lu tiru. bisnis seperti gue mikir dulu minimal jago coding</li>
+<li>Bisnis jual minuman masih bisa lu tiru. bisnis seperti gue mikir dulu minimal jago coding dan jago coding belum tentu mampu buat bahasa pemerograman</li>
 <li>Kalo hanya main IPO saja anak tk juga bisa tapi paham resikonya. Mau kaya tapi masuk penjara namanya goblok. Seperti contoh kasus sebelumnya Gibran Huzaifah Detained, belum kasus Doni Salmanan. paham sampai sini carzy rich masuk penjara ? malu dong gaya elit masuk penjara. Whos the next mau ikut masuk penjara ?</li>
 <li>Perusahaan bangun jalan toll gimana kabarnya sekarang ? Uang balik modal tidak sampai sekarang. Sinau sekarang sama gue</li>
 <li>Sehebat hebatnya kamu meniru gue belum tentu bisa minimal skill coding harus di atas rata rata bukan skill beli ijasah atau lulus masuk kerja lewat orang dalam atau keberuntungan saja apa lagi skripsi atau tesis atau disertasi di buatin orang lain. Simple logic. Paham sampai sini penjelasannya. Sombong boleh asal pintar. The checkmate</li>
@@ -828,6 +828,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
