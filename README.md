@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Contoh Orang buka usaha sendiri apa bukan bossnya sendiri ? logika sederhana</li>
 <li>No matter how small my business is, I'm still the boss and only me can development my product</li>
 <li>Muhammad Nurcahyo Pratomo or me not using government money and not using investor money in making all products so far</li>
-<li>PT JowoScript Technology Indonesia is own my company alone</li>
+<li>PT JowoScript Technology Indonesia is own my company alone (Muhammad Nurcahyo Pratomo)</li>
 <li>PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far</li>
 <li>PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair</li>
 <li>PT JowoScript Technology Indonesia does not open job vacancies in any country</li>
@@ -824,6 +824,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
