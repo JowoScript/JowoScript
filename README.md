@@ -46,7 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Mission
 <ul>
-<li>Israel will not stop war if Palestine is not cleared of Hamas</li>
+<li>Israel will not stop war if Palestine is not cleared of Hamas. The Hamas group has vowed to destroy Israel and replace it with an Islamic state.</li>
 <li>Kalo hanya main IPO saja anak tk juga bisa tapi paham resikonya. Mau kaya tapi masuk penjara namanya goblok. Seperti contoh kasus sebelumnya Gibran Huzaifah Detained, belum kasus Doni Salmanan. paham sampai sini carzy rich masuk penjara ? malu dong gaya elit. Whos the next mau ikut masuk penjara ?</li>
 <li>Di kira gue tidak tau anak muda licik licik main IPO di belakang gue tapi goblok tidak bisa kembangkan produk. Salah bermain kalian sama gue, kalian akan bermasalah dengan hukum, orang mau kaya tapi masuk penjara dan bermasalah itu banyak ya di akhir bukan gue ya</li>
 <li>The solution is the Palestinian government can be re-established and the Palestinian population can be re-registered and the Palestinian infrastructure can be rebuilt to be better. This is peace forever between palestine and israel (No war every day) and no more people die as a result of war. I hope that the future Palestinian government will be under the rule of the Kingdom of Saudi Arabia because it is the right place in the future (The welfare and security of the Palestinian people can be fully guaranteed by the Kingdom of Saudi Arabia)</li>
@@ -827,6 +827,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
