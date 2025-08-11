@@ -142,7 +142,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <div align="justify">
 <ol>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
-<li>If an Indonesian citizen working abroad experiences injury, torture, or similar issues, but no legal proceedings are initiated by the relevant government, that government will be blacklisted. The exception is my two-faced friend who once had a problem with me. You can do whatever you want, which you can share with me, which I call point 7.</li>
+<li>If an Indonesian citizen working abroad experiences injury, torture, or similar issues, but no legal proceedings are initiated by the relevant government, that government will be blacklisted. The exception is my two-faced friend who once had a problem with me. Read point 14, 15, 16, and 17 You can do whatever you want, back to point 7.</li>
 <li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
 <li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
@@ -828,6 +828,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
