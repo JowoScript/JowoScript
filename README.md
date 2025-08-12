@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Perusahaan sekarang gaji pegawai dan lain lain itu jelas sedangkan pemasukannya perusahaannya kecil. Siapa yang bego selama ini hahahahahaa</li>
+<li>Perusahaan sekarang gaji pegawai dan lain lain sudah jelas minus itu jelas sedangkan pemasukannya perusahaannya kecil. Siapa yang bego selama ini hahahahahaa</li>
 <li>Anda yg tidak berguna bukan gue ya. Makan tuh test masuk kerja sebelumnya. Sekecil apapun perusahaan gue tetap gue bos</li>
 <li>Pengusaha indonesia mau bertanding ? belum tentu berhasil niru buat, mau masuk penjara kalo gagal niru ? semua itu ada resikonya. Mau uang tapi tidak ada hasil kerjanya buat laporannya gimana ? kasus itu jelas</li>
 <li>Bisnis jual minuman masih bisa lu tiru. bisnis seperti gue mikir dulu minimal jago coding dan jago coding belum tentu mampu buat bahasa pemerograman</li>
@@ -830,6 +830,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
