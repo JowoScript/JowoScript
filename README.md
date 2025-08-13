@@ -28,6 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Bicara gue masih anak kecil ? oh kita lihat siapa yang goblok teman gue yang bermuka dua. Kalian akan mati di akhir. Akun palsu mu tidak berlaku di medsos selama ini.</li>
 <li>Gue goblok dalam mengerjakan soal test masuk kerja. Belum tentu pintar dalam kerja yang lulus test soal masuk kerja</li>
 <li>Setiap perusahaan yang dulu gue datengin itu pasti gue catat komisaris perusahaannya.</li>
 <li>Makan tuh kasih ke gue soal test masuk kerja waktu dulu gue cari kerja. Lu persulit gue dulu dari soal test sekarang siapa yang tidak berguna. Paham persaingan bisnis makin berat kedepannya. Tenang mau bertanding ? gue kasih tau titik koma salah saja sudah pasti error semua. Selama ini siapa yang goblok ? hello.</li>
@@ -834,6 +835,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
