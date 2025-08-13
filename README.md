@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Makan tuh kasih ke gue soal test masuk kerja waktu dulu gue cari kerja. Lu persulit gue dulu dari soal test sekarang siapa yang tidak berguna. Paham persaingan bisnis makin berat kedepannya. Tenang mau bertanding ? gue kasih tau titik koma salah saja sudah pasti error semua. Selama ini siapa yang goblok ? hello</li>
+<li>Makan tuh kasih ke gue soal test masuk kerja waktu dulu gue cari kerja. Lu persulit gue dulu dari soal test sekarang siapa yang tidak berguna. Paham persaingan bisnis makin berat kedepannya. Tenang mau bertanding ? gue kasih tau titik koma salah saja sudah pasti error semua. Selama ini siapa yang goblok ? hello. Setiap perusahaan yang gue datengin itu pasti gue catat komisaris perusahaannya.</li>
 <li>The company is now clearly running a deficit due to employee salaries and other expenses, while revenue is small. Who's been the fool all this time? Hahahahahaha</li>
 <li>Perusahaan sekarang gaji pegawai dan lain lain sudah jelas minus itu jelas sedangkan pemasukannya perusahaannya kecil. Siapa yang bego selama ini hahahahahaa</li>
 <li>Anda yg tidak berguna bukan gue ya. Sekecil apapun perusahaan gue tetap gue bos</li>
@@ -832,6 +832,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
