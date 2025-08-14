@@ -134,22 +134,12 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Indonesia akan jadi negara maju bukan berkembang lagi kedepanya jika kerjanya benar dan sebaliknya. Paham sampai sini</li>
 </ul>
 
-### Note impulse of Technology Creators
+### Jaminan
 <ul>
-<li>Buy legally, and the rules must be met. Buy illegally  no one is selling or producing it yet. Do you understand ?</li>
-<li>It's getting harder to find work and business competition is getting tougher. Do you understand ?</li>
-<li>In the future, business and finding jobs will be more difficult. Do you understand ?</li>
-<li>Artificial Intelligence and Robotics will replace yours jobs in the future. Do you understand ?</li>
-<li>If you don't have any problem with Muhammad Nurcahyo Pratomo just skip and protected</li>
-<li>Muhammad Nurcahyo Pratomo is noisy but kind</li>
-<li>If you don't have money to buy the product, don't insult it because fall into the hater category. Do you understand ?</li>
-<li>Muhammad Nurcahyo Pratomo create product list with a good stuff and only him can development product list. This hurt and have much experience looks like 50 years more (because alone) but the ages under 40 years thats not bad and good for him to next capability then before</li>
-<li>If you are smart in business, you can buy product list. This simple like a chain business everything company and organization and school</li>
-<li>Muhammad Nurcahyo Pratomo have company alone that a name PT JowoScript Technology Indonesia</li>
-<li>PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far</li>
-<li>PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair</li>
-<li>PT JowoScript Technology Indonesia does not open job vacancies in any country</li>
-<li>Buying the license business product of PT JowoScript Technology Indonesia must be legal and registered under the law. Thats right and not wrong</li>
+<li>PT JOWOSCRIPT TECHNOLOGY INDONESIA, DAN AFILIASI, PENGECER, DISTRIBUTOR, DAN VENDOR, TIDAK MEMBERIKAN JAMINAN, BAIK TERSURAT MAUPUN TERSIRAT, GARANSI, ATAU KETENTUAN SEHUBUNGAN DENGAN PENGGUNAAN LAYANAN OLEH ANDA. ANDA MEMAHAMI BAHWA ANDA MENANGGUNG RISIKO PENGGUNAAN LAYANAN DAN KAMI MEMBERIKAN LAYANAN "SEBAGAIMANA ADANYA", "DENGAN SEGALA KEKURANGANNYA", DAN "SEBAGAIMANA TERSEDIA". MICROSOFT TIDAK MENJAMIN KEAKURATAN ATAU KETEPATAN WAKTU LAYANAN. ANDA MUNGKIN MEMILIKI HAK-HAK TERTENTU MENURUT HUKUM SETEMPAT ANDA. TIDAK ADA SATU BAGIAN PUN DALAM PERSYARATAN INI YANG DIMAKSUDKAN UNTUK MEMENGARUHI HAK TERSEBUT, JIKA MEMANG ADA. ANDA MEMAHAMI BAHWA KOMPUTER DAN SISTEM TELEKOMUNIKASI TIDAK BEBAS DARI KESALAHAN DAN LAYANAN MUNGKIN AKAN SESEKALI TIDAK TERSEDIA. KAMI TIDAK MENJAMIN LAYANAN TIDAK AKAN TERGANGGU, TEPAT WAKTU, AMAN, ATAU BEBAS DARI KESALAHAN ATAU BAHWA HILANGNYA KONTEN TIDAK AKAN TERJADI, ATAU KAMI TIDAK MENJAMIN SAMBUNGAN ATAU TRANSMISI APA PUN DARI JARINGAN KOMPUTER.
+</li>
+<li>SEJAUH YANG DIIZINKAN OLEH HUKUM SETEMPAT, KAMI MENGECUALIKAN JAMINAN TERSIRAT APA PUN, TERMASUK KELAYAKAN UNTUK DIPERDAGANGKAN, KUALITAS YANG MEMUASKAN, KESESUAIAN UNTUK TUJUAN TERTENTU, KECAKAPAN USAHA, DAN KETIADAAN PELANGGARAN.</li>
+</ul>
 
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
@@ -841,6 +831,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
