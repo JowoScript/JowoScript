@@ -28,8 +28,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Kalo gratisan untuk apa gue buat setiap hari coding sendiri dan mikir sendiri</li>
-<li>Yang rusuh yang pengangguran dan tidak mau modal maunya gratisan hahahhaa</li>
+<li>Kalo gratisan untuk apa gue buat setiap hari coding sendiri dan mikir sendiri. Simple logic untuk apa gue buat kalo mau gratisan.</li>
+<li>Yang rusuh yang pengangguran dan tidak mau modal maunya gratisan hahahhaa. Simple logic selama ini kalian bisa menilai.</li>
 <li>Berat badan ideal tidak obesitas itu hidupnya lebih panjang dan sebaliknya</li>
 <li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti DJ nya. I know you are is calon mayat. No matter whats your talks before. Muhammad Nurcahyo Pratomo is smarter than you DJ. Your dont read rules point 14, 15, 16 ? Jika rakyat sudah banyak pengangguran dan bisnis makin sulit mereka akan nurut sama siapa ? Presiden atau partai politik ? bukan keduanya</li>
 <li>Bicara gue masih anak kecil ? oh kita lihat siapa yang goblok teman gue yang bermuka dua. Kalian akan mati di akhir. Akun palsu mu tidak berlaku di medsos selama ini teman gue yang bermasalah. Teman orang tua gue bisa menilai skill gue selama ini badai dan cetar membahana. Teman orang tua gue di balik layar lagi main bola panas. Siapa lagi yang mau bertanding ? the checkmate. Dalam literasi hukum jika bahasa pemerograman gratisan tidak memiliki kekuatan hukum yang tetap dan tidak kuat di mata hukum juga</li>
@@ -841,6 +841,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
