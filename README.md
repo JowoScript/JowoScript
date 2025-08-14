@@ -128,7 +128,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Pembangunan bangsa negara indonesia itu banyak kategorinya seperti pembangunan pendidikan, kesehatan, infrastruktur, pertahanan militer, dan banyak lagi</li>
 <li>Kasus pedagang kaki lima jika di tertibkan barang tidak di ambil negara tapi di balikan ke pedagang tersebut untuk di data tidak melakukan lagi di tempat tersebut jika mengulangin lagi akan di kenakan sangsi, Oknum hanya melakukan tugas dan memberikan surat pengambilan barang tidak lebih dengan syarat jangan pakai kekerasaan kepada pedagang kaki lima karena melanggar kode etik. Kalo barang pedagang kaki lima di ambil oleh oknum melakukan tugas tapi tidak di balikan termasuk kategori pungli dan itu termasuk tindakan kejahatan. Ambil barangnya di pemrov terkait dengan surat yang dikasih pedagang kaki lima. Seperti melakukan penyitaan barang semua ada suratnya tanpa surat itu menyalah gunakan aturan hukum atau tidak resmi</li>
 <li>Pajak Bumi Bangunan naik itu untuk gedung gedung saja dan perumahan elite atau mewah saja ya (Nilai jual tanah bisa di lihat setiap tempat pasti beda) kalo rumah sederhana dan rumah kpr kebawah di kasih pajak bumi bangunan naik ya salah kebijakan (Kebijakan yang benar itu tajam ke atas bukan ke bawah) Mau naik harga sewa gedung atau tidak bukan urusan gue ya</li>
-<li>Pajak bumi bangunan di jakarta dan banten itu santai banyak pabrik dan gedung tidak perlu naikin pbb rakyat kecil kebawah hahahaha daerah lain pikir bukan daerah gue</li>
+<li>Pajak bumi bangunan di jakarta dan banten itu santai banyak pabrik dan gedung tidak perlu naikin pbb rakyat kecil kebawah hahahaha daerah lain pikir saja sendiri bukan daerah gue</li>
 <li>Indonesia akan jadi negara maju bukan berkembang lagi kedepanya jika kerjanya benar dan sebaliknya. Paham sampai sini</li>
 </ul>
 
@@ -839,6 +839,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
