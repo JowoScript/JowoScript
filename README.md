@@ -29,6 +29,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
 <li>Gue motivator secara realitas dan logika sederhana untuk yang muda muda paham sampai sini</li>
+<li>Anak muda sekarang jangan bangga banyak teman kalo susah tidak ada yang nolong kamu kecuali kamu menguntungkan atau berguna atau punya hutang budi</li>
 <li>Gue masih muda kerjanya lebih keras mau berhasil atau tidak sudah terlihat banyak yang tumbang di danai</li>
 <li>Masih muda muda hobi nya santai santai dan tawuran nanti penyesalan di akhir kalo sudah tua</li>
 <li>Diamkan saja yang tidak bisa kerja jadi pengangguran ya itu resiko persaingan kerjja. Waktu terus maju nanti juga sadar diri kalo sudah tua</li>
@@ -834,6 +835,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
