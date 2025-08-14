@@ -28,6 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Masih muda muda hobi nya santai santai dan tawuran nanti penyesalan di akhir kalo sudah tua</li>
 <li>Diamkan saja yang tidak bisa kerja jadi pengangguran ya itu resiko persaingan kerjja. Waktu terus maju nanti juga sadar diri kalo sudah tua</li>
 <li>Kalo gratisan untuk apa gue buat setiap hari coding sendiri dan mikir sendiri. Simple logic untuk apa gue buat kalo mau gratisan.</li>
 <li>Yang rusuh yang pengangguran dan tidak mau modal maunya gratisan hahahhaa. Simple logic selama ini kalian bisa menilai.</li>
@@ -831,6 +832,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
