@@ -112,7 +112,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Mau adu argumentasi tetap gue yang menang. Anda terima jatah apbn dan invenstor selama ini hasil kerjanya apa ?</li>
 </ul>
 
-<!-- case closed i dont wanna teach more
+<!-- case closed i don't wanna teach more about tax
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
 <ul>
 <li>PPh (Pajak Penambahan Hasil) Jika menerima gaji akan di kenakan pajak jika tidak menerima gaji tidak ada pajak. PPh ada ukurannya berapa persen. Do you understand baby ? </li>
@@ -837,6 +837,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
