@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Di danai pemerintah dan investor belum tentu hebat hasil kerjanya. Tidak percaya kita lihat di media siapa yang tumbang</li>
+<li>Di danai pemerintah dan investor belum tentu hebat hasil kerjanya. Tidak percaya kita lihat di media siapa yang tumbang. Siapa yang dapat tekanan dari pimpinan jelas bukan gue ya</li>
 <li>Kalian belum cukup umur dan uang jika beli kingdom studio ya</li>
 <li>Stasiun TV Nasional juga di awasi itu pendanaanya selama ini ya</li>
 <li>I can create many new a project and many new a framework with my new programing language and license legals</li>
@@ -840,6 +840,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
