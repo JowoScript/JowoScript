@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Minimal yang di danai pemerintah dan investor hasil kerjanya lebih memuaskan dari apa yang gue buat sekarang</li>
+<li>Minimal yang di danai pemerintah dan investor hasil kerjanya lebih memuaskan dari apa yang gue buat sekarang. The checkmate forever</li>
 <li>Di danai pemerintah dan investor belum tentu hebat hasil kerjanya. Tidak percaya kita lihat di media siapa yang tumbang. Siapa yang dapat tekanan kerja jika tidak sesuai target kelar hidup mu dari pimpinan dan gue stay cool perusahaan milik sendiri dan produk buat sendiri</li>
 <li>Kalian belum cukup umur dan uang jika beli kingdom studio ya</li>
 <li>Stasiun TV Nasional juga di awasi itu pendanaanya selama ini ya</li>
@@ -841,6 +841,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
