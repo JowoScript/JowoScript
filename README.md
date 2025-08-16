@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Teman gue yang bermasalah sama gue sudah gue tandai semuanya di server khusus. Facebook, linkend, x akun lu palsu gue bisa tau ya salah bermain sama suhu. Selama ini gue diamkan dulu kita lihat waktu terus maju siapa yang tidak berguna. Gue tinggal buka data server khusus</li>
+<li>Teman gue yang bermasalah sama gue sudah gue tandai semuanya di server khusus. Facebook, linkend, x akun lu palsu gue bisa tau ya salah bermain sama suhu. Selama ini gue diamkan dulu kita lihat waktu terus maju siapa yang tidak berguna. Gue tinggal buka data server khusus semua itu di remote server dari dulu</li>
 <li>Lu susah tidak ada yang nolong tapi kalo lu sukses banyak yang dekat</li>
 <li>Minimal yang di danai pemerintah dan investor hasil kerjanya lebih memuaskan dari apa yang gue buat sekarang. Bukan kebanyakan nuntut habiskan anggaran saja ya. The checkmate forever. Jika anda merasa dari perkataan gue jadi anda tidak berkompeten dengan persaingan</li>
 <li>Di danai pemerintah dan investor belum tentu hebat hasil kerjanya. Tidak percaya kita lihat di media siapa yang tumbang. Siapa yang dapat tekanan kerja jika tidak sesuai target kelar hidup mu dari pimpinan dan gue stay cool perusahaan milik sendiri dan produk buat sendiri</li>
@@ -843,6 +843,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
