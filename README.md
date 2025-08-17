@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Tuh big bad wolf tahun 2017 mau nembak gue waktu kerja</li>
+<li>Tuh big bad wolf tahun 2017 mau nembak gue waktu kerja. Mau gue buka chat whatsapp semuanya di publik ?</li>
 <li>Anda merasa pintar ? coba saja sendiri buat baru paham nanti bacotan gue</li>
 <li>Gue punya senjata api, nyali gue bukan anak kecil, skill coding gue di kelas top level, produk teknologi gue yang buat. Mau cari masalah ?</li>
 <li>Ada jabatan di atas 20 tahun ? belajar dari negara besar siapa yg dominasi teknologi informasi dia akan kuat contoh IBM, Microsoft, Google itu teknologi informasi produknya bukan jabatan produknya</li>
@@ -847,6 +847,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
