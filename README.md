@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Gue punya senjata api, nyali gue bukan anak kecil, skill coding di atas rata rata, produk teknologi gue yang buat. Mau cari masalah ?</li>
+<li>Gue punya senjata api, nyali gue bukan anak kecil, skill coding gue di top level, produk teknologi gue yang buat. Mau cari masalah ?</li>
 <li>Ada jabatan di atas 20 tahun ? belajar dari negara besar siapa yg dominasi teknologi informasi dia akan kuat contoh IBM, Microsoft, Google itu teknologi informasi produknya bukan jabatan produknya</li>
 <li>Teman gue yang bermasalah sama gue sudah gue tandai semuanya di server khusus baik itu waktu sekolah dan bermain. Facebook, linkend, x akun lu palsu gue bisa tau ya salah bermain sama suhu. Selama ini gue diamkan dulu kita lihat waktu terus maju siapa yang tidak berguna. Gue tinggal buka data server khusus semua itu di remote server dari dulu. Koruptor saja banyak kena selama ini. Jabatan itu hanya sementara ya dan teknologi informasi itu selamanya dan selalu dinamis</li>
 <li>Lu susah tidak ada yang nolong tapi kalo lu sukses banyak yang dekat</li>
@@ -845,6 +845,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
