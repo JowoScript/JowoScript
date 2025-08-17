@@ -30,6 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <ul>
 <li>Selama belum beli ya nonton saja itu aturannya</li>
 <li>Biar rakyat bisa berfikir sendiri ya nantinya</li>
+<li>Banyak pejabat dari kementrian, anggota dewan sampai bumn terima gaji dan tunjangan besar selama ini ya</li>
 <li>Gue miskin gimana perusahaan IT selama ini di Danai harusnya lebih miskin dari gue. Simple logic kalo mau minta gratisan</li>
 <li>Gue miskin dan pengangguran harusnya pejabatnya lebih miskin dari gue terima gaji dan tunjangan dari rakyat selama ini. Simple logic kalo mau minta gratisan</li>
 <li>My info dont invest until buy licese my product</li>
@@ -857,6 +858,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
