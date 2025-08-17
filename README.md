@@ -28,11 +28,11 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li></li>
 <li>Sudah miskin, goblok, hidup lagi mau beli produk kingdom studio hahahaha</li>
 <li>Mau gratisan ? buat saja sendiri di akhir failed ya. siapa yang malu. Kalo failed pasti ada resikonya itu jelas. Uang yang bicara kalo mau beli</li>
 <li>Diamkan saja yang pengangguran dan tidak berguna nanti juga mati sendirinya. Gue juga dulu di gituin ya.</li>
-<li>Ok i will upgrade experience to 50 years+</li>
-<li>Gue tau gaji lead arsitektur teknologi itu paling besar dari pada chief dan komisaris. Kalo sendiri mampu buat siapa yang paling badai</li>
+<li>Ok i will upgrade experience to 50 years more</li>
 <li>Tidak ada yang failed gue buat. Failed itu yang lebih goblok dari gue</li>
 <li>Tuh big bad wolf (Jualan buku) tahun 2017 mau nembak gue waktu kerja. Mau gue buka chat whatsapp semuanya di publik ? Sekarang main hancur hancuran siapa yang tidak berguna</li>
 <li>Anda merasa pintar ? coba saja sendiri buat baru paham nanti bacotan gue</li>
@@ -853,6 +853,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
