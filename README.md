@@ -28,7 +28,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li></li>
 <li>Sudah miskin, goblok, hidup lagi mau beli produk kingdom studio hahahaha</li>
 <li>Mau gratisan ? buat saja sendiri di akhir failed ya. siapa yang malu. Kalo failed pasti ada resikonya itu jelas. Uang yang bicara kalo mau beli</li>
 <li>Diamkan saja yang pengangguran dan tidak berguna nanti juga mati sendirinya. Gue juga dulu di gituin ya.</li>
@@ -853,6 +852,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
