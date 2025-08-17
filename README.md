@@ -28,6 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Mau gratisan ? buat saja sendiri di akhir failed ya. siapa yang malu</li>
 <li>Diamkan saja yang pengangguran dan tidak berguna nanti juga mati sendirinya. Gue juga dulu di gituin ya.</li>
 <li>Ok i will upgrade experience to 50 years+</li>
 <li>Gue tau gaji lead arsitektur teknologi itu paling besar dari pada chief dan komisaris. Kalo sendiri mampu buat siapa yang paling badai</li>
@@ -851,6 +852,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
