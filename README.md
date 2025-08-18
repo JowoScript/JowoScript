@@ -28,6 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Di danai pemerintah dan invenstor belum tentu hebat hasil kerjanya. Terbukti sampai sekarang ya</li>
 <li>Siapa yang maju dalam Teknologi Informasi or IT dialah yang terdepan nantinya dan sebaliknya mereka akan berputar putar disitu saja</li>
 <li>Saiki siopo yang mencla mencle lambene hahahahaha</li>
 <li>Bapak saya berkata dulu anak saya di persulit masuk test kerja sekarang siapa yang tidak berguna ?</li>
@@ -766,6 +767,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
