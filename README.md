@@ -29,109 +29,9 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
 <li>Selama belum beli ya nonton saja itu aturannya</li>
-<li>Biar rakyat bisa berfikir sendiri ya nantinya</li>
-<li>Banyak pejabat dari kementrian, anggota dewan sampai bumn terima gaji dan tunjangan besar selama ini ya</li>
-<li>Gue miskin gimana perusahaan IT selama ini di Danai harusnya lebih miskin dari gue. Simple logic kalo mau minta gratisan</li>
-<li>Gue miskin dan pengangguran harusnya pejabatnya lebih miskin dari gue terima gaji dan tunjangan dari rakyat selama ini. Simple logic kalo mau minta gratisan</li>
-<li>My info dont invest until buy licese my product</li>
-<li>Sudah miskin, goblok, hidup lagi mau beli produk kingdom studio hahahaha</li>
-<li>Mau gratisan ? buat saja sendiri di akhir failed ya. siapa yang malu. Kalo failed pasti ada resikonya itu jelas. Uang yang bicara kalo mau beli</li>
-<li>Diamkan saja yang pengangguran dan tidak berguna nanti juga mati sendirinya. Gue juga dulu di gituin ya.</li>
-<li>Ok i will upgrade experience to 50 years more</li>
-<li>Tidak ada yang failed gue buat. Failed itu yang lebih goblok dari gue</li>
-<li>Tuh big bad wolf (Jualan buku) tahun 2017 mau nembak gue waktu kerja. Mau gue buka chat whatsapp semuanya di publik ? Sekarang main hancur hancuran siapa yang tidak berguna</li>
-<li>Anda merasa pintar ? coba saja sendiri buat baru paham nanti bacotan gue</li>
-<li>Gue punya senjata api, nyali gue bukan anak kecil, skill coding gue di kelas top level, produk teknologi gue yang buat sendiri. Mau cari masalah ? Uang yang bicara kalo mau beli</li>
-<li>Ada jabatan di atas 20 tahun ? belajar dari negara besar siapa yg dominasi teknologi informasi dia akan kuat contoh IBM, Microsoft, Google itu teknologi informasi produknya bukan jabatan produknya</li>
-<li>Teman gue yang bermasalah sama gue sudah gue tandai semuanya di server khusus baik itu waktu sekolah dan bermain. Facebook, linkend, x akun lu palsu gue bisa tau ya salah bermain sama suhu. Selama ini gue diamkan dulu kita lihat waktu terus maju siapa yang tidak berguna. Gue tinggal buka data server khusus semua itu di remote server dari dulu. Koruptor saja banyak kena selama ini. Jabatan itu hanya sementara ya dan teknologi informasi itu selamanya dan selalu dinamis</li>
-<li>Lu susah tidak ada yang nolong tapi kalo lu sukses banyak yang dekat</li>
-<li>Minimal yang di danai pemerintah dan investor hasil kerjanya lebih memuaskan dari apa yang gue buat sekarang. Bukan kebanyakan nuntut habiskan anggaran saja ya. The checkmate forever. Jika anda merasa dari perkataan gue jadi anda tidak berkompeten dengan persaingan</li>
-<li>Di danai pemerintah dan investor belum tentu hebat hasil kerjanya. Tidak percaya kita lihat di media siapa yang tumbang. Siapa yang dapat tekanan kerja jika tidak sesuai target kelar hidup mu dari pimpinan dan gue stay cool perusahaan milik sendiri dan produk buat sendiri</li>
-<li>Kalian belum cukup umur dan uang jika beli kingdom studio ya</li>
-<li>Stasiun TV Nasional juga di awasi itu pendanaanya selama ini ya</li>
-<li>I can create many new a project and many new a framework with my new programing language and license legals</li>
-<li>Gue motivator secara realitas dan logika sederhana untuk yang muda muda paham sampai sini</li>
-<li>Anak muda sekarang jangan bangga banyak teman kalo susah tidak ada yang nolong kamu kecuali kamu menguntungkan atau berguna atau punya hutang budi</li>
-<li>Gue masih muda kerjanya lebih keras mau berhasil atau tidak sudah terlihat banyak yang tumbang di danai</li>
-<li>Masih muda muda hobi nya santai santai dan tawuran nanti penyesalan di akhir kalo sudah tua</li>
-<li>Diamkan saja yang tidak bisa kerja jadi pengangguran ya itu resiko persaingan kerjja. Waktu terus maju nanti juga sadar diri kalo sudah tua</li>
-<li>Kalo gratisan untuk apa gue buat setiap hari coding sendiri dan mikir sendiri. Simple logic untuk apa gue buat kalo mau gratisan.</li>
-<li>Yang rusuh yang pengangguran dan tidak mau modal maunya gratisan hahahhaa. Simple logic selama ini kalian bisa menilai.</li>
-<li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti DJ nya. I know you are is calon mayat. No matter whats your talks before. Muhammad Nurcahyo Pratomo is smarter than you DJ. Your dont read rules point 14, 15, 16 ? Jika rakyat sudah banyak pengangguran dan bisnis makin sulit mereka akan nurut sama siapa ? Presiden atau partai politik ? bukan keduanya</li>
-<li>Bicara gue masih anak kecil ? oh kita lihat siapa yang goblok teman gue yang bermuka dua. Kalian akan mati di akhir. Akun palsu mu tidak berlaku di medsos selama ini teman gue yang bermasalah. Teman orang tua gue bisa menilai skill gue selama ini badai dan cetar membahana. Teman orang tua gue di balik layar lagi main bola panas. Siapa lagi yang mau bertanding ? the checkmate. Dalam literasi hukum jika bahasa pemerograman gratisan tidak memiliki kekuatan hukum yang tetap dan tidak kuat di mata hukum juga</li>
-<li>Gue goblok dalam mengerjakan soal test masuk kerja. Belum tentu pintar dalam kerja yang lulus test soal masuk kerja</li>
-<li>Setiap perusahaan yang dulu gue datengin itu pasti gue catat komisaris perusahaannya.</li>
-<li>Makan tuh kasih ke gue soal test masuk kerja waktu dulu gue cari kerja. Lu persulit gue dulu dari soal test sekarang siapa yang tidak berguna. Paham persaingan bisnis makin berat kedepannya. Tenang mau bertanding ? gue kasih tau titik koma salah saja sudah pasti error semua. Selama ini siapa yang goblok ? hello.</li>
-<li>The company is now clearly running a deficit due to employee salaries and other expenses, while revenue is small. Who's been the fool all this time? Hahahahahaha</li>
-<li>Perusahaan sekarang gaji pegawai dan lain lain sudah jelas minus itu jelas sedangkan pemasukannya perusahaannya kecil. Siapa yang bego selama ini hahahahahaa</li>
-<li>Anda yg tidak berguna bukan gue ya. Sekecil apapun perusahaan gue tetap gue bos</li>
-<li>Pengusaha indonesia mau bertanding ? belum tentu berhasil niru buat, mau masuk penjara kalo gagal niru ? semua itu ada resikonya. Mau uang tapi tidak ada hasil kerjanya buat laporannya gimana ? kasus itu jelas</li>
-<li>Bisnis jual minuman masih bisa lu tiru. bisnis seperti gue mikir dulu minimal jago coding dan jago coding belum tentu mampu buat bahasa pemerograman</li>
-<li>Kalo hanya main IPO saja anak tk juga bisa tapi paham resikonya. Mau kaya tapi masuk penjara namanya goblok. Seperti contoh kasus sebelumnya Gibran Huzaifah Detained, belum kasus Doni Salmanan. paham sampai sini carzy rich masuk penjara ? malu dong gaya elit masuk penjara. Whos the next mau ikut masuk penjara ?</li>
-<li>Perusahaan bangun jalan toll gimana kabarnya sekarang ? Uang balik modal tidak sampai sekarang. Sinau sekarang sama gue</li>
-<li>Sehebat hebatnya kamu meniru gue belum tentu bisa minimal skill coding harus di atas rata rata bukan skill beli ijasah atau lulus masuk kerja lewat orang dalam atau keberuntungan saja apa lagi skripsi atau tesis atau disertasi di buatin orang lain. Simple logic. Paham sampai sini penjelasannya. Sombong boleh asal pintar. The checkmate</li>
-<li>Contoh Orang buka usaha sendiri apa bukan bossnya sendiri ? logika sederhana</li>
-<li>No matter how small my business is, I'm still the boss and only me can development my product</li>
-<li>Muhammad Nurcahyo Pratomo or me not using government money and not using investor money in making all products so far</li>
-<li>PT JowoScript Technology Indonesia is own my company alone (Muhammad Nurcahyo Pratomo)</li>
-<li>PT JowoScript Technology Indonesia not using government money and not using investor money in making all products so far</li>
-<li>PT JowoScript Technology Indonesia product listing is not free and you must purchase a business license to activate all features. This all fair</li>
-<li>PT JowoScript Technology Indonesia does not open job vacancies in any country</li>
-<li>Purchase of PT JowoScript Technology Indonesia's licensed business products must be legal and registered with the law</li>
-<li>PT JowoScript Technology Indonesia product listing not sold on the public market and black market well you buy is fake product</li>
-<li>Purchase of PT JowoScript Technology Indonesia's licensed business products must be Basic Regulatory Requirements for Registration and Purchase</li>
 </ul>
 
-### Muhammad Nurcahyo Pratomo Mission
-<ul>
-<li>Israel will not stop war if Palestine is not cleared of Hamas. The Hamas group has vowed to destroy Israel and replace it with an Islamic state. Before Israel was founded, this place was home to three religions: Islam, Christianity, and Judaism. You should know the history of the land. Read my solution below.</li>
-<li>The solution is the Palestinian government can be re-established and the Palestinian population can be re-registered and the Palestinian infrastructure can be rebuilt to be better. This is peace forever between palestine and israel (No war every day) and no more people die as a result of war. I hope that the future Palestinian government will be under the rule of the Kingdom of Saudi Arabia because it is the right place in the future (The welfare and security of the Palestinian people can be fully guaranteed by the Kingdom of Saudi Arabia)</li>
-<li>Kalo hanya main IPO saja anak tk juga bisa tapi paham resikonya. Mau kaya tapi masuk penjara namanya goblok. Seperti contoh kasus sebelumnya Gibran Huzaifah Detained, belum kasus Doni Salmanan. paham sampai sini carzy rich masuk penjara ? malu dong gaya elit. Whos the next mau ikut masuk penjara ?</li>
-<li>Di kira gue tidak tau anak muda licik licik main IPO di belakang gue tapi goblok tidak bisa kembangkan produk. Salah bermain kalian sama gue, kalian akan bermasalah dengan hukum, orang mau kaya tapi masuk penjara dan bermasalah itu banyak ya di akhir bukan gue ya</li>
-<li>Sinau meneh kalian https://www.youtube.com/watch?v=WU6HptnXDzY</li>
-<li>Orang mau kaya tapi masuk penjara dan bermasalah itu banyak ya dan ini akan terus berlanjut. Paham sampai sini</li>
-<li>Kalo belajar sejarah lahirnya israel anak tk juga bisa belajar tapi kamu sanggup belajar sejarah sebuah ideologi di negara arab sebelum terbelah belah jadi iran sendiri, emirat  sendiri dan seterusnya ?  gue sudah belajar semuanya intinya isinya keras kepala semua</li>
-<li>Iam muslim but iam not ideology between Shia and Sunni. Learn beyond https://en.wikipedia.org/wiki/Shia–Sunni_relations [tidak bisa bahasa inggris sekolah meneh]</li>
-<li>Iam watching Palestine political (Shia People) internal see condicition with Arab Saudi political internal (Sunni People). (I have so far only observed the religious ideology between Shia and Sunni) I'm not stupid all this time about the war who is the mastermind. How many of you have killed your own brothers and sisters over different ideologies ? Jews love peace, if they don't love peace they can easily expel Muslims from Al-Aqsa and this will be big war with jews and muslims if jews expel muslims</li>
-<li>Satu warga negara indonesia kerja di luar negeri di lukai atau disiksa dan sejenisnya tapi tidak ada prosess hukum di pemerintahannya bersangkutan maka pemerintahan tersebut masuk blacklist</li>
-<li>Aturan tetap aturan gue buat ya. Tegak lurus. Siapa yang butuh itu gue ? belajar dari sejarah</li>
-<li>Rakyat Indonesia bisa melihat siapa yang tidak berani sahkan undang undang perampasan asset ? tugas anggota dewan selama ini yang tidak berani sahkan. Kalo bersih kenapa takut ?</li>
-<li>Siapa api politik ? Kalo yang bersih tidak takut ya dan sebaliknya</li>
-<li>Paham artinya bersih tidak neko neko atau aneh aneh yaitu menerima gaji dan tunjangan saja dalam bekerja dan ikutin aturan sop yang ada dan taat hukum dan sebaliknya</li>
-<li>Jangan salahkan pemerintah kalo ada badai PHK karena itu resiko persaingan kerja dan persaingan bisnis dari dulu begituh ya</li>
-<li>Orang tidak berguna pasti di singkirkan dari dulu begituh ya</li>
-<li>No merger of companies</li>
-<li>Tidak ada hasil kerjanya anak IT itu resiko anda ya bukan gue ya</li>
-<li>Gue ungkit dulu dulu gimana ?</li>
-<li>Oknum mana lagi yang mau korupsi ?</li>
-<li>Gue buat produk bahasa pemrograman baru sendiri tidak pakai uang negara dan invenstor dan tidak di modali orang tua juga apa lagi sodara dan apa lagi teman, pure skill semua gue buat sendiri</li>
-<li>Kalo mau pakai bahasa pemrograman baru gue buat wajib bayar. Adil bukan</li>
-<li>Siapa yang butuh nanti juga bukan gue karena gue bukan orang bodoh. Paham sampai sini</li>
-<li>Tenang saja ? Persaingan makin berat kedepannya dan biaya sekolah juga naik terus dan biaya hidup juga naik terus. The checkmate forever siapa rajanya</li>
-<li>Orang bodoh selalu maki maki orang yang lebih cerdas</li>
-<li>Sekecil apapun perusahaan gue tetap gue bossnya</li>
-<li>Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas</li>
-<li>Permintaan Gaji orang cerdas itu tidak ada yang murah ya. Sendiri saja mampu</li>
-<li>I think long term by time</li>
-<li>I think with different people in general</li>
-<li>I'm work for create money not find money</li>
-<li>I'm work for create value product not find value product</li>
-<li>No matter how small my business is, I'm still the boss</li>
-<li>I can create many new a project with my new programing language and license legals</li>
-<li>Read this one too : Muhammad Nurcahyo Pratomo create product list with a good stuff and only him can development product list. This hurt and have much experience looks like 50 years more (because alone) but the ages under 40 years thats not bad and good for him to next capability then before</li>
-<li>Nanti juga akan mati sendiri yang di danai pemerintah dan investor. Mereka bisnisnya putar disitu saja</li>
-<li>Aturan tetap aturan gue dulu juga di gituin</li>
-<li>Tunggu waktu saja siapa yang tidak berguna nantinya. Kalian gaji pegawai sudah otomatis minus terus belum biaya lainnya ya</li>
-<li>Gue ungkit waktu dulu dulu teman gue yang bermasalah sama gue di Indonesia + Malaysia dan yang persulit gue dulu masuk test kerja di Indonesia + Malaysia kalo mau adu argumentasi.
-</li>
-<li>Siapa yang mati ya teman gue yg bermasalah itu aturan pembelian produk</li>
-<li>Gue bukan orang miskin ya kasihan deh lu siapa yang tidak berguna ? waktu terus maju dan jelas produk gue buat makin berkembang</li>
-<li>Perusahaan mana lagi akan tutup paham sampai sini dan persaingan makin berat kedepannya</li>
-<li>Berapa banyak kasus koruptor ? Paham sampai sini</li>
-<li>Berapa banyak pengangguran meningkat ? Paham sampai sini</li>
-<li>Sebelum menghina gue tak suruh ngaca dulu kamu. Paham sampai sini</li>
-<li>Mau adu argumentasi tetap gue yang menang. Anda terima jatah apbn dan invenstor selama ini hasil kerjanya apa ?</li>
-</ul>
+
 
 <!-- case closed i don't wanna teach more about tax
 ### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
@@ -858,6 +758,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
