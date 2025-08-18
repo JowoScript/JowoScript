@@ -28,6 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Bapak saya berkata jika tidak punya uang nonton saja kalian orang orang tidak berguna banyak gaya tapi tidak berkompoten</li>
 <li>Selama belum beli ya nonton saja itu aturannya</li>
 <li>JowoScript available on Kingdom Studio</li>
 <li>Jowo Kingdom Studio available on Kingdom Studio</li>
@@ -761,6 +762,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
