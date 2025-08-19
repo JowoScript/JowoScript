@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Kita lihat perusahaan mana lagi tutup bayar hutang dari saham. Kalo goblok itu sadar diri</li>
+<li>Kita lihat perusahaan mana lagi tutup bayar hutang dari saham. Kalo goblok itu sadar diri paham perusahaan gue tidak go publik ya</li>
 <li>Lulusan sarjana asli dan gelar boleh sarjana tapi skill coding professor itu baru benar ya</li>
 <li>Saiki siopo yang mencla mencle lambene hahahahaha</li>
 <li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti dj nya lambemu nothing</li>
@@ -787,6 +787,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
