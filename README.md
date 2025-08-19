@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Jadi pengusaha itu berat eh ada yang mau enaknya doang mau gratisan. The checkmate forever</li>
+<li>Jadi pengusaha itu berat eh ada yang mau enaknya doang mau gratisan 😄. The checkmate forever</li>
 <li>Example jhtml code future [div] small talk [/div] or can double with html &#x3C;div&#x3E; small talk &#x3C;/div&#x3E;[div] small talk [/div] available on Kingdom Studio</li>
 <li>Jika tidak laku di pasaran gue bisa pakai sendiri nantinya siapa yg goblok itu bedanya gue sudah prediksi dulu sebelumnya</li>
 <li>Kalo harganya naik tidak turun selama ini target pasar gue world wide. Biar pada turun gaji dan tunjangan di pemerintahan</li>
@@ -774,6 +774,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
