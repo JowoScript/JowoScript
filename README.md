@@ -29,7 +29,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
 <li>Saiki siopo yang mencla mencle lambene hahahahaha</li>
-<li>DJ nya makin tinggi terus makan garam chino hahahahaha. Kasih garam chino ke dj nya pak polisi 1 ton garam chino kalo perlu hahahaha</li>
+<li>DJ nya makin tinggi terus makan garam chino hahahahaha. Kasih garam chino ke dj nya pak polisi 1 ton garam chino kalo perlu hahahaha biar ngefly every day</li>
 <li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti dj nya lambemu nothing</li>
 <li>Status gue pengusaha sendiri sekarang. Apa gunanya gue setiap hari buat. Cuekin saja yang pengangguran dan skillnya biasa biasa saja</li>
 <li>Sekarang levelnya beda dong bukan Ai mainanya gue. Buat bahasa pemrograman sendiri. Dari 2021 sampai sekarang siapa yang tumbang</li>
@@ -780,6 +780,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
