@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Sekarang levelnya beda dong bukan Ai mainanya gue. Buat bahasa pemrograman sendiri..</li>
+<li>Sekarang levelnya beda dong bukan Ai mainanya gue. Buat bahasa pemrograman sendiri. Dari 2021 sampai sekarang siapa yang tumbang ?</li>
 <li>Yang nguji gue saja dulu diam waktu skripsi gue buatnya beda sendiri face recognition di android tahun 2016 akhir dan lulus tahun 2017</li>
 <li>Pak jokowi ipk di bawah 2 itu benar apa tidak ? kalo benar bikin malu gue saja. ipk gue saja di atas 3 jadi pengangguran tetap stay cool</li>
 <li>Jadi pengusaha itu berat eh ada yang mau enaknya doang mau gratisan 😄. The checkmate forever</li>
@@ -777,6 +777,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
