@@ -34,12 +34,13 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+
 <li>Akhir tahun pemegang saham pasti nanya hasil kerjanya ke publik. Siapa yang tutup dan bayar hutang ke pemegang saham</li>
 <li>Diamkan saja yang pengangguran dan tidak punya perusahaan. Waktu terus maju</li>
 <li>Kita lihat perusahaan mana lagi tutup bayar hutang dari saham. Kalo goblok itu sadar diri paham perusahaan gue tidak go publik ya</li>
 <li>Lulusan sarjana asli dan gelar boleh sarjana tapi skill coding professor itu baru benar ya</li>
 <li>Saiki siopo yang mencla mencle lambene hahahahaha</li>
-<li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti dj nya lambemu nothing</li>
+<li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti dj nya lambemu nothing, pecundang dan pengecut</li>
 <li>Status gue pengusaha sendiri sekarang. Apa gunanya gue setiap hari buat. Cuekin saja yang pengangguran dan skillnya biasa biasa saja</li>
 <li>Sekarang levelnya beda dong bukan Ai mainanya gue. Buat bahasa pemrograman sendiri. Dari 2021 sampai sekarang siapa yang tumbang</li>
 <li>Dosen nguji gue saja dulu diam waktu skripsi gue buatnya beda sendiri face recognition di android tahun 2016 akhir dan lulus tahun 2017</li>
@@ -789,6 +790,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
