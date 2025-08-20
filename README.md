@@ -34,6 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Perusahaan milik sendiri gue mau berisik suka suka gue 10000% saham perusahaan milik gue kalo go publik</li>
 <li>Kita lihat saja di danai selama ini banyak bacot tapi tidak ada hasil kerjanya. Mampus lu</li>
 <li>Kingdom Studio berkembang terus setiap waktu dan setiap hari</li>
 <li>Teman gue yang bermasalah anaknya sudah gue tandai semuanya baik baik kau. Jaga baik baik anakmu di luar sekolah masih SD dan SMP</li>
@@ -794,6 +795,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
