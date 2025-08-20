@@ -65,7 +65,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Jowo Hypertext Markup Language available on kingdom studio</li>
 <li>JowoScript available on Kingdom Studio</li>
 <li>Jowo Kingdom Studio available on Kingdom Studio</li>
-<li>75 triliun perbulan mampu beli kingdom studio ?</li>
+<li>75 triliun perbulan mampu beli kingdom studio ? Gaji dan tunjangan jabatan mana mampu beli harga segini gue tanya.</li>
 </ul>
 
 
@@ -795,6 +795,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
