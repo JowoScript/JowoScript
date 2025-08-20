@@ -34,6 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Gue di sebut penjajah gimana yang lain seperti bayar listrik, bayar uang sekolah, bayar pajak, bayar perpanjang sim-stnk, makan-minum bayar, bayar bensin kendaraan, dan banyak lagi</li>
 <li>Perusahaan milik sendiri gue mau berisik suka suka gue 10000% saham perusahaan milik gue kalo go publik</li>
 <li>Kita lihat saja di danai selama ini banyak bacot tapi tidak ada hasil kerjanya. Mampus lu</li>
 <li>Kingdom Studio berkembang terus setiap waktu dan setiap hari</li>
@@ -795,6 +796,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
