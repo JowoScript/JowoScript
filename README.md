@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Kabarin saja anakmu dj masih ada masa depannya ?</li>
+<li>Kabarin saja anakmu dj masih ada masa depannya ? baik baik yang tidak pernah terlihat di publik seperti gue</li>
 <li>Tidak butuh bantuan apa lagi beban seperti kau DJ skill coding biasa biasa saja</li>
 <li>Akhir tahun pemegang saham pasti nanya hasil kerjanya ke publik. Siapa yang tutup dan bayar hutang ke pemegang saham</li>
 <li>Diamkan saja yang pengangguran dan tidak punya perusahaan. Waktu terus maju</li>
@@ -791,6 +791,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
