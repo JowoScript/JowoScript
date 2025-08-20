@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Gue di sebut firaun khusus hater gue dan pencudang saja. Setidaknya gue tidak mencuri uang negara ya apa lagi menuntut ke pemerintah selama ini seperti minta naik gaji dan tunjangan apa lagi minta proyek ya. sorry yee</li>
+<li>Gue di sebut firaun khusus hater gue dan pencudang saja. Setidaknya gue tidak mencuri uang negara ya apa lagi menuntut ke pemerintah selama ini seperti minta naik gaji dan tunjangan apa lagi minta proyek ya. sorry yee. target gue bukan indonesia tapi world wide market</li>
 <li>Gue di sebut penjajah gimana yang lain seperti bayar listrik, bayar uang sekolah, bayar pajak, bayar perpanjang sim-stnk, makan-minum bayar, bayar bensin kendaraan, bayar internet dan banyak lagi ya. Fakta dan allah swt maha mengetahui segala galanya di masa depan and allah swt always with me.</li>
 <li>Perusahaan milik sendiri gue mau berisik suka suka gue 10000% saham perusahaan milik gue kalo go publik</li>
 <li>Kita lihat saja di danai selama ini banyak bacot tapi tidak ada hasil kerjanya. Mampus lu</li>
@@ -797,6 +797,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
