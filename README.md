@@ -48,7 +48,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <ul>
 <li>75 trillion rupiah per month or 900 trillion rupiah per year, can you afford Kingdom Studio? Who is useless, I ask now? Business competition will only get tougher in the future, won't it..</li>
 <li>Don't give debt or invest to Indonesia before buying Kingdom Studio products</li>
-<li>Anak pejabat atau jendral mana lagi suka nitip kerja nanti terlihat</li>
+<li>Siapa lagi suka nitip kerja nanti terlihat</li>
 <li>IPK saya di atas 3.0 saja di buat nganggur dan di persulit masuk test kerja gimana di bawah 3.0. The checkmate again</li>
 <li>Tidak bisa kerja ya pecat pecatin saja gue juga dulu di gituin di tekan kerja. The checkmate again</li>
 <li>Banyak Rumah sakit, supermarket, televisi, bank, berita dan hiburan yg sepi pemasukannya saja mampu berdiri dan bertahan kenapa gue tidak bisa. Mudah bagi gue untuk perbandingan. The checkmate again</li>
@@ -793,6 +793,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
