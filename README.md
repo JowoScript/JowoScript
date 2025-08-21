@@ -79,6 +79,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Kalo harganya naik tidak turun selama ini target pasar gue world wide. Biar pada turun gaji dan tunjangan di pemerintahan. The checkmate again</li>
 <li>Di danai pemerintah dan invenstor belum tentu hebat hasil kerjanya. Terbukti sampai sekarang ya. The checkmate again</li>
 <li>Siapa yang maju dalam Teknologi Informasi or IT dialah yang terdepan nantinya dan sebaliknya mereka akan berputar putar disitu saja tidak maju. The checkmate again</li>
+<li>IPK di atas 3 saja di buat nganggur dan di persulit masuk test kerja gimana di bawah 3.0</li>
 <li>Bapak saya berkata dulu anak saya di persulit masuk test kerja sekarang siapa yang tidak berguna ? The checkmate again</li>
 <li>Bapak saya berkata tunggu waktu perusahaan mana lagi tutup tidak di danai. The checkmate again</li>
 <li>Bapak saya berkata jika tidak punya uang nonton saja kalian orang orang tidak berguna banyak gaya tapi tidak berkompoten. The checkmate again</li>
@@ -818,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
