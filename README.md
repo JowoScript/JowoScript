@@ -46,6 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>75 trillion rupiah per month or 900 trillion rupiah per year, can you afford Kingdom Studio? Who is useless, I ask now? Business competition will only get tougher in the future, won't it..</li>
 <li>Don't give debt or invest to Indonesia before buying Kingdom Studio products</li>
 <li>Anak pejabat atau jendral mana lagi suka nitip kerja nanti terlihat</li>
 <li>IPK saya di atas 3.0 saja di buat nganggur dan di persulit masuk test kerja gimana di bawah 3.0. The checkmate again</li>
@@ -95,36 +96,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>75 triliun rupiah perbulan atau 900 Triliun rupiah pertahun mampu beli kingdom studio ? Siapa yang tidak berguna gue tanya sekarang. Makin berat bukan kedepanya persaingan bisnis</li>
 </ul>
 
-
-
-<!-- case closed i don't wanna teach more about tax
-### Muhammad Nurcahyo Pratomo The smart person and smoothy intro of tax regulation (aturan pajak) in Indonesia 
-<ul>
-<li>PPh (Pajak Penambahan Hasil) Jika menerima gaji akan di kenakan pajak jika tidak menerima gaji tidak ada pajak. PPh ada ukurannya berapa persen. Do you understand baby ? </li>
-<li>PPn (Pajak Penambahan Nilai) Jika anda menjual produk maka beban pajak di bayar oleh pembeli produk bukan pembuat produk atau penjual produk. PPn ada ukurannya berapa persen. Do you understand baby ?</li>
-<li>Contoh kamu menjual perangkat lunak atau software produk akan kena pajak penambahan nilai yang beli software produk dan yang buat software tidak kena Pajak Penambahan Hasil (PPh) karena tidak menerima gaji dan hanya kena Pajak Penambahan Nilai (PPn) perusahaannya dari hasil pembelian produk. Perusahaan atau pemerintah mana berani beli Produk PT JowoScript Technology Indonesia kalo tidak habis bayar pajak penambahan nilai (PPn). Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas. Sudah paham sampai sini sekolah pajak nya</li>
-<li>Contoh kamu membeli barang bajakan atau palsu tidak ada jaminannya dari yang buat produk (Contoh tidak dapat fiture baru dan udate terbaru). Produk PT JowoScript Technology Indonesia tidak di jual di pasar publik atau bebas karena pembeliannya wajib secara legal. Paham Orang bodoh selalu maki maki orang yang lebih cerdas dan Orang cerdas tidak perlu pujian dan maki maki karena tau dirinya berkualitas. Jika belinya secara legal tidak ada yang di rugikan. Jika tidak punya uang tidak usah beli. Simple logic</li>
-<li>Contoh kamu menerima gaji dari hasil konten di platform sosial media akan kena pajak penambahan penghasilan (PPh) dan platform sosial media wajib setor pajak penghasilan dari konten kreator ke negara indonesia dan pendapatan platform sosial media hanya dari biaya administrasi saja karena menyediakan platform sosial media. Konten kreator di gaji dari hasil iklan atau spesial give away. Contoh biaya administrasi seperti iklan dan special give away icon (berbayar) di tempat platform sosial media hasilnya untuk bayar gaji dan sejenisnya di perusahaan tersebut. Sudah paham sampai sini sekolah pajak nya
-</li>
-<li>Contoh lagi kamu menjual barang di platform E-commerce atau perdagangan elektronik akan kena pajak penambahan nilai (PPn) dan platform E-commerce atau perdagangan elektronik wajib setor pajak penghasilan nilai (PPn) dari konten menjual barang ke negara indonesia dan pendapatan platform E-commerce atau perdagangan elektronik hanya dari biaya administrasi saja karena menyediakan E-commerce atau perdagangan elektronik. Contoh biaya administrasi seperti menyewakan tempat jual online di platform E-commerce atau perdagangan elektronik hasilnya untuk bayar gaji dan sejenisnya di perusahaan tersebut. Sudah paham sampai sini sekolah pajak nya
-</li>
-<li>Contoh lagi kamu menjual barang di toko supermarket itu hampir sama dengan perdagangan elektronik hanya beda caranya saja. Satu online dan satu lagi offline. Suka jalan jalan lebih suka offline dan sebaliknya males jalan jalan ya lebih suka online. Sudah paham sampai sini sekolah pajak nya
-</li>
-<li>Contoh lagi kamu menerima gaji dari kerja di perusahaan atau pemerintah ya hanya kena pajak penambahan hasil (PPh) saja ya tidak ada pajak penanbahan nilai (PPn). Sudah paham sampai sini sekolah pajak nya</li>
-<li>Contoh lagi penghasilan dealer kendaraan pendapatannya hanya dari penjualan unit dari dari hasil unit di jual baru bisa bayar pajak penambahan hasil (PPh) dari pegawainya untuk di setor ke negara indonesia dan (PPn) di bebankan ke pembeli dari hasil ppn di setor ke negara indonesia. Sudah paham sampai sini sekolah pajak nya</li>
-<li>Istansi pemerintah bayarnya gaji sampai tunjangan dari hasil pajak tapi yang minta jatah apbn paling banyak tapi kerjanya santai santai atau tidak ada hasil kerjanya di sebut beban pemerintah ada kamera publik yaitu rakyatnya sendiri</li>
-<li>Oknum melakukan korupsi, pungli dan gratifikasi di pemerintahaan atau perusahaan merupakan tindak kejahatan</li>
-<li>Oknum di pemerintahaan atau perusahaan bisa lulus masuk kerja tapi tidak bisa kerja kasih SP 1 terus SP2 Terakhir pecat</li>
-<li>Negara bisa maju di lihat dari Sumber Daya Manusianya yang berkualitas bukan sebaliknya</li>
-<li>Uang hasil korupsi, pungli dan gratifikasi di pemerintahaan atau perusahaan di balikan ke bangsa negara indonesia untuk pembangunan bangsa negara indonesia bukan sebaliknya</li>
-<li>Uang hasil pajak untuk apa ? untuk pembangunan bangsa negara indonesia bukan sebaliknya</li>
-<li>Pembangunan bangsa negara indonesia itu banyak kategorinya seperti pembangunan pendidikan, kesehatan, infrastruktur, pertahanan militer, dan banyak lagi</li>
-<li>Kasus pedagang kaki lima jika di tertibkan barang tidak di ambil negara tapi di balikan ke pedagang tersebut untuk di data tidak melakukan lagi di tempat tersebut jika mengulangin lagi akan di kenakan sangsi, Oknum hanya melakukan tugas dan memberikan surat pengambilan barang tidak lebih dengan syarat jangan pakai kekerasaan kepada pedagang kaki lima karena melanggar kode etik. Kalo barang pedagang kaki lima di ambil oleh oknum melakukan tugas tapi tidak di balikan termasuk kategori pungli dan itu termasuk tindakan kejahatan. Ambil barangnya di pemrov terkait dengan surat yang dikasih pedagang kaki lima. Seperti melakukan penyitaan barang semua ada suratnya tanpa surat itu menyalah gunakan aturan hukum atau tidak resmi</li>
-<li>Pajak Bumi Bangunan naik itu untuk gedung gedung saja dan perumahan elite atau mewah saja ya (Nilai jual tanah bisa di lihat setiap tempat pasti beda) kalo rumah sederhana dan rumah kpr kebawah di kasih pajak bumi bangunan naik ya salah kebijakan (Kebijakan yang benar itu tajam ke atas bukan ke bawah) Mau naik harga sewa gedung atau tidak bukan urusan gue ya</li>
-<li>Pajak bumi bangunan di jakarta dan banten itu santai banyak pabrik dan gedung tidak perlu naikin pajak bumi bangunan ya dong. daerah lain pikir saja sendiri bukan daerah gue</li>
-<li>Indonesia akan jadi negara maju bukan berkembang lagi kedepanya jika kerjanya benar dan sebaliknya. Paham sampai sini</li>
-</ul>
--->
 ### Jaminan Produk
 <ul>
 <li>PT JOWOSCRIPT TECHNOLOGY INDONESIA, DAN AFILIASI, PENGECER, DISTRIBUTOR, DAN VENDOR, TIDAK MEMBERIKAN JAMINAN, BAIK TERSURAT MAUPUN TERSIRAT, GARANSI, ATAU KETENTUAN SEHUBUNGAN DENGAN PENGGUNAAN LAYANAN OLEH ANDA. ANDA MEMAHAMI BAHWA ANDA MENANGGUNG RISIKO PENGGUNAAN LAYANAN DAN KAMI MEMBERIKAN LAYANAN "SEBAGAIMANA ADANYA", "DENGAN SEGALA KEKURANGANNYA", DAN "SEBAGAIMANA TERSEDIA". PT JOWOSCRIPT TECHNOLOGY INDONESIA TIDAK MENJAMIN KEAKURATAN ATAU KETEPATAN WAKTU LAYANAN. ANDA MUNGKIN MEMILIKI HAK-HAK TERTENTU MENURUT HUKUM SETEMPAT ANDA. TIDAK ADA SATU BAGIAN PUN DALAM PERSYARATAN INI YANG DIMAKSUDKAN UNTUK MEMENGARUHI HAK TERSEBUT, JIKA MEMANG ADA. ANDA MEMAHAMI BAHWA KOMPUTER DAN SISTEM TELEKOMUNIKASI TIDAK BEBAS DARI KESALAHAN DAN LAYANAN MUNGKIN AKAN SESEKALI TIDAK TERSEDIA. KAMI TIDAK MENJAMIN LAYANAN TIDAK AKAN TERGANGGU, TEPAT WAKTU, AMAN, ATAU BEBAS DARI KESALAHAN ATAU BAHWA HILANGNYA KONTEN TIDAK AKAN TERJADI, ATAU KAMI TIDAK MENJAMIN SAMBUNGAN ATAU TRANSMISI APA PUN DARI JARINGAN KOMPUTER.
@@ -822,6 +793,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
