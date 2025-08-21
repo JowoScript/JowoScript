@@ -40,7 +40,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Hina gue sebagai firaun ? sembah nih firaun helloo. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
+<li>Hina gue sebagai firaun ? Sembah ini Fir'aun hater dan musuh musuh gue. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
 <li>Kingdom studio Produk gue yg buat mau apa lu. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
 <li>Proyek selesai ya sudah lu di PHK dari dulu begituu. Mau bidang konstruksi bangunan, informasi teknologi, biogas, dan lain lain itu sama. Mampus siapa yang tidak berguna sekarang</li>
 <li>Mau transaksi pembelian kingdom studio lisensinya nilai mata uangnya jadi Rp, RM, $, €, ¥, ₩ dan sejenisnya gue rubah ke setiap negara yang mau punya kepentingan itu hak gue pribadi nantinya yang jelas bukan mata uang crypto. Mata uang crypto tidak resmi untuk pertukaran di setiap negara karena gue belajar hukum juga. Produk gue buat sendiri khusus hater gue dan pecundang saja yang tidak suka ya</li>
@@ -807,6 +807,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
