@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Proyek selesai ya sudah lu di PHK dari dulu begituu.Mau bidang konstruksi bangunan, informasi teknologi, biogas, dan lain lain itu sama. Mampus siapa yang tidak berguna sekarang</li>
+<li>Proyek selesai ya sudah lu di PHK dari dulu begituu. Mau bidang konstruksi bangunan, informasi teknologi, biogas, dan lain lain itu sama. Mampus siapa yang tidak berguna sekarang</li>
 <li>Mau transaksi pembelian kingdom studio lisensinya nilai mata uangnya jadi Rp, RM, $, €, ¥, ₩ dan sejenisnya gue rubah ke setiap negara yang mau punya kepentingan itu hak gue pribadi nantinya yang jelas bukan mata uang crypto. Mata uang crypto tidak resmi untuk pertukaran di setiap negara karena gue belajar hukum juga. Produk gue buat sendiri khusus hater gue dan pecundang saja yang tidak suka ya</li>
 <li>Gue di sebut firaun khusus hater gue dan pencudang saja. Setidaknya gue tidak mencuri uang negara ya apa lagi menuntut ke pemerintah selama ini seperti minta naik gaji dan tunjangan apa lagi minta proyek ya. sorry yee. target gue bukan indonesia tapi world wide market</li>
 <li>Gue di sebut penjajah gimana yang lain seperti bayar listrik, bayar uang sekolah, bayar pajak, bayar perpanjang sim-stnk, makan-minum bayar, bayar bensin kendaraan, bayar internet dan banyak lagi ya. Fakta dan allah swt maha mengetahui segala galanya di masa depan and allah swt always with me.</li>
@@ -799,6 +799,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
