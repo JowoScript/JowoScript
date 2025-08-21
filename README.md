@@ -46,7 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>IPK saya di atas 3 saja di buat nganggur dan di persulit masuk test kerja gimana di bawah 3.0</li>
+<li>IPK saya di atas 3.0 saja di buat nganggur dan di persulit masuk test kerja gimana di bawah 3.0. The checkmate again</li>
 <li>Tidak bisa kerja ya pecat pecatin saja gue juga dulu di gituin di tekan kerja. The checkmate again</li>
 <li>Banyak Rumah sakit, supermarket, televisi, bank, berita dan hiburan yg sepi pemasukannya saja mampu berdiri dan bertahan kenapa gue tidak bisa. Mudah bagi gue untuk perbandingan. The checkmate again</li>
 <li>Banyak orang yg pengangguran, tidak berguna dan tidak produktif saja bisa hidup dan bertahan kenapa gue tidak bisa. Mudah bagi gue untuk perbandingan. The checkmate again</li>
@@ -820,6 +820,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
