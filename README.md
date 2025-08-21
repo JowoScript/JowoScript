@@ -40,6 +40,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Fans gue nonton saja ya dan jadi pendengar saja ya</li>
 <li>Hina gue sebagai firaun ? Sembah ini Fir'aun hater dan musuh musuh gue. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
 <li>Kingdom studio Produk gue yg buat mau apa lu. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
 <li>Proyek selesai ya sudah lu di PHK dari dulu begituu. Mau bidang konstruksi bangunan, informasi teknologi, biogas, dan lain lain itu sama. Mampus siapa yang tidak berguna sekarang</li>
@@ -807,6 +808,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
