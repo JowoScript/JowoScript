@@ -40,7 +40,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Gue tidak butuh kerjaan selama ini punya perusahaan sendiri dan produk sendiri. Kingdom studio produk punya siapa kalo mau tau perusahaan gue ya</li>
+<li>Gue tidak butuh kerjaan paham sampai sini punya perusahaan sendiri dan produk sendiri. Kingdom studio produk punya siapa kalo mau tau perusahaan gue ya</li>
 <li>Fans gue nonton saja ya dan jadi pendengar saja ya</li>
 <li>Hina gue sebagai firaun ? Sembah ini Fir'aun hater dan musuh musuh gue. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
 <li>Kingdom studio Produk gue yg buat mau apa lu. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
@@ -809,6 +809,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
