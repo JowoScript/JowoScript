@@ -46,43 +46,43 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Gue tidak butuh kerjaan paham sampai sini punya perusahaan sendiri dan produk sendiri. Kingdom studio produk punya siapa kalo mau tau perusahaan gue ya. The checkmate again</li>
 <li>Fans gue nonton saja ya dan jadi pendengar saja ya. The checkmate again</li>
 <li>Hina gue sebagai firaun ? Sembah ini Fir'aun hater dan musuh musuh gue. Mampus lu persaingan bisnis dan kerja makin berat kedepanya. The checkmate again</li>
-<li>Kingdom studio Produk gue yg buat mau apa lu. Mampus lu persaingan bisnis dan kerja makin berat kedepanya</li>
-<li>Proyek selesai ya sudah lu di PHK dari dulu begituu. Mau bidang konstruksi bangunan, informasi teknologi, biogas, dan lain lain itu sama. Mampus siapa yang tidak berguna sekarang</li>
-<li>Mau transaksi pembelian kingdom studio lisensinya nilai mata uangnya jadi Rp, RM, $, €, ¥, ₩ dan sejenisnya gue rubah ke setiap negara yang mau punya kepentingan itu hak gue pribadi nantinya yang jelas bukan mata uang crypto. Mata uang crypto tidak resmi untuk pertukaran di setiap negara karena gue belajar hukum juga. Produk gue buat sendiri khusus hater gue dan pecundang saja yang tidak suka ya</li>
-<li>Gue di sebut firaun khusus hater gue dan pencudang saja. Setidaknya gue tidak mencuri uang negara ya apa lagi menuntut ke pemerintah selama ini seperti minta naik gaji dan tunjangan apa lagi minta proyek ya. sorry yee. target gue bukan indonesia tapi world wide market</li>
-<li>Gue di sebut penjajah gimana yang lain seperti bayar listrik, bayar uang sekolah, bayar pajak, bayar perpanjang sim-stnk, makan-minum bayar, bayar bensin kendaraan, bayar internet dan banyak lagi ya</li>
-<li>Perusahaan milik sendiri gue mau berisik suka suka gue 10000% saham perusahaan milik gue kalo go publik</li>
+<li>Kingdom studio Produk gue yg buat mau apa lu. Mampus lu persaingan bisnis dan kerja makin berat kedepanya. The checkmate again</li>
+<li>Proyek selesai ya sudah lu di PHK dari dulu begituu. Mau bidang konstruksi bangunan, informasi teknologi, biogas, dan lain lain itu sama. Mampus siapa yang tidak berguna sekarang. The checkmate again</li>
+<li>Mau transaksi pembelian kingdom studio lisensinya nilai mata uangnya jadi Rp, RM, $, €, ¥, ₩ dan sejenisnya gue rubah ke setiap negara yang mau punya kepentingan itu hak gue pribadi nantinya yang jelas bukan mata uang crypto. Mata uang crypto tidak resmi untuk pertukaran di setiap negara karena gue belajar hukum juga. Produk gue buat sendiri khusus hater gue dan pecundang saja yang tidak suka ya. The checkmate again</li>
+<li>Gue di sebut firaun khusus hater gue dan pencudang saja. Setidaknya gue tidak mencuri uang negara ya apa lagi menuntut ke pemerintah selama ini seperti minta naik gaji dan tunjangan apa lagi minta proyek ya. sorry yee. target gue bukan indonesia tapi world wide market. The checkmate again</li>
+<li>Gue di sebut penjajah gimana yang lain seperti bayar listrik, bayar uang sekolah, bayar pajak, bayar perpanjang sim-stnk, makan-minum bayar, bayar bensin kendaraan, bayar internet dan banyak lagi ya. The checkmate again</li>
+<li>Perusahaan milik sendiri gue mau berisik suka suka gue 10000% saham perusahaan milik gue kalo go publik. The checkmate again</li>
 <li>Kita lihat saja di danai selama ini banyak bacot tapi tidak ada hasil kerjanya. Mampus lu</li>
 <li>Kingdom Studio berkembang terus setiap waktu dan setiap hari</li>
 <li>Teman gue yang bermasalah anaknya sudah gue tandai semuanya baik baik kau. Jaga baik baik anakmu di luar sekolah masih SD dan SMP</li>
 <li>Kabarin saja anakmu dj masih ada masa depannya ? baik baik yang tidak pernah terlihat di publik itu lebih bahaya seperti gue</li>
 <li>Tidak butuh bantuan apa lagi beban seperti kau DJ skill coding biasa biasa saja</li>
-<li>Akhir tahun pemegang saham pasti nanya hasil kerjanya ke publik. Siapa yang tutup dan bayar hutang ke pemegang saham</li>
-<li>Diamkan saja yang pengangguran dan tidak punya perusahaan. Waktu terus maju</li>
-<li>Kita lihat perusahaan mana lagi tutup bayar hutang dari saham. Kalo goblok itu sadar diri paham perusahaan gue tidak go publik ya</li>
-<li>Lulusan sarjana asli dan gelar boleh sarjana tapi skill coding professor itu baru benar ya</li>
-<li>Saiki siopo yang mencla mencle lambene hahahahaha</li>
-<li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti dj nya lambemu nothing, pecundang dan pengecut</li>
-<li>Status gue pengusaha sendiri sekarang. Apa gunanya gue setiap hari buat. Cuekin saja yang pengangguran dan skillnya biasa biasa saja</li>
-<li>Sekarang levelnya beda dong bukan Ai mainanya gue. Buat bahasa pemrograman sendiri. Dari 2021 sampai sekarang siapa yang tumbang</li>
-<li>Dosen nguji gue saja dulu diam waktu skripsi gue buatnya beda sendiri face recognition di android tahun 2016 akhir dan lulus tahun 2017</li>
-<li>Pak jokowi ipk di bawah 2 itu benar apa tidak ? kalo benar bikin malu gue saja. ipk gue saja di atas 3 jadi pengangguran tetap stay cool</li>
+<li>Akhir tahun pemegang saham pasti nanya hasil kerjanya ke publik. Siapa yang tutup dan bayar hutang ke pemegang saham. The checkmate again</li>
+<li>Diamkan saja yang pengangguran dan tidak punya perusahaan. Waktu terus maju. The checkmate again</li>
+<li>Kita lihat perusahaan mana lagi tutup bayar hutang dari saham. Kalo goblok itu sadar diri paham perusahaan gue tidak go publik ya. The checkmate again</li>
+<li>Lulusan sarjana asli dan gelar boleh sarjana tapi skill coding professor itu baru benar ya. The checkmate again</li>
+<li>Saiki siopo yang mencla mencle lambene hahahahaha. The checkmate again</li>
+<li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti dj nya lambemu nothing, pecundang dan pengecut. The checkmate again</li>
+<li>Status gue pengusaha sendiri sekarang. Apa gunanya gue setiap hari buat. Cuekin saja yang pengangguran dan skillnya biasa biasa saja. The checkmate again</li>
+<li>Sekarang levelnya beda dong bukan Ai mainanya gue. Buat bahasa pemrograman sendiri. Dari 2021 sampai sekarang siapa yang tumbang. The checkmate again</li>
+<li>Dosen nguji gue saja dulu diam waktu skripsi gue buatnya beda sendiri face recognition di android tahun 2016 akhir dan lulus tahun 2017. The checkmate again</li>
+<li>Pak jokowi ipk di bawah 2 itu benar apa tidak ? kalo benar bikin malu gue saja. ipk gue saja di atas 3 jadi pengangguran tetap stay cool. The checkmate again</li>
 <li>Jadi pengusaha itu berat eh ada yang mau enaknya doang mau gratisan 😄. The checkmate forever</li>
-<li>Example jhtml code future [div] small talk [/div] or can double with html &#x3C;div&#x3E; small talk &#x3C;/div&#x3E;[div] small talk [/div] available on Kingdom Studio</li>
-<li>Jika tidak laku di pasaran gue bisa pakai sendiri nantinya siapa yg goblok itu bedanya gue sudah prediksi dulu sebelumnya</li>
-<li>Kalo harganya naik tidak turun selama ini target pasar gue world wide. Biar pada turun gaji dan tunjangan di pemerintahan</li>
-<li>Di danai pemerintah dan invenstor belum tentu hebat hasil kerjanya. Terbukti sampai sekarang ya</li>
-<li>Siapa yang maju dalam Teknologi Informasi or IT dialah yang terdepan nantinya dan sebaliknya mereka akan berputar putar disitu saja tidak maju</li>
-<li>Bapak saya berkata dulu anak saya di persulit masuk test kerja sekarang siapa yang tidak berguna ?</li>
-<li>Bapak saya berkata tunggu waktu perusahaan mana lagi tutup tidak di danai</li>
-<li>Bapak saya berkata jika tidak punya uang nonton saja kalian orang orang tidak berguna banyak gaya tapi tidak berkompoten</li>
-<li>Selama belum beli ya nonton saja itu aturannya</li>
-<li>Jowo Extensible Markup Language (JXML) available on kingdom studio</li>
-<li>Jowo Style Sheets Language (JSS) available on kingdom studio</li>
-<li>Jowo Hypertext Markup Language available on kingdom studio</li>
-<li>JowoScript available on Kingdom Studio</li>
-<li>Jowo Kingdom Studio available on Kingdom Studio</li>
-<li>75 triliun perbulan mampu beli kingdom studio ? Gaji dan tunjangan jabatan mana mampu beli harga segini gue tanya. Oleh itu gue tidak gila jabatan dan kekuasaan seperti kalian</li>
+<li>Example jhtml code future [div] small talk [/div] or can double with html &#x3C;div&#x3E; small talk &#x3C;/div&#x3E;[div] small talk [/div] available on Kingdom Studio. The checkmate again</li>
+<li>Jika tidak laku di pasaran gue bisa pakai sendiri nantinya siapa yg goblok itu bedanya gue sudah prediksi dulu sebelumnya. The checkmate again</li>
+<li>Kalo harganya naik tidak turun selama ini target pasar gue world wide. Biar pada turun gaji dan tunjangan di pemerintahan. The checkmate again</li>
+<li>Di danai pemerintah dan invenstor belum tentu hebat hasil kerjanya. Terbukti sampai sekarang ya. The checkmate again</li>
+<li>Siapa yang maju dalam Teknologi Informasi or IT dialah yang terdepan nantinya dan sebaliknya mereka akan berputar putar disitu saja tidak maju. The checkmate again</li>
+<li>Bapak saya berkata dulu anak saya di persulit masuk test kerja sekarang siapa yang tidak berguna ? The checkmate again</li>
+<li>Bapak saya berkata tunggu waktu perusahaan mana lagi tutup tidak di danai. The checkmate again</li>
+<li>Bapak saya berkata jika tidak punya uang nonton saja kalian orang orang tidak berguna banyak gaya tapi tidak berkompoten. The checkmate again</li>
+<li>Selama belum beli ya nonton saja itu aturannya. The checkmate again</li>
+<li>Jowo Extensible Markup Language (JXML) available on kingdom studio. The checkmate again</li>
+<li>Jowo Style Sheets Language (JSS) available on kingdom studio. The checkmate again</li>
+<li>Jowo Hypertext Markup Language available on kingdom studio. The checkmate again</li>
+<li>JowoScript available on Kingdom Studio. The checkmate again</li>
+<li>Jowo Kingdom Studio available on Kingdom Studio. The checkmate again</li>
+<li>75 triliun perbulan mampu beli kingdom studio ? Gaji dan tunjangan jabatan mana mampu beli harga segini gue tanya. Oleh itu gue tidak gila jabatan dan kekuasaan seperti kalian. The checkmate again</li>
 </ul>
 
 
@@ -812,6 +812,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
