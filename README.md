@@ -46,7 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Siapa yang banyak hutang itu kalian pakai bahasa pemrograman gratisan buat aplikasi selama ini</li>
+<li>Siapa yang banyak hutang itu kalian pakai bahasa pemrograman gratisan buat aplikasi selama ini. Hutang kalian itu banyak</li>
 <li>Gue kasih tau ya total tilang kendaraan saja tidak sampai 900 Triliun pertahun paling banyak kurang lebih 1 Triliun pertahun</li>
 <li>Gue kasih tau ya total pendapatan PT PLN saja tidak sampai 900 Triliun pertahun paling banyak kurang lebih 500 Triliun pertahun</li>
 <li>Tenang saja open js ? lu itu bego dj jadi jangan banyak tingkah kalo goblok dan miskin</li>
@@ -802,6 +802,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
