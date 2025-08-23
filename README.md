@@ -47,7 +47,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
 <li>Gue kurus ya next generasi bangsa akan lebih kurus. Adil bukan. The checkmate again</li>
-<li>Gue selama ini tidak makan apbn semua tidak makan di akhir. Adil bukan. The checkmate again</li>
+<li>Gue selama ini tidak makan uang apbn dan invenstor jadi semua tidak makan di akhir. Adil bukan. The checkmate again</li>
 <li>Biarin saja yg kerja di pemerintahan dan swasta dapat tekanan kerja terus. The checkmate again</li>
 <li>Don't give debt or invest to Indonesia before buying Kingdom Studio products</li>
 <li>Siapa lagi suka nitip kerja nanti terlihat</li>
@@ -795,6 +795,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
