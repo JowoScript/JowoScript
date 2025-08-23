@@ -46,6 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Tidak ada hasil kerjanya jangan di gaji itu aturannya dari dulu ya. Adil bukan. The checkmate again</li>
 <li>Gue kurus ya next generasi bangsa akan lebih kurus apa lagi yang tidak berguna skill coding biasa biasa saja. Adil bukan. The checkmate again</li>
 <li>Gue selama ini tidak makan uang apbn dan invenstor jadi semua tidak makan di akhir. Adil bukan. The checkmate again</li>
 <li>Biarin saja yg kerja di pemerintahan dan swasta dapat tekanan kerja terus. The checkmate again</li>
@@ -795,6 +796,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
