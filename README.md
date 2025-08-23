@@ -46,6 +46,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Diamkan saja di akhir bongkar bongkaran aib kejelekan mereka sendiri</li>
 <li>Siapa yang kerjain proyek aplikasi BJB ? belum kena saja. wow harga tendernya</li>
 <li>Siapa yang banyak hutang itu kalian pakai bahasa pemrograman gratisan buat aplikasi selama ini. Hutang kalian itu banyak</li>
 <li>Gue kasih tau ya total tilang kendaraan saja tidak sampai 900 Triliun pertahun paling banyak kurang lebih 1 Triliun pertahun</li>
@@ -803,6 +804,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
