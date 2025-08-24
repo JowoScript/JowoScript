@@ -52,6 +52,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Orang indonesia yang di london dan amerika masih sehat ?</li>
 <li>Diamkan saja orang indonesia yang di luar negeri. Di luar negeri saja banyak yang tutup bisnis karena persaingan itu makin berat</li>
 <li>Kau yang tidak punya hasil di danai pemerintah dan investor saja masih bodoh. Kita lihat hasil laporan keuangan saja di akhir yang di danai selama ini. Kalo bicara untung dan rugi dalam bisnis selama ini. Gaji dan tunjangan pegawai saja sudah minus banyak belum yang lainnya. The checkmate again</li>
 <li>Anda yang tidak berguna selama ini bukan gue ya. The checkmate again</li>
@@ -764,6 +765,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
