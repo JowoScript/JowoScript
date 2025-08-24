@@ -52,58 +52,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Just needs target future</li>
-<li>Diamkan saja di akhir bongkar bongkaran aib kejelekan mereka sendiri</li>
-<li>Siapa yang kerjain proyek aplikasi BJB ? belum kena saja. wow harga tendernya</li>
-<li>Siapa yang banyak hutang itu kalian pakai bahasa pemrograman gratisan buat aplikasi selama ini. Hutang kalian itu banyak</li>
-<li>Gue kasih tau ya total tilang kendaraan saja tidak sampai 900 Triliun pertahun paling banyak kurang lebih 1 Triliun pertahun</li>
-<li>Gue kasih tau ya total pendapatan PT PLN saja tidak sampai 900 Triliun pertahun paling banyak kurang lebih 500 Triliun pertahun</li>
-<li>Tenang saja open js ? lu itu bego dj jadi jangan banyak tingkah kalo goblok dan miskin</li>
-<li>Beban negara saja banyak yang pakai APBN selama ini</li>
-<li>Kingdom Studio hanya gue yang bisa buat dan kembangkan. Lu yang tidak berguna bukan gue</li>
-<li>Tidak ada hasil kerjanya tidak menerima gaji dan tunjangan itu aturannya dari dulu ya. Adil bukan. The checkmate again</li>
-<li>Gue selama ini tidak makan uang apbn dan invenstor jadi semua tidak makan di akhir. Adil bukan. The checkmate again</li>
-<li>Biarin saja yg kerja di pemerintahan dan swasta dapat tekanan kerja terus. The checkmate again</li>
-<li>Don't give debt or invest to Indonesia before buying Kingdom Studio products</li>
-<li>Siapa lagi suka nitip kerja nanti terlihat</li>
-<li>IPK saya di atas 3.0 saja di buat nganggur dulu dan di persulit masuk test kerja gimana di bawah 3.0. The checkmate again</li>
-<li>Tidak bisa kerja ya pecat pecatin saja gue juga dulu di gituin di tekan kerja. The checkmate again</li>
-<li>Banyak Rumah sakit, supermarket, televisi, bank, berita dan hiburan yg sepi pemasukannya saja mampu berdiri dan bertahan kenapa gue tidak bisa. Mudah bagi gue untuk perbandingan. The checkmate again</li>
-<li>Banyak orang yg pengangguran, tidak berguna dan tidak produktif saja bisa hidup dan bertahan kenapa gue tidak bisa. Mudah bagi gue untuk perbandingan. The checkmate again</li>
-<li>Gue tidak butuh kerjaan paham sampai sini punya perusahaan sendiri dan produk sendiri. Kingdom studio produk punya siapa kalo mau tau perusahaan gue ya. The checkmate again</li>
-<li>Fans gue nonton saja ya dan jadi pendengar saja ya. The checkmate again</li>
-<li>Hina gue sebagai firaun ? Sembah ini Fir'aun hater dan musuh musuh gue. Mampus lu persaingan bisnis dan kerja makin berat kedepanya. The checkmate again</li>
-<li>Kingdom studio Produk gue yg buat mau apa lu. Mampus lu persaingan bisnis dan kerja makin berat kedepanya. The checkmate again</li>
-<li>Proyek selesai ya sudah lu di PHK dari dulu begituu. Mau bidang konstruksi bangunan, informasi teknologi, biogas, dan lain lain itu sama. Mampus siapa yang tidak berguna sekarang. The checkmate again</li>
-<li>Mau transaksi pembelian kingdom studio lisensinya nilai mata uangnya jadi Rp, RM, $, €, ¥, ₩ dan sejenisnya gue rubah ke setiap negara yang mau punya kepentingan itu hak gue pribadi nantinya yang jelas bukan mata uang crypto. Mata uang crypto tidak resmi untuk pertukaran di setiap negara karena gue belajar hukum juga. Produk gue buat sendiri khusus hater gue dan pecundang saja yang tidak suka ya. The checkmate again</li>
-<li>Gue di sebut firaun khusus hater gue dan pencudang saja. Setidaknya gue tidak mencuri uang negara ya apa lagi menuntut ke pemerintah selama ini seperti minta naik gaji dan tunjangan apa lagi minta proyek ya. sorry yee. target gue bukan indonesia tapi world wide market. The checkmate again</li>
-<li>Gue di sebut penjajah gimana yang lain seperti bayar listrik, bayar uang sekolah, bayar pajak, bayar perpanjang sim-stnk, makan-minum bayar, bayar bensin kendaraan, bayar internet dan banyak lagi ya. The checkmate again</li>
-<li>Perusahaan milik sendiri gue mau berisik suka suka gue 10000% saham perusahaan milik gue kalo go publik. The checkmate again</li>
-<li>Kita lihat saja di danai selama ini banyak bacot tapi tidak ada hasil kerjanya. Mampus lu</li>
-<li>Kingdom Studio berkembang terus setiap waktu dan setiap hari</li>
-<li>Teman gue yang bermasalah anaknya sudah gue tandai semuanya baik baik kau. Jaga baik baik anakmu di luar sekolah masih SD dan SMP</li>
-<li>Kabarin saja anakmu dj masih ada masa depannya ? baik baik yang tidak pernah terlihat di publik itu lebih bahaya seperti gue</li>
-<li>Tidak butuh bantuan apa lagi beban seperti kau DJ skill coding biasa biasa saja</li>
-<li>Akhir tahun pemegang saham pasti nanya hasil kerjanya ke publik. Siapa yang tutup dan bayar hutang ke pemegang saham. The checkmate again</li>
-<li>Diamkan saja yang pengangguran dan tidak punya perusahaan. Waktu terus maju. The checkmate again</li>
-<li>Kita lihat perusahaan mana lagi tutup bayar hutang dari saham. Kalo goblok itu sadar diri paham perusahaan gue tidak go publik ya. The checkmate again</li>
-<li>Lulusan sarjana asli dan gelar boleh sarjana tapi skill coding professor itu baru benar ya. The checkmate again</li>
-<li>Saiki siopo yang mencla mencle lambene hahahahaha. The checkmate again</li>
-<li>Orang bodoh itu selalu maki maki orang yg lebih cerdas seperti dj nya lambemu nothing, pecundang dan pengecut. The checkmate again</li>
-<li>Status gue pengusaha sendiri sekarang. Apa gunanya gue setiap hari buat. Cuekin saja yang pengangguran dan skillnya biasa biasa saja. The checkmate again</li>
-<li>Sekarang levelnya beda dong bukan Ai mainanya gue. Buat bahasa pemrograman sendiri. Dari 2021 sampai sekarang siapa yang tumbang. The checkmate again</li>
-<li>Dosen nguji gue saja dulu diam waktu skripsi gue buatnya beda sendiri face recognition di android tahun 2016 akhir dan lulus tahun 2017. The checkmate again</li>
-<li>Pak jokowi ipk di bawah 2 itu benar apa tidak ? kalo benar bikin malu gue saja. ipk gue saja di atas 3 jadi pengangguran tetap stay cool. The checkmate again</li>
-<li>Jadi pengusaha itu berat eh ada yang mau enaknya doang mau gratisan 😄. The checkmate forever</li>
-<li>Example jhtml code future [div] small talk [/div] or can double with html &#x3C;div&#x3E; small talk &#x3C;/div&#x3E;[div] small talk [/div] available on Kingdom Studio. The checkmate again</li>
-<li>Jika tidak laku di pasaran gue bisa pakai sendiri nantinya siapa yg goblok itu bedanya gue sudah prediksi dulu sebelumnya. The checkmate again</li>
-<li>Kalo harganya naik tidak turun selama ini target pasar gue world wide. Biar pada turun gaji dan tunjangan di pemerintahan. The checkmate again</li>
-<li>Di danai pemerintah dan invenstor belum tentu hebat hasil kerjanya. Terbukti sampai sekarang ya. The checkmate again</li>
-<li>Siapa yang maju dalam Teknologi Informasi or IT dialah yang terdepan nantinya dan sebaliknya mereka akan berputar putar disitu saja tidak maju. The checkmate again</li>
-<li>IPK saya di atas 3 saja di buat nganggur dan di persulit masuk test kerja gimana di bawah 3.0</li>
-<li>Bapak saya berkata dulu anak saya di persulit masuk test kerja sekarang siapa yang tidak berguna ? The checkmate again</li>
-<li>Bapak saya berkata tunggu waktu perusahaan mana lagi tutup tidak di danai. The checkmate again</li>
-<li>Bapak saya berkata jika tidak punya uang nonton saja kalian orang orang tidak berguna banyak gaya tapi tidak berkompoten. The checkmate again</li>
+<li>Penyesalan selalu datang di akhir paham sampai sini. Orang bodoh hanya menonton</li>
 <li>Selama belum beli ya nonton saja itu aturannya. The checkmate again</li>
 <li>Jowo Extensible Markup Language (JXML) available on kingdom studio. The checkmate again</li>
 <li>Jowo Style Sheets Language (JSS) available on kingdom studio. The checkmate again</li>
@@ -810,6 +759,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
