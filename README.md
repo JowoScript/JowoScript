@@ -39,7 +39,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
      width="100%" height="100%"></img>
 	 
 #### Kingdom Studio Create a new project Small talk
-<img src="Kingdom Studio Version 0.1.21 create a new project.png" 
+<img src="Kingdom Studio Version 0.1.22 create a new project.png" 
      title="Kingdom Studio Create a new project Small talk"
      alt="Kingdom Studio Create a new project Small talk"     
      width="100%" height="100%"></img>
@@ -763,6 +763,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
