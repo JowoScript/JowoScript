@@ -52,7 +52,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Diamkan saja orang india sudah pada nyungsep developer informasi teknologi. Nantang sang legeda dari jawa</li>
+<li>Diamkan saja orang india sudah pada nyungsep developer informasi teknologi. Nantang sang legeda dari jawa. The checkmate again</li>
 <li>Koperasi Merah Putih saja gue prediksi failed walapun di danai besar</li>
 <li>Anda yang tidak berguna selama ini bukan gue ya. The checkmate again</li>
 <li>Kingdom Studio tidak menggunakan uang pemerintah dan investor dalam pembuatannya. Siapapun wajib beli kalo pakai kingdom studio. The checkmate again</li>
@@ -764,6 +764,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
