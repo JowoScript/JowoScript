@@ -52,7 +52,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Kau yang tidak punya hasil di danai pemerintah dan invensor saja masih bodoh. Kita lihat hasil laporan keuangan saja di akhir yang di danai selama ini. Kalo bicara untung dan rugi dalam bisnis selama ini</li>
+<li>Kau yang tidak punya hasil di danai pemerintah dan investor saja masih bodoh. Kita lihat hasil laporan keuangan saja di akhir yang di danai selama ini. Kalo bicara untung dan rugi dalam bisnis selama ini</li>
 <li>Anda yang tidak berguna selama ini bukan gue ya. The checkmate again</li>
 <li>Kingdom Studio tidak menggunakan uang pemerintah dan investor dalam pembuatannya. Siapapun wajib beli kalo pakai kingdom studio. The checkmate again</li>
 <li>Tidak ada hasil kerjanya tidak menerima gaji dan tunjangan itu aturannya dari dulu ya. Adil bukan. The checkmate again</li>
@@ -763,6 +763,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
