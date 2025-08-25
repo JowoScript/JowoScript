@@ -52,6 +52,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Diamkan saja yang demo kena hujan juga pada bubar</li>
 <li>Yang hina gue sudah gue tandai semua diam gue itu beda main lu kurang jahu</li>
 <li>Gue hanya menunggu waktu siapa yang nikah tapi pengangguran dan tidak punya penghasilan biar paham hidup itu berat dan persangain bisnis itu berat apa lagi kerja</li>
 <li>Gue hanya menunggu waktu perusahaan IT yang di danai oleh invenstor dan pemerintah pada tutup bisnis karena persaingan itu makin berat</li>
@@ -768,6 +769,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
