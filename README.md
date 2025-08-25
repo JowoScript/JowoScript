@@ -55,7 +55,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <li>Gue berisik tidak masalah perusahaan milik sendiri 10000% dan produk buat sendiri 10000%. Siapa yang tidak berguna juga bukan gue</li>
 <li>Hidup gue sederhana tandanya gue bersih lu goblok sih. Siapa yang hancur dan tidak berguna sekarang. The checkmate again</li>
 <li>Sesuai harapan gue bukan yang nyungsep kalian dan tidak berguna dan gue tetap produktif, berkembang terus versi produk naik terus</li>
-<li>Warga malaysia paham ya gue saja tidak makan proyek berani beraninya heitech makan proyek terus. Eats them warga malaysia</li>
+<li>Warga malaysia paham ya gue saja tidak makan proyek berani beraninya heitech makan proyek terus. Eats them warga malaysia, Gaduhnya jangan sama gue tidak makan proyek selama ini</li>
 <li>Gue hanya menunggu waktu trader crypto juga pada tumbang karena persaingan itu makin berat</li>
 <li>Gue tidak makan ya kalian juga tidak akan makan. Adil bukan. Gaji dan tunjangan pada besar besar di pemerintahaan dan bumn ya silahkan di pikir sendiri, di akhir juga pada turun gaji dan tunjangan di pemerintah dan bumn</li>
 <li>Gue tidak makan ya kalian juga tidak akan makan. Adil bukan. Gue hanya menunggu waktu perusahaan IT yang di danai oleh invenstor dan pemerintah pada tutup bisnis karena persaingan itu makin berat</li>
@@ -775,6 +775,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
