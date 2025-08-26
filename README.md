@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
-#### Kingdom Studio Kingdom Studio License Agreement Small talk
+#### Kingdom Studio Kingdom Studio License Agreement Small talk this about 48 years ago more or less then i revamp from zero
 <img src="Kingdom Studio license agreement.png" 
      title="Kingdom Studio Account License New Version Small talk"
      alt="Kingdom Studio Account License New Version Small talk"     
@@ -780,6 +780,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
