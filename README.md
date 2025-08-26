@@ -48,7 +48,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Diamkan saja pemerintah hutang gue juga tidak mau nanggung hutang pemerintah</li>
+<li>Diamkan saja pemerintah hutang gue juga tidak mau nanggung hutang pemerintah. Perusahaan milik sendiri 10000% dan produk buat sendiri 10000% mau apa lu.</li>
 <li>Kalian anak sekolah baru lulus sekolah dan sarjana selamat jadi pengangguran. Hina gue yang pengalaman banyak gaya depan gue. The checkmate again</li> 
 <li>Gue tidak di manja seperti kalian ya</li>
 <li>Gue berisik tidak masalah perusahaan milik sendiri 10000% dan produk buat sendiri 10000%. Siapa yang tidak berguna juga bukan gue</li>
@@ -773,6 +773,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
