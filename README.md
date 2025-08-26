@@ -13,6 +13,8 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <strong>
 	PT JowoScript Technology Indonesia - Always productive, capability and move forward technology
 	<br>
+	Muhammad Nurcahyo Pratomo - Always productive, capability and move forward technology
+	<br>
 	Sekecil apapun perusahaan gue tetap gue bossnya
 	<br>
 	No matter how small my business is, I'm still the boss and only me can development my product
@@ -780,6 +782,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
