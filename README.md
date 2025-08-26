@@ -50,7 +50,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <ul>
 <li>Diamkan saja pemerintah hutang gue juga tidak mau nanggung hutang pemerintah. Perusahaan milik sendiri 10000% dan produk buat sendiri 10000% mau apa lu dan pemerintah juga belum beli sampai sekarang.</li>
 <li>Perusahaan lokal di china saja banyak PHK gue tau tapi tidak di publikasikan</li>
-<li>Kalian anak sekolah baru lulus sekolah sma or smk dan sarjana selamat jadi pengangguran. Hina gue yang pengalaman banyak gaya depan gue. The checkmate again</li> 
+<li>Kalian anak sekolah baru lulus sekolah sma or smk dan sarjana selamat jadi pengangguran, mental lu baru lulus belum siap gue jamin. Hina gue yang pengalaman banyak gaya depan gue. The checkmate again</li> 
 <li>Gue tidak di manja seperti kalian ya punya jabatan gaji dan tunjangan mau naik terus kalo bicara egois sama gue. Gue juga bisa egois kalo adu argumentasi</li>
 <li>Gue berisik tidak masalah perusahaan milik sendiri 10000% dan produk buat sendiri 10000%. Siapa yang tidak berguna juga bukan gue</li>
 <li>Hidup gue sederhana tandanya gue bersih lu goblok sih. Siapa yang hancur dan tidak berguna sekarang. The checkmate again</li>
@@ -774,6 +774,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
