@@ -57,6 +57,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
 <li>Kekuasaan tertinggi dimana kalo kamu bisa baca ? Tidak baca poin no 7</li>
+<li>Aplikasi website lu buat apa di pakai untuk 20 tahun kedepannya sudah jelas tidak. Belajar dari Friendster dulu</li>
 <li>Gue hanya menunggu waktu anak muda yg banyak gaya dan skill biasa biasa saja biar paham kedepannya persaingan makin berat.</li>
 <li>Diamkan saja pemerintah hutang gue juga tidak mau nanggung hutang pemerintah. Perusahaan milik sendiri 10000% dan produk buat sendiri 10000% mau apa lu dan pemerintah juga belum beli sampai sekarang.</li>
 <li>Perusahaan lokal di china saja banyak PHK gue tau tapi tidak di publikasikan</li>
@@ -784,6 +785,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
