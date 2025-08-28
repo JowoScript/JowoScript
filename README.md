@@ -139,7 +139,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 ### Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
 <div align="justify">
 <ol>
-<li>Must follow and obey basic regulatory requirements in registration</li>
+<li>Must follow and obey basic regulatory requirements in registration license agreement</li>
 <li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker and a lawyer or legal entity, back to point number 1 and point number 7</li>
 <li>Must have a legality flag that is a legal entity</li>
 <li>Must have a domain name server live as your legality flag name masters (example of a live universal domain is *.gov.your name of goverment or any domain)</li>
@@ -801,6 +801,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
