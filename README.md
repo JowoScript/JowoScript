@@ -68,7 +68,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker by Muhammad Nurcahyo Pratomo and a lawyer or legal entity, back to point number 1 and point number 7, pengalaman anak kecil nih gue baik baik kamu kalo mau bermain api</li>
+<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker by Muhammad Nurcahyo Pratomo and a lawyer or legal entity, back to point number 1 and point number 7, the baby experience, the checkmate again and again hahahaha</li>
 <li>Gue buat produk sebanyak ini tidak pakai uang pemerintah dan invenstor jadi suka suka gue mau berisik. Selama belum beli ya nonton saja siapa yang tidak berguna bukan gue ini. Gue tenang saja harga gue naikin terus siapa yang bodoh</li>
 <li>Media TV selama ini gue pantau lewat sistem kalo ada pelanggaran gue blacklist perusahaanya kalo serang pejabat pemerintah silahkan tapi serang gue end game. Pengalaman anak kecil ini gue</li>
 <li>Di baca itu License Agreement kalo mau beli produk</li>
@@ -802,6 +802,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
