@@ -62,7 +62,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
-<li>Media TV selama ini gue pantau lewat sistem kalo ada pelanggaran gue blacklist perusahaanya</li>
+<li>Media TV selama ini gue pantau lewat sistem kalo ada pelanggaran gue blacklist perusahaanya. Pengalaman anak kecil ini gue</li>
 <li>Di baca itu License Agreement kalo mau beli produk</li>
 <li>Kekuasaan tertinggi dimana kalo kamu bisa baca ? Tidak baca poin no 7</li>
 <li>Mau di beli atau tidak siapa yg butuh kedepannya gue tanya ? 20 tahun kedepan gimana ? baru 4 tahun ini gue buat ya</li>
@@ -794,6 +794,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
