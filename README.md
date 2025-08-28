@@ -62,6 +62,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	 
 ### Muhammad Nurcahyo Pratomo Small talk
 <ul>
+<li>Di baca itu License Agreement kalo mau beli produk</li>
 <li>Kekuasaan tertinggi dimana kalo kamu bisa baca ? Tidak baca poin no 7</li>
 <li>Mau di beli atau tidak siapa yg butuh kedepannya gue tanya ? 20 tahun kedepan gimana ? baru 4 tahun ini gue buat ya</li>
 <li>Aplikasi website lu buat apa di pakai untuk 20 tahun kedepannya sudah jelas tidak. Belajar dari Friendster dulu</li>
@@ -792,6 +793,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
