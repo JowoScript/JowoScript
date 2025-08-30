@@ -30,7 +30,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
-#### PT JowoScript Technology Indonesia Introduction Regulatory Requirements Small talk
+#### PT JowoScript Technology Indonesia Introduction Regulatory Requirements Small talk (10 tahun kedepan bisa dipikir sendiri yang tidak kenal sama gue gimana persaingan bisnis dan dunia kerja makin susah)
 <img src="Kingdom Studio Version 0.1.28 Regulatory Requirements Zoom.png" 
      title="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"
      alt="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"     
@@ -850,6 +850,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
