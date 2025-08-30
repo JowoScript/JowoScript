@@ -109,7 +109,7 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 
 ### Muhammad Nurcahyo Pratomo Kingdom Studio History Small talk
 <div>
-	Iam the behind in code kingdom studio until now, this create first 2025 until now and build with love. The checkmate again hahahaha
+	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio
 </div>
 
 ### Muhammad Nurcahyo Pratomo Small talk
@@ -848,6 +848,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
