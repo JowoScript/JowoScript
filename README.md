@@ -30,6 +30,12 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 </div>
 </div>
 
+#### PT JowoScript Technology Indonesia Introduction Regulatory Requirements Small talk
+<img src="Kingdom Studio Version 0.1.28 Regulatory Requirements Zoom.png" 
+     title="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"
+     alt="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"     
+     width="100%" height="100%"></img>
+	 
 #### Kingdom Studio Version 0.1.28 fiture set lock out
 <img src="Kingdom Studio Version 0.1.28 fiture set lock out.png" 
      title="Kingdom Studio Version 0.1.28 fiture set lock out"
@@ -70,11 +76,6 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 <img src="Kingdom Studio Version 0.1.26 account license not active.png" 
      title="Kingdom Studio Account License New Version Small talk"
      alt="Kingdom Studio Account License New Version Small talk"     
-     width="100%" height="100%"></img>
-#### PT JowoScript Technology Indonesia Introduction Regulatory Requirements Small talk
-<img src="Kingdom Studio regulatory requirements update.png" 
-     title="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"
-     alt="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"     
      width="100%" height="100%"></img>
 	 
 #### PT JowoScript Technology Indonesia Introduction Product List Small talk
@@ -849,6 +850,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
