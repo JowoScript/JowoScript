@@ -19,7 +19,9 @@ https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
 	<br>
 	No matter how small my business is, I'm still the boss and only me can development my product
 	<br>
-	Orang bodoh itu selalu maki maki orang yg lebih cerdas
+	Orang bodoh itu selalu maki maki orang yg lebih cerdas. 
+	<br>
+	Terbukti sampai sekarang produk gue berjalan dan berkembang terus
 </strong>
 <br><br>
 <strong>
@@ -850,6 +852,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
