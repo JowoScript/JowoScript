@@ -8,8 +8,6 @@
 </div>
 <div align="center">
 	
-https://github.com/user-attachments/assets/daba2441-15d1-4658-b9e2-898c8da311a2
-
 <strong>
 	PT JowoScript Technology Indonesia - Always productive, capability and move forward technology
 	<br>
@@ -864,6 +862,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
