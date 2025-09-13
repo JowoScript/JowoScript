@@ -24,6 +24,8 @@
 	Tidak lihat banyak mall sepi sekarang ini baru level mall
 	<br>
 	Mau bisnis apa lagi ? Ai sudah banyak dan semua sama tidak lebih dan kurang ya
+	<br>
+	Hanya gue yang bisa kembangkan produk gue buat ye. biar paham siapa bossnya
 </strong>
 <br><br>
 <strong>
@@ -858,6 +860,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
