@@ -15,23 +15,11 @@
 	<br>
 	Sekecil apapun perusahaan gue tetap gue bossnya
 	<br>
-	No matter how small my business is, I'm still the boss and only me can development my product
-	<br>
-	Orang bodoh itu selalu maki maki orang yg lebih cerdas. 
-	<br>
-	Terbukti sampai sekarang produk gue berjalan dan berkembang terus
-	<br>
-	Selama belum beli jadi penonton saja kalian hahahaha itu derita anda rakyat
-	<br>
-	Rakyat atau next generation kalo tidak punya uang untuk beli produk gue buat mintanya ke pemerintah gue kasih tau yang benar
-	<br>
-	Rakyat Minta saja ke pemerintah kalo punya uang untuk beli produk gue buat hahahaha kalo pemerintah tidak punya uang hahahaha suruh saja gaji dan tunjangan turun semuanya
+	No matter how small my business is, I'm still the boss and only me can development my product	
 </strong>
 <br><br>
 <strong>
 	Introduction
-	<br>
-	The Checkmate Forever and again and again hahahahaha
 </strong>
 </div>
 </div>
@@ -862,6 +850,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
