@@ -15,7 +15,9 @@
 	<br>
 	No matter how small my business is, I'm still the boss and only me can development my product
 	<br>
-	Relax Everyday. Diamkan saja anak muda yg pengangguran selama tidak usik gue ye. Kalian akan mati oleh persaingan bisnis makin berat
+	Relax Everyday. Diamkan saja anak muda yg pengangguran selama tidak usik gue ye. 
+	<br>
+	Kalian akan mati oleh persaingan bisnis makin berat
 </strong>
 <br><br>
 <strong>
@@ -850,6 +852,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
