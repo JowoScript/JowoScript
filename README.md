@@ -30,6 +30,8 @@
 	Hanya gue yang bisa kembangkan produk gue buat ye. biar paham siapa bossnya
 	<br>
 	Kalian akan mati oleh persaingan bisnis makin berat
+	<br>
+	Kalo anak muda hanya cari wanita itu mudah bagi gue kalo niat cari wanita. Gue tidak cari wanita tapi gue lebih suka kembangkan bisnis sendiri
 </strong>
 <br><br>
 <strong>
@@ -864,6 +866,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
