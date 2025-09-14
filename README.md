@@ -38,6 +38,8 @@
 	Dari 2021 sampai sekarang sudah gue tandai semuanya orang yang serang gue sudah masuk blacklist sistem database private gue. 
 	<br>
 	Mau lu pakai akun palsu di facebook itu hanya gue ketawain ye selama ini
+	<br>
+	Mau lu ada donaturnya serang gue selama ini tetap saja aturan gue buat tetap berlaku dan masuk blacklist kalian sendiri yang rugi. goblok sih
 </strong>
 <br><br>
 <strong>
@@ -872,6 +874,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
