@@ -18,7 +18,9 @@
 	Relax Everyday. Diamkan saja anak muda yg pengangguran selama tidak usik gue ye. 
 	<br><br>
 	Sehebat apapun itu tergantung Sumber Daya Manusia Kalo skill Sumber Daya Manusia lu masih di bawah gue tetap akan failed juga di akhir.
-Banyak gaya boleh asal pintar. Banyak gaya tapi goblok itu bahaya apa lagi kerja masuk lewat orang dalam
+Banyak gaya boleh asal pintar.
+	<br>
+	Banyak gaya tapi goblok itu bahaya banget dong apa lagi kerja masuk lewat orang dalam
 </strong>
 <br><br>
 <strong>
@@ -865,6 +867,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
