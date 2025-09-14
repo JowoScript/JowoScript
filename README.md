@@ -44,6 +44,9 @@
 	Lu matiin saja donatur lu yang serang gue selama ini. Easy right
 	<br>
 	Menggunakan uang investor dan pemerintah itu belum tentu hebat buat produk hanya bisa niru tunggu saja akhir tahun ada hasil kerjanya tidak yg di danai. Paham sampai sini.
+	<br>
+	Sehebat apapun itu tergantung Sumber Daya Manusia Kalo skill Sumber Daya Manusia lu masih di bawah gue tetap akan failed juga di akhir.
+Banyak gaya boleh asal pintar. Banyak gaya tapi goblok itu bahaya apa lagi kerja masuk lewat orang dalam
 </strong>
 <br><br>
 <strong>
@@ -890,6 +893,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
