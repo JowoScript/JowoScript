@@ -31,7 +31,7 @@
 	<br>
 	Kalian akan mati oleh persaingan bisnis makin berat
 	<br>
-	Kalo anak muda hanya cari wanita itu mudah bagi gue kalo niat cari wanita. Gue tidak cari wanita tapi gue lebih suka kembangkan produk teknologi gue sendiri
+	Gue tidak cari wanita tapi gue lebih suka kembangkan produk teknologi gue sendiri, mampus persaingan bisnis makin berat apa lagi kerja
 </strong>
 <br><br>
 <strong>
@@ -866,6 +866,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
