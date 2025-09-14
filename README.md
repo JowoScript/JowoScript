@@ -16,34 +16,6 @@
 	No matter how small my business is, I'm still the boss and only me can development my product
 	<br>
 	Relax Everyday. Diamkan saja anak muda yg pengangguran selama tidak usik gue ye. 
-	<br>
-	Kalian akan mati oleh persaingan bisnis makin berat 
-	<br>
-	Itu derita kalian hobinya santai santai
-	<br>
-	Tidak lihat banyak mall sepi sekarang ini baru level mall
-	<br>
-	Mau bisnis apa lagi ? Ai sudah banyak dan semua sama tidak lebih dan kurang ya
-	<br>
-	Mau bisnis apa lagi ? E-commerce sudah banyak dan semua sama tidak lebih dan kurang ya
-	<br>
-	Hanya gue yang bisa kembangkan produk gue buat ye. biar paham siapa bossnya
-	<br>
-	Kalian akan mati oleh persaingan bisnis makin berat
-	<br>
-	Gue tidak cari wanita tapi gue lebih suka kembangkan produk teknologi gue sendiri sampai sekarang ye
-	<br>
-	Mampus persaingan bisnis makin berat apa lagi kerja
-	<br><br>
-	Dari 2021 sampai sekarang sudah gue tandai semuanya orang yang serang gue sudah masuk blacklist sistem database private gue. 
-	<br>
-	Mau lu pakai akun palsu di facebook itu hanya gue ketawain ye selama ini
-	<br>
-	Mau lu ada donaturnya serang gue selama ini tetap saja aturan gue buat tetap berlaku dan masuk blacklist kalian sendiri yang rugi. goblok sih
-	<br>
-	Lu matiin saja donatur lu yang serang gue selama ini. Easy right
-	<br>
-	Menggunakan uang investor dan pemerintah itu belum tentu hebat buat produk hanya bisa niru tunggu saja akhir tahun ada hasil kerjanya tidak yg di danai. Paham sampai sini.
 	<br><br>
 	Sehebat apapun itu tergantung Sumber Daya Manusia Kalo skill Sumber Daya Manusia lu masih di bawah gue tetap akan failed juga di akhir.
 Banyak gaya boleh asal pintar. Banyak gaya tapi goblok itu bahaya apa lagi kerja masuk lewat orang dalam
@@ -893,6 +865,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
