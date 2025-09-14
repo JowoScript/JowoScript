@@ -33,7 +33,7 @@
 	<br>
 	Gue tidak cari wanita tapi gue lebih suka kembangkan produk teknologi gue sendiri, mampus persaingan bisnis makin berat apa lagi kerja
 	<br>
-	Dari 2021 sampai sekarang sudah gue tandai semuanya masuk blacklist yang serang gue. Mampus jadi pengangguran dan tidak produktif
+	Dari 2021 sampai sekarang sudah gue tandai semuanya orang yang serang gue sudah masuk blacklist sistem database private gue.
 </strong>
 <br><br>
 <strong>
@@ -868,6 +868,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
