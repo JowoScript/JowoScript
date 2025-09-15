@@ -24,7 +24,7 @@ Banyak gaya boleh asal pintar.
 	<br><br>
 	Gue gampang tinggal hire ahli hukum, ahli ekonomi kalo mau beli. Selama ini gue lagi bertarung sama yg di danai pemerintah dan investor mau tau hasil kerjanya apa
 	<br><br>
-	Terima gaji dan tunjangan itu termasuk di danai pemerintah dan investor
+	Terima gaji dan tunjangan selama ini itu termasuk di danai pemerintah dan investor
 </strong>
 <br><br>
 <strong>
@@ -871,6 +871,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
