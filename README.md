@@ -26,7 +26,7 @@ Banyak gaya boleh asal pintar.
 	<br><br>
 	Terima gaji dan tunjangan selama ini termasuk kategori di danai pemerintah dan investor
 	<br>
-	Laporkan saja kalo ada polisi cepat kaya 🤣 minta jatah upeti
+	Laporkan saja kalo ada polisi cepat kaya 🤣 minta jatah upeti, kalo bersih kenapa takut kalian
 </strong>
 <br><br>
 <strong>
@@ -873,6 +873,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
