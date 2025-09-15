@@ -34,7 +34,7 @@ Banyak gaya boleh asal pintar.
 	<br>
 	Bisnis haram itu banyak kalo masalah upeti dari dulu
 	<br>
-	Contoh kecil bisnis haram judi online, judi offline, narkoba, penyelundupan barang ilegal dan banyak lagi
+	Contoh kecil bisnis haram judi online, judi offline, narkoba, penyelundupan barang ilegal, pungli di jalan dan banyak lagi
 </strong>
 <br><br>
 <strong>
@@ -881,6 +881,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
