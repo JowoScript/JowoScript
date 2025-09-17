@@ -17,7 +17,7 @@
 	<br>
 	Relax Everyday. Diamkan saja anak muda yg pengangguran selama tidak usik gue ye. 
 	<br><br>
-	AKhir tahun sebentar lagi tunggu saja perusahaan mana lagi tumbang. Tunggu saja laporang keuangan yang di danai selama ini
+	Akhir tahun sebentar lagi tunggu saja laporan keuangan yang di danai selama ini
 </strong>
 <br><br>
 <strong>
@@ -829,6 +829,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
