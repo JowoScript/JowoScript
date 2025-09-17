@@ -18,7 +18,7 @@
 	Relax Everyday produk buat sendiri tidak di modali invenstor dan pemerintah juga mau di beli atau tidak bodo amat bisa gue gunakan sendiri secret code.
 	<br>
 	Selama ini belum ada yang beli. Gue hanya menunggu akhir tahun yang di danai duluan hasilnya apa
-	<br>
+	<br><br>
 	Diamkan saja anak muda yg pengangguran dan skill standart saja karena persaingan bisnis itu berat di zaman digital
 	<br>
 	Buat produk di danai duluan terus di jual belum tentu laku itu banyak  
@@ -837,6 +837,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
