@@ -17,24 +17,7 @@
 	<br>
 	Relax Everyday. Diamkan saja anak muda yg pengangguran selama tidak usik gue ye. 
 	<br><br>
-	Sehebat apapun itu tergantung Sumber Daya Manusia Kalo skill Sumber Daya Manusia lu masih di bawah gue tetap akan failed juga di akhir.
-Banyak gaya boleh asal pintar.
-	<br>
-	Banyak gaya tapi goblok itu bahaya banget dong apa lagi kerja masuk lewat orang dalam
-	<br><br>
-	Gue gampang tinggal hire ahli hukum, ahli ekonomi kalo mau beli. Selama ini gue lagi bertarung sama yg di danai pemerintah dan investor mau tau hasil kerjanya apa
-	<br><br>
-	Terima gaji dan tunjangan selama ini termasuk kategori di danai pemerintah dan investor
-	<br>
-	Laporkan saja kalo ada polisi cepat kaya 🤣 minta jatah upeti, kalo bersih kenapa takut kalian
-	<br>
-	Laporinnya bisa lewat kejaksaan atau kpk tidak perlu gue jelaskan caranya lebih detil ya
-	<br>
-	Namanya oknum itu ada yang bersih dan ada yang tidak ya
-	<br>
-	Bisnis haram itu banyak kalo masalah upeti dari dulu
-	<br>
-	Contoh kecil bisnis haram judi online, judi offline, narkoba, penyelundupan barang ilegal, pungli di jalan dan banyak lagi
+	AKhir tahun sebentar lagi tunggu saja perusahaan mana lagi tumbang
 </strong>
 <br><br>
 <strong>
@@ -846,6 +829,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
