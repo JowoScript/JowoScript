@@ -15,9 +15,9 @@
 	<br>
 	No matter how small my business is, I'm still the boss and only me can development my product
 	<br>
-	Relax Everyday. Diamkan saja anak muda yg pengangguran selama tidak usik gue ye. 
+	Relax Everyday. Diamkan saja anak muda yg pengangguran persaingan bisnis itu berat
 	<br><br>
-	Akhir tahun sebentar lagi tunggu saja laporan keuangan yang di danai selama ini
+	Akhir tahun sebentar lagi tunggu saja laporan keuangan yang di danai selama ini dan hasilnya apa
 </strong>
 <br><br>
 <strong>
@@ -829,6 +829,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
