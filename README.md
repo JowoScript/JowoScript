@@ -17,7 +17,7 @@
 	<br>
 	Relax Everyday. Diamkan saja anak muda yg pengangguran persaingan bisnis itu berat
 	<br>
-	Buat produk di danai duluan terus di jual belum tentu laku itu banyak
+	Buat produk di danai duluan terus di jual belum tentu laku itu banyak  (Laporan keuangan pemasukan dan pengeluaran dalam proses pembuatan produk saja terlihat)
 	<br><br>
 	Akhir tahun sebentar lagi tunggu saja laporan keuangan yang di danai selama ini dan hasilnya apa
 </strong>
@@ -831,6 +831,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
