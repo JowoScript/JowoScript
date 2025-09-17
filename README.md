@@ -139,50 +139,15 @@ Banyak gaya boleh asal pintar.
      alt="Kingdom Studio Project Management"     
      width="100%" height="100%"></img>
 
+### Muhammad Nurcahyo Pratomo JS and JS3 History Small talk
+<div>
+	I'm behind Code JS and JS3 until now, JS and JS3 Build first 2021 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha
+</div>
+
 ### Muhammad Nurcahyo Pratomo Kingdom Studio History Small talk
 <div>
 	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha
 </div>
-
-### Muhammad Nurcahyo Pratomo Small talk
-<ul>
-<li>Awas yang demo di tunganggin korupsi dananya ? kasus BJB, pertamina, mendikbud, dll. Mereka takut kasusnya terbuka semua jadi dengan cara buat onar</li>
-<li>Gue hanya menunggu waktu perusahaan di danai pemerintah dan investor pada tutup</li>
-<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker by Muhammad Nurcahyo Pratomo and a lawyer or legal entity, back to point number 1 and point number 7, dont play with hight experience. Diamkan saja anak zaman now banyak gaya skill coding biasa biasa saja goblok banyak tingkah</li>
-<li>Gue buat produk sebanyak ini tidak pakai uang pemerintah dan invenstor jadi suka suka gue mau berisik. Selama belum beli ya nonton saja siapa yang tidak berguna bukan gue ini. Gue tenang saja harga gue naikin terus siapa yang bodoh</li>
-<li>Di baca itu License Agreement kalo mau beli produk</li>
-<li>Kekuasaan tertinggi dimana kalo kamu bisa baca ? Tidak baca poin no 7</li>
-<li>Mau di beli atau tidak siapa yg butuh kedepannya gue tanya ? 20 tahun kedepan gimana ? baru 4 tahun ini gue buat ya</li>
-<li>Aplikasi website lu buat apa di pakai untuk 20 tahun kedepannya sudah jelas tidak. Belajar dari Friendster dulu</li>
-<li>Gue hanya menunggu waktu anak muda yg banyak gaya dan skill biasa biasa saja biar paham kedepannya persaingan makin berat.</li>
-<li>Diamkan saja pemerintah hutang gue juga tidak mau nanggung hutang pemerintah. Perusahaan milik sendiri 10000% dan produk buat sendiri 10000% mau apa lu dan pemerintah juga belum beli sampai sekarang.</li>
-<li>Perusahaan lokal di china saja banyak PHK gue tau tapi tidak di publikasikan</li>
-<li>Kalian anak sekolah baru lulus sekolah sma or smk dan sarjana selamat jadi pengangguran, mental lu baru lulus belum siap gue jamin. Hina gue yang pengalaman banyak gaya depan gue. The checkmate again</li> 
-<li>Gue tidak di manja seperti kalian ya punya jabatan gaji dan tunjangan mau naik terus kalo bicara egois sama gue. Gue juga bisa egois kalo adu argumentasi</li>
-<li>Gue berisik tidak masalah perusahaan milik sendiri 10000% dan produk buat sendiri 10000%. Siapa yang tidak berguna juga bukan gue</li>
-<li>Hidup gue sederhana tandanya gue bersih lu goblok sih. Siapa yang hancur dan tidak berguna sekarang. The checkmate again</li>
-<li>Sesuai harapan gue bukan yang nyungsep kalian dan tidak berguna dan gue tetap produktif, berkembang terus versi produk naik terus</li>
-<li>Gue hanya menunggu waktu trader crypto juga pada tumbang karena persaingan itu makin berat</li>
-<li>Gue tidak makan ya kalian juga tidak akan makan. Adil bukan. Gaji dan tunjangan pada besar besar di pemerintahaan dan bumn ya silahkan di pikir sendiri, di akhir juga pada turun gaji dan tunjangan di pemerintah dan bumn</li>
-<li>Gue tidak makan ya kalian juga tidak akan makan. Adil bukan. Gue hanya menunggu waktu perusahaan IT yang di danai oleh invenstor dan pemerintah pada tutup bisnis karena persaingan itu makin berat</li>
-<li>Selama belum di beli ya kalian juga tidak akan makan. Adil bukan</li>
-<li>Gue hanya menunggu waktu siapa yang nikah tapi pengangguran dan tidak punya penghasilan biar paham hidup itu berat dan persangain bisnis itu berat apa lagi kerja</li>
-<li>Gue hanya menunggu waktu perusahaan IT yang di danai oleh invenstor dan pemerintah pada tutup bisnis karena persaingan itu makin berat</li>
-<li>Orang indonesia yang di london, japan, malaysia dan amerika masih sehat ?</li>
-<li>Diamkan saja orang indonesia yang di luar negeri. Di luar negeri saja banyak yang tutup bisnis karena persaingan itu makin berat</li>
-<li>Kau yang tidak punya hasil di danai pemerintah dan investor saja masih bodoh. Kita lihat hasil laporan keuangan saja di akhir yang di danai selama ini. Kalo bicara untung dan rugi dalam bisnis selama ini. Gaji dan tunjangan pegawai saja sudah minus banyak belum yang lainnya. The checkmate again</li>
-<li>Anda yang tidak berguna selama ini bukan gue ya. The checkmate again</li>
-<li>Kingdom Studio tidak menggunakan uang pemerintah dan investor dalam pembuatannya. Siapapun wajib beli kalo pakai kingdom studio. The checkmate again</li>
-<li>Tidak ada hasil kerjanya tidak menerima gaji dan tunjangan itu aturannya dari dulu ya. Adil bukan. The checkmate again</li>
-<li>Penyesalan selalu datang di akhir paham sampai sini. Orang bodoh hanya menonton. The checkmate again</li>
-<li>Selama belum beli ya nonton saja itu aturannya. The checkmate again</li>
-<li>Jowo Extensible Markup Language (JXML) available on kingdom studio. The checkmate again</li>
-<li>Jowo Style Sheets Language (JSS) available on kingdom studio. The checkmate again</li>
-<li>Jowo Hypertext Markup Language available on kingdom studio. The checkmate again</li>
-<li>JowoScript available on Kingdom Studio. The checkmate again</li>
-<li>Jowo Kingdom Studio available on Kingdom Studio. The checkmate again</li>
-<li>75 triliun rupiah perbulan atau 900 Triliun rupiah pertahun mampu beli kingdom studio ? uang nya untuk gue sendiri itu hak gue ya kalo mau beli. Tidak mau beli tidak masalah lu yang tidak berguna bukan gue</li>
-</ul>
 
 ### Jaminan Produk
 <ul>
@@ -881,6 +846,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
