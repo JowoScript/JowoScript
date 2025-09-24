@@ -19,7 +19,7 @@
 	<br>
 	Selama ini belum ada yang beli. Gue hanya menunggu akhir tahun yang di danai duluan hasilnya apa
 	<br><br>
-	Akhir tahun kita lihat siapa yg penipu selama ini beli produk gue juga tidak. perusahaan go publik 🤣
+	Akhir tahun kita lihat siapa yg penipu selama ini beli produk gue juga tidak.
 </strong>
 <br><br>
 <strong>
@@ -831,6 +831,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
