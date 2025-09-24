@@ -19,13 +19,7 @@
 	<br>
 	Selama ini belum ada yang beli. Gue hanya menunggu akhir tahun yang di danai duluan hasilnya apa
 	<br><br>
-	Diamkan saja anak muda yg pengangguran dan skill standart saja karena persaingan bisnis itu berat di zaman digital
-	<br>
-	Buat produk di danai duluan terus di jual belum tentu laku itu banyak  
-	<br>
-	(Laporan keuangan pemasukan dan pengeluaran dalam proses pembuatan produk saja terlihat)
-	<br><br>
-	Akhir tahun sebentar lagi tunggu saja laporan keuangan yang di danai selama ini dan hasilnya apa
+	Akhir tahun kita lihat siapa yg penipu selama ini beli produk gue juga tidak. perusahaan go publik 🤣
 </strong>
 <br><br>
 <strong>
@@ -837,6 +831,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
