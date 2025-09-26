@@ -30,6 +30,8 @@
 	Mau debat kusir kalian terima gaji dan tunjangan selama ini kerjanya apa ? gue tidak terima gaji dan tunjangan selama ini ya.
 	<br>
 	Kalian harusnya malu sama gue kalo mau minta gratisan ya dan siapa yang malu gue tanya hello
+	<br>
+	pidanakan saja siapa yg penipu tidak beli beli produk gue buat
 </strong>
 <br><br>
 <strong>
@@ -841,6 +843,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
