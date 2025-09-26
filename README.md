@@ -26,6 +26,8 @@
 	Siapa yg habiskan anggaran pemerintah dan investor juga bukan gue selama ini
 	<br>
 	Akhir tahun 2025 bentar lagi kita lihat siapa yg penipu tidak beli beli produk gue buat. paham posisi gue apa di perusahaan gue PT JowoScript Technology Indonesia dan nyali gue
+	<br>
+	Mau debat kusir kalian terima gaji dan tunjangan selama ini kerjanya apa ? gue tidak terima gaji dan tunjangan selama ini ya. 
 </strong>
 <br><br>
 <strong>
@@ -837,6 +839,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
