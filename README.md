@@ -34,6 +34,8 @@
 	pidanakan saja siapa yg penipu tidak beli beli produk gue buat
 	<br>
 	Gue tetap berjalan mau di beli atau tidak siapa yang tidak berguna juga bukan gue
+	<br>
+	perusahaan mana lagi tumbang kita lihat saja
 </strong>
 <br><br>
 <strong>
@@ -845,6 +847,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
