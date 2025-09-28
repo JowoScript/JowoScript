@@ -30,6 +30,8 @@
 	Gue tetap berjalan mau di beli atau tidak siapa yang tidak berguna juga bukan gue
 	<br>
 	Tidak usah akhir tahun 2025 ini. Akhir bulan ini juga sudah terlihat siapa penipu nya beli juga tidak produk gue buat
+	<br>
+	Masih sehat beli saham dan cryptocurrency ? the checkmate forever
 </strong>
 <br><br>
 <strong>
@@ -841,6 +843,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
