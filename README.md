@@ -15,11 +15,11 @@
 	<br>
 	No matter how small my business is, I'm still the boss and only me can development my product
 	<br>
-	Relax Everyday produk buat sendiri tidak di modali invenstor dan pemerintah juga mau di beli atau tidak bodo amat bisa gue gunakan sendiri secret code.
+	Relax Everyday produk buat sendiri tidak di modali invenstor dan pemerintah juga, mau di beli atau tidak bodo amat bisa gue gunakan sendiri secret code.
 	<br>
-	Selama ini belum ada yang beli. Gue hanya menunggu akhir tahun yang di danai duluan hasilnya apa
+	Selama ini belum ada yang beli.
 	<br><br>
-	Akhir tahun kita lihat siapa yg penipu selama ini beli produk gue juga tidak.
+	still healthy to buy stocks and cryptocurrency ? laporkan saja tidak beli produk gue buat siapa penipu nya
 	<br>
 	Gue tidak terima uang nya selama ini dan belum ada yg beli
 	<br>
@@ -843,6 +843,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
