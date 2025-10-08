@@ -27,7 +27,7 @@
 	<br>
 	Mana ada belinya secara online selama ini mudah cara bersihkan penipuan ya siapa yg bodoh selama ini
 	<br>
-	Kalian tidak di danai bisanya buat apa gue tanya ? gak ada kan. malu ya sadar diri kalo goblok
+	Tidak beli ya nonton saja ya hahahaha siapa yang goblok selama ini
 </strong>
 <br><br>
 <strong>
@@ -839,6 +839,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
