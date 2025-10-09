@@ -16,18 +16,12 @@
 	No matter how small my business is, I'm still the boss and only me can development my product
 	<br>
 	Relax Everyday produk buat sendiri tidak di modali invenstor dan pemerintah juga, mau di beli atau tidak bodo amat bisa gue gunakan sendiri secret code.
-	<br>
-	Selama ini belum ada yang beli.
 	<br><br>
-	still healthy to buy stocks and cryptocurrency ? laporkan saja tidak beli produk gue buat siapa penipu nya
-	<br>
-	Gue tidak terima uang nya selama ini dan belum ada yg beli
-	<br>
 	Siapa yg habiskan anggaran pemerintah dan investor juga bukan gue selama ini
 	<br>
 	Mana ada belinya secara online selama ini mudah cara bersihkan penipuan ya siapa yg bodoh selama ini
 	<br>
-	Tidak beli ya nonton saja ya hahahaha siapa yang goblok selama ini
+	Selama belum di beli akan terlihat siapa yg tidak berguna. Ini berlaku di manapun itu. Setiap 5 tahun ganti kekuasaan
 </strong>
 <br><br>
 <strong>
@@ -839,6 +833,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
