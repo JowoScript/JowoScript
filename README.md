@@ -39,7 +39,7 @@
 	<br>
 	Kalian ramai ramai maki maki gue lewat music di kira gue tidak bisa bales bawa masa balik
 	<br>
-	Sodara gue santai tau dj nya skill coding masih di bawah gue jahu banyak gaya gobolok
+	Sodara gue santai tau dj nya skill coding masih di bawah gue jahu banyak gaya goblok hidup lagi
 </strong>
 <br><br>
 <strong>
@@ -856,6 +856,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
