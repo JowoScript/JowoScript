@@ -38,6 +38,8 @@
 	DJ nya selama ini maki maki hina gue lewat music secara ramai ramai ya gimana kalo orang tua gue atau sodara gue tersingung ya. Baik baik sodara gue sengaja diam selama ini itu lebih bahaya ya paham DJ. 
 	<br>
 	Kalian ramai ramai maki maki gue lewat music di kira gue tidak bisa bales bawa masa balik
+	<br>
+	Sodara gue santai tau dj nya skill coding masih di bawah gue jahu banyak gaya gobolok
 </strong>
 <br><br>
 <strong>
@@ -854,6 +856,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
