@@ -48,105 +48,9 @@
 </div>
 </div>
 
-#### Kingdom Studio Version 0.1.41 JON
-<img src="Kingdom Studio Version 0.1.41 JON.png" 
-     title="Kingdom Studio Version 0.1.41 JON"
-     alt="Kingdom Studio Version 0.1.41 JON"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio Version 0.1.37 JML
-<img src="Kingdom Studio Version 0.1.37 JML.png" 
-     title="Kingdom Studio Version 0.1.37 JML"
-     alt="Kingdom Studio Version 0.1.37 JML"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio Version 0.1.34 create a new project
-<img src="Kingdom Studio Version 0.1.34 create a new project.png" 
-     title="Kingdom Studio Version 0.1.34 create a new project"
-     alt="Kingdom Studio Version 0.1.34 create a new project"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio Version 0.1.32 configure your new project
-<img src="Kingdom Studio Version 0.1.32 configure your new project.png" 
-     title="Kingdom Studio Version 0.1.32 configure your new project"
-     alt="Kingdom Studio Version 0.1.32 configure your new project"     
-     width="100%" height="100%"></img>
-
-#### PT JowoScript Technology Indonesia Introduction Regulatory Requirements Small talk (10 tahun kedepan bisa dipikir sendiri yang tidak kenal sama gue gimana persaingan dunia bisnis dan dunia kerja makin susah) Gue bukan orang bodoh teman gue yang bermasalah selama ini masih hidup. Sudah jelas teman gue yang bermasalah mau ngumpet dimana ini berlaku di indonesia dan malaysia
-<img src="Kingdom Studio Version 0.1.29 Regulatory Requirements.png" 
-     title="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"
-     alt="PT JowoScript Tehcnology Indonesia Regulatory Requirements Small talk"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio Version 0.1.28 fiture set lock out
-<img src="Kingdom Studio Version 0.1.28 fiture set lock out.png" 
-     title="Kingdom Studio Version 0.1.28 fiture set lock out"
-     alt="Kingdom Studio Version 0.1.28 fiture set lock out"     
-     width="100%" height="100%"></img>
-
-#### Kingdom Studio Version 0.1.28 fiture set lock in
-<img src="Kingdom Studio Version 0.1.28 fiture set lock in.png" 
-     title="Kingdom Studio Version 0.1.28 fiture set lock in"
-     alt="Kingdom Studio Version 0.1.28 fiture set lock in"     
-     width="100%" height="100%"></img>
-
-#### Kingdom Studio Version 0.1.28 Startup
-<img src="Kingdom Studio Version 0.1.28 Startup.png" 
-     title="Kingdom Studio Version 0.1.28 Startup"
-     alt="Kingdom Studio Version 0.1.28 Startup"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio Version 0.1.28 fiture lock in
-<img src="Kingdom Studio Version 0.1.28 fiture lock in.png" 
-     title="Kingdom Studio Version 0.1.28 fiture lock in Small talk"
-     alt="Kingdom Studio Version 0.1.28 fiture lock in Small talk"     
-     width="100%" height="100%"></img>
-
-#### Kingdom Studio Version 0.1.28 fiture lock out
-<img src="Kingdom Studio Version 0.1.28 fiture lock out.png" 
-     title="Kingdom Studio Version 0.1.28 fiture lock out Small talk"
-     alt="Kingdom Studio Version 0.1.28 fiture lock out Small talk"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio Account License if active
-<img src="Kingdom Studio Version 0.1.26 account license active.png" 
-     title="Kingdom Studio Account License New Version Small talk"
-     alt="Kingdom Studio Account License New Version Small talk"     
-     width="100%" height="100%"></img>
-
-#### Kingdom Studio Account License if not active
-<img src="Kingdom Studio Version 0.1.29 account license not active.png" 
-     title="Kingdom Studio Account License New Version Small talk"
-     alt="Kingdom Studio Account License New Version Small talk"     
-     width="100%" height="100%"></img>
-	 
-#### PT JowoScript Technology Indonesia Introduction Product List Small talk
-<img src="PT JowoScript Tehcnology Indonesia Product List.png" 
-     title="PT JowoScript Tehcnology Indonesia Product List Small talk"
-     alt="PT JowoScript Tehcnology Indonesia Product List Small talk"     
-     width="100%" height="100%"></img>
-
-#### PT JowoScript Technology Indonesia Introduction Product Guarantee Small talk, the baby experience, the checkmate again and again hahahaha
-<img src="Kingdom Studio product guarantee update.png" 
-     title="PT JowoScript Tehcnology Indonesia Product Guarantee Small talk"
-     alt="PT JowoScript Tehcnology Indonesia Product Guarantee Small talk"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio License Agreement Small talk 
-<img src="Kingdom Studio license agreement update 2.png" 
-     title="Kingdom Studio License Agreement Small talk"
-     alt="Kingdom Studio License Agreement Small talk"     
-     width="100%" height="100%"></img>
-	 
-#### Kingdom Studio Project Management Small talk
-<img src="Kingdom Studio Version 0.1.23 project management new.png" 
-     title="Kingdom Studio Project Management"
-     alt="Kingdom Studio Project Management"     
-     width="100%" height="100%"></img>
-
-### Muhammad Nurcahyo Pratomo Introduction defense technology IT and capability IT 
+### Muhammad Nurcahyo Pratomo Introduction defense technology Information Technology and capability Information Technology 
 <div>
-	Information Technology keys for all activity global world wide web and world wide systems, example confidential government data 
+	Information Technology keys for all activity global world wide web and world wide systems, example government data confidential and more
 </div>
 
 ### Muhammad Nurcahyo Pratomo JS and JS3 History Small talk
@@ -856,6 +760,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
