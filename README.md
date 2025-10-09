@@ -138,6 +138,11 @@
      alt="Kingdom Studio Project Management"     
      width="100%" height="100%"></img>
 
+### Muhammad Nurcahyo Pratomo Introduction and Small talk
+<div>
+	Upload video saja sudah ada hak ciptanya melanggar hak cipta tidak bisa di publish ini hanya contoh kecil saja dan ini berlaku di semua platform apa saja. Itu di sebut aturan dan hukum namanya ya
+</div>
+
 ### Muhammad Nurcahyo Pratomo JS and JS3 History Small talk
 <div>
 	I'm behind Code JS and JS3 until now, JS and JS3 Build first 2021 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha
@@ -845,6 +850,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
