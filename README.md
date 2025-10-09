@@ -34,6 +34,8 @@
 	upload video saja sudah ada hak ciptanya melanggar hak cipta tidak bisa di publish ini hanya contoh kecil saja
 	<br>
 	ini berlaku di semua platform apa saja
+	<br>
+	DJ nya selama ini maki maki hina gue lewat music gimana kalo orang tua gue atau sodara gue tersingung ya
 </strong>
 <br><br>
 <strong>
@@ -850,6 +852,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
