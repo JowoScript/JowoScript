@@ -22,6 +22,8 @@
 	Mana ada belinya secara online selama ini mudah cara bersihkan penipuan ya siapa yg bodoh selama ini
 	<br>
 	Selama belum di beli akan terlihat siapa yg tidak berguna. Ini berlaku di manapun itu. Setiap 5 tahun ganti kekuasaan
+	<br>
+	Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. gue tidak go publik ya
 </strong>
 <br><br>
 <strong>
@@ -833,6 +835,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
