@@ -146,7 +146,7 @@
 
 ### Muhammad Nurcahyo Pratomo Introduction defense technology IT and capability IT 
 <div>
-	Information Technology keys for all activity global world wide web and world wide systems
+	Information Technology keys for all activity global world wide web and world wide systems, example confidential government data 
 </div>
 
 ### Muhammad Nurcahyo Pratomo JS and JS3 History Small talk
@@ -856,6 +856,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
