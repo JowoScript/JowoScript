@@ -132,7 +132,7 @@
      alt="PT JowoScript Tehcnology Indonesia Product Guarantee Small talk"     
      width="100%" height="100%"></img>
 	 
-#### Kingdom Studio License Agreement Small talk (Pengalaman anak kecil ini) Sampai kiamat mana bisa lu edit sudah gue buat begini (cara mudah bersihkan pengusaha licik)
+#### Kingdom Studio License Agreement Small talk 
 <img src="Kingdom Studio license agreement update 2.png" 
      title="Kingdom Studio License Agreement Small talk"
      alt="Kingdom Studio License Agreement Small talk"     
@@ -144,9 +144,9 @@
      alt="Kingdom Studio Project Management"     
      width="100%" height="100%"></img>
 
-### Muhammad Nurcahyo Pratomo Introduction and Small talk
+### Muhammad Nurcahyo Pratomo Introduction defense technology IT and capability IT 
 <div>
-	Upload video saja sudah ada hak ciptanya melanggar hak cipta tidak bisa di publish ini hanya contoh kecil saja dan ini berlaku di semua platform apa saja. Itu di sebut aturan dan hukum namanya ya
+	Information Technology keys for all activity global world wide web and world wide systems
 </div>
 
 ### Muhammad Nurcahyo Pratomo JS and JS3 History Small talk
@@ -856,6 +856,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
