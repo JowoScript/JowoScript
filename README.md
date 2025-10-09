@@ -53,9 +53,9 @@
 	Information Technology keys for all activity global world wide web and world wide systems, example government data confidential and more
 </div>
 
-### Muhammad Nurcahyo Pratomo JXML History Small talk
+### Muhammad Nurcahyo Pratomo JXML and JHTML History Small talk
 <div>
-	I'm behind Code JXML until now, JXML Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha
+	I'm behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha
 </div>
 
 ### Muhammad Nurcahyo Pratomo Jowo Object Notation History Small talk
@@ -770,6 +770,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
