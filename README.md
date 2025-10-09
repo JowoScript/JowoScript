@@ -30,6 +30,8 @@
 	Buat aplikasi mahal mahal menggunakan free license 🤣. Siapa yg bodoh selama ini
 	<br>
 	Semua pimpinan hukum sudah tau ye
+	<br>
+	upload video saja sudah ada hak ciptanya melanggar hak cipta tidak bisa di publish
 </strong>
 <br><br>
 <strong>
@@ -841,6 +843,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
