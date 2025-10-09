@@ -35,7 +35,7 @@
 	<br>
 	ini berlaku di semua platform apa saja
 	<br>
-	DJ nya selama ini maki maki hina gue lewat music gimana kalo orang tua gue atau sodara gue tersingung ya. Baik baik sodara gue sengaja diam selama ini itu lebih bahaya ya paham DJ
+	DJ nya selama ini maki maki hina gue lewat music secara ramai ramai ya gimana kalo orang tua gue atau sodara gue tersingung ya. Baik baik sodara gue sengaja diam selama ini itu lebih bahaya ya paham DJ. Kalian ramai ramai di kira gue tidak bisa bales nantinya
 </strong>
 <br><br>
 <strong>
@@ -852,6 +852,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
