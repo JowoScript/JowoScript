@@ -13,33 +13,7 @@
 	<br>
 	Sekecil apapun perusahaan gue tetap gue bossnya
 	<br>
-	No matter how small my business is, I'm still the boss and only me can development my product
-	<br>
-	Relax Everyday produk buat sendiri tidak di modali invenstor dan pemerintah juga, mau di beli atau tidak bodo amat bisa gue gunakan sendiri secret code.
-	<br><br>
-	Siapa yg habiskan anggaran pemerintah dan investor juga bukan gue selama ini
-	<br>
-	Mana ada belinya secara online selama ini mudah cara bersihkan penipuan ya siapa yg bodoh selama ini
-	<br>
-	Selama belum di beli akan terlihat siapa yg tidak berguna. Ini berlaku di manapun itu. Setiap 5 tahun ganti kekuasaan
-	<br>
-	Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. gue tidak go publik ya
-	<br>
-	Status free license sama bayar itu beda ya ✍️📚. Menggugat status free license tidak kuat di mata hukum.
-	<br>	
-	Buat aplikasi mahal mahal menggunakan free license 🤣. Siapa yg bodoh selama ini
-	<br>
-	Semua pimpinan hukum sudah tau ye
-	<br>
-	upload video saja sudah ada hak ciptanya melanggar hak cipta tidak bisa di publish ini hanya contoh kecil saja
-	<br>
-	ini berlaku di semua platform apa saja
-	<br>
-	DJ nya selama ini maki maki hina gue lewat music secara ramai ramai ya gimana kalo orang tua gue atau sodara gue tersingung ya. Baik baik sodara gue sengaja diam selama ini itu lebih bahaya ya paham DJ. 
-	<br>
-	Kalian ramai ramai maki maki gue lewat music di kira gue tidak bisa bales bawa masa balik
-	<br>
-	Sodara gue santai tau dj nya skill coding masih di bawah gue jahu banyak gaya goblok hidup lagi
+	No matter how small my business is, I'm still the boss and only me can development my product end to end
 </strong>
 <br><br>
 <strong>
@@ -770,6 +744,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
