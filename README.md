@@ -26,6 +26,15 @@
 </div>
 </div>
 
+### Muhammad Nurcahyo Pratomo Intro Small talk Example Product
+<ul>
+	<li>Many new method encryption end to end in product</li>
+	<li>Many new method decryption end to end in product</li>
+	<li>Many new method element in product</li>
+	<li>Many new method paradigma in product</li>
+	<li>Many new method secret in product</li>
+</ul>
+
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
 	<li>Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya semua butuh bukti pengluaran dan pemasukan nanti terlihat. Produk perusahaan gue tidak ada yang gratis ya semua bayar, mau adu argumentasi gue ladenin. Dari awal buat sampai sekarang terbukti tetap wajib beli. Tidak melenca melence bicara gue ya. Bicara A pasti A dan B pasti B</li>
@@ -755,6 +764,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
