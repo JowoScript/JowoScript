@@ -28,7 +28,7 @@
 <ul>
 	<li>Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya semua butuh bukti pengluaran dan pemasukan nanti terlihat. Produk perusahaan gue tidak ada yang gratis ya semua bayar, mau adu argumentasi gue ladenin. Dari awal buat sampai sekarang terbukti tetap wajib beli. Tidak melenca melence bicara gue ya. Bicara A pasti A dan B pasti B</li>
 	<li>Hina gue tidak berguna gimana yang habiskan anggaran pemerintah dan terima bantuan dari pemerintah selama ini seperti terima subsidi, terima bantuan sosial, dan banyak lagi ya (gaji besar dan tunjangan besar)</li>
-	<li>Setiap 5 tahun sekali ganti kekuasaan nanti akan terlihat siapa yang tidak berguna (talk to do more) bukan level gue jadi penjilat dan sejenisnya ya ini berlaku di seluruh negara</li>
+	<li>Setiap 5 tahun sekali ganti kekuasaan nanti akan terlihat siapa yang tidak berguna (talk to do more) bukan level gue jadi penjilat dan sejenisnya ya ini berlaku di seluruh negara bukan di indonesia saja. Setiap negara yang di pilih rakyatnya pasti 5 tahun sekali pemilihan ulang dan sudah terpilih 2 kalii tidak bisa calonkan lagi itu aturan dari dulu</li>
 </ul>
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Kingdom Machine or JKM History Small talk
@@ -753,6 +753,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
