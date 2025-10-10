@@ -26,7 +26,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <div>
-	Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya
+	Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya. Produk perusahaan gue tidak ada yang gratis ya semua bayar, mau adu argumentasi gue ladenin.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Kingdom Machine or JKM History Small talk
@@ -751,6 +751,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
