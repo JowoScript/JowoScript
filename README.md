@@ -24,9 +24,14 @@
 </div>
 </div>
 
+### Muhammad Nurcahyo Pratomo Intro Small talk
+<div>
+	Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya
+</div>
+
 ### Muhammad Nurcahyo Pratomo Intro Jowo Kingdom Machine or JKM History Small talk
 <div>
-	I'm behind Code Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. Perusahaan gue tidak go publik ya
+	I'm behind Code Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. Perusahaan gue tidak go publik ya.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JXML and JHTML History Small talk
@@ -746,6 +751,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
