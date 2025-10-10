@@ -9,7 +9,9 @@
 <div align="center">
 	
 <strong>
-	PT JowoScript Technology Indonesia - Always productive, defense technology industry IT, capability and move forward technology
+	PT JowoScript Technology Indonesia - Always productive, defense industry Information Technology, capability Information Technology and move forward breakthrough information technology
+	<br>
+	Example many new methode encryption end to end in product
 	<br>
 	Sekecil apapun perusahaan gue tetap gue bossnya
 	<br>
@@ -753,6 +755,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
