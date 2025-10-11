@@ -35,6 +35,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Ngaku raja, sultan, ulama, menteri, gebernur, dan sebagainya tapi tidak berguna untuk rakyatnya siapa yg malu</li>
 	<li>Visual studio saja sudah lebih dari 10 tahun sampai sekarang berkembang terus. Itu hanya contoh kecil ya. Semua bahasa pemrograman baru gue buat hanya bisa di kingdom studio dan tidak bisa berjalan di IDE manapun itu. Paham sampai sini kalo bodoh itu sadar diri</li>
 	<li>Selama mahkama agung sama gue, gue yang lindungin dari orang yang mau fitnah. Paham sampai sini ya</li>
 	<li>Sodara dari ibu dan bapak gue santai, gue yang lindungin dari orang yang mau fitnah. Paham sampai sini ya</li>
@@ -770,6 +771,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
