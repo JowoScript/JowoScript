@@ -35,7 +35,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
-	<li>Selama mahkama agung sama gue, gue yang lindungin dari orang yang mau fitnah</li>
+	<li>Selama mahkama agung sama gue, gue yang lindungin dari orang yang mau fitnah. Paham sampai sini ya</li>
 	<li>Perusahaan milik gue sendiri dan produk milik gue sendiri. Selama tidak beli kita lihat siapa yg hancur dan tidak berguna</li>
 	<li>Kalo saingan gue hanya pengusaha mau statusnya kaya atau miskin ya mereka sendiri yg akan bermasalah hukum kalo mau nipu gue</li>
 	<li>Kalo saingan gue hanya masih kerja di pemerintahan atau perusahaan ya kalo nipu gue pasti mereka sendiri akan kena pecat dan di pidanakan</li>
@@ -768,6 +768,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
