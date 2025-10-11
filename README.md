@@ -37,12 +37,12 @@
 <ul>
 	<li>Selama mahkama agung sama gue, gue yang lindungin dari orang yang mau fitnah. Paham sampai sini ya</li>
 	<li>Sodara dari ibu dan bapak gue santai, gue yang lindungin dari orang yang mau fitnah. Paham sampai sini ya</li>
-	<li>Perusahaan milik gue sendiri dan produk milik gue sendiri. Selama tidak beli kita lihat siapa yg hancur dan tidak berguna</li>
+	<li>Perusahaan milik gue sendiri dan produk milik gue sendiri. Selama ini belum ada yang beli. Selama tidak beli kita lihat siapa yg hancur dan tidak berguna</li>
 	<li>Kalo saingan gue hanya pengusaha mau statusnya kaya atau miskin ya mereka sendiri yg akan bermasalah hukum kalo mau nipu gue</li>
 	<li>Kalo saingan gue hanya masih kerja di pemerintahan atau perusahaan ya kalo nipu gue pasti mereka sendiri akan kena pecat dan di pidanakan</li>
 	<li>Kalo saingan gue pengangguran mereka akan mati oleh persaingan dunia kerja</li>
 	<li>Mereka yg tidak berguna akan mati oleh persaingan zaman 😎</li>
-	<li>Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya semua butuh bukti pengluaran dan pemasukan nanti terlihat. Produk perusahaan gue tidak ada yang gratis ya semua bayar, mau adu argumentasi gue ladenin. Dari awal buat sampai sekarang terbukti tetap wajib beli. Tidak melenca melence bicara gue ya. Bicara A pasti A dan B pasti B</li>
+	<li>Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya semua butuh bukti pengluaran dan pemasukan nanti terlihat. Produk perusahaan gue tidak ada yang gratis ya semua bayar, mau adu argumentasi gue ladenin. Dari awal buat sampai sekarang terbukti tetap wajib beli. Selama ini belum ada yang beli. Tidak melenca melence bicara gue ya. Bicara A pasti A dan B pasti B</li>
 	<li>Hina gue tidak berguna gimana yang habiskan anggaran pemerintah dan terima bantuan dari pemerintah selama ini seperti terima subsidi, terima bantuan sosial, dan banyak lagi ya seperti terima gaji dan tunjangan itu termasuk juga kalo hina gue tidak berguna.</li>
 	<li>Setiap 5 tahun sekali ganti kekuasaan nanti akan terlihat siapa yang tidak berguna (talk to do more) bukan level gue jadi penjilat dan sejenisnya ya ini berlaku di seluruh negara bukan di indonesia saja. Setiap negara yang di pilih rakyatnya pasti 5 tahun sekali pemilihan ulang dan sudah terpilih 2 kalii tidak bisa calonkan lagi itu aturan dari dulu</li>
 </ul>
@@ -769,6 +769,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
