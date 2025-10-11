@@ -35,6 +35,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Visual studio saja sudah lebih dari 10 tahun sampai sekarang berkembang terus. Itu hanya contoh kecil ya. Semua bahasa pemrograman baru gue buat hanya bisa di kingdom studio.</li>
 	<li>Selama mahkama agung sama gue, gue yang lindungin dari orang yang mau fitnah. Paham sampai sini ya</li>
 	<li>Sodara dari ibu dan bapak gue santai, gue yang lindungin dari orang yang mau fitnah. Paham sampai sini ya</li>
 	<li>Perusahaan milik gue sendiri dan produk milik gue sendiri. Selama ini belum ada yang beli. Selama tidak beli kita lihat siapa yg hancur dan tidak berguna akan terlihat nantinya</li>
@@ -49,27 +50,27 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Kingdom Machine or JKM History Small talk
 <div>
-	I'm behind Code Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. Perusahaan gue tidak go publik ya.
+	I'm behind Code Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JXML and JHTML History Small talk
 <div>
-	I'm behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. Perusahaan gue tidak go publik ya
+	I'm behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Object Notation History Small talk
 <div>
-	I'm behind Code Jowo Object Notation until now, Jowo Object Notation Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. Perusahaan gue tidak go publik ya
+	I'm behind Code Jowo Object Notation until now, Jowo Object Notation Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JowoScript and JS3 History Small talk
 <div>
-	I'm behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. Perusahaan gue tidak go publik ya
+	I'm behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Kingdom Studio History Small talk
 <div>
-	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah 🤣. Perusahaan gue tidak go publik ya
+	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency.
 </div>
 
 ### Jaminan Produk (Jika sudah beli)
@@ -769,6 +770,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
