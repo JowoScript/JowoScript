@@ -47,6 +47,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency</li>
 	<li>Selama belum di beli akan terlihat siapa yang tidak berguna</li>
 	<li>Aturan gue buat tetap berlaku kalo mau beli</li>
 	<li>Visual studio saja sudah lebih dari 10 tahun sampai sekarang berkembang terus. Itu hanya contoh kecil ya. Semua bahasa pemrograman baru gue buat hanya bisa di kingdom studio dan tidak bisa berjalan di IDE manapun itu. Paham sampai sini kalo bodoh itu sadar diri</li>
@@ -784,6 +785,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
