@@ -47,6 +47,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Ini baru 10% dari skill coding gue tunjukan ke pada dunia. Paham sampai sini</li>
 	<li>Mental pengangguran apa kabarnya kalian...siapa yang tidak berguna akan terlihat ya</li>
 	<li>Aturan gue buat tetap berlaku kalo mau beli</li>
 	<li>Visual studio saja sudah lebih dari 10 tahun sampai sekarang berkembang terus. Itu hanya contoh kecil ya. Semua bahasa pemrograman baru gue buat hanya bisa di kingdom studio dan tidak bisa berjalan di IDE manapun itu. Paham sampai sini kalo bodoh itu sadar diri</li>
@@ -784,6 +785,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
