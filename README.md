@@ -47,6 +47,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Selama belum di beli akan terlihat siapa yang tidak berguna</li>
 	<li>Ini baru 10% dari skill coding gue tunjukan ke pada dunia. Paham sampai sini</li>
 	<li>Mental pengangguran apa kabarnya kalian...siapa yang tidak berguna akan terlihat ya</li>
 	<li>Aturan gue buat tetap berlaku kalo mau beli</li>
@@ -785,6 +786,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
