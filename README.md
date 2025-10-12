@@ -47,8 +47,8 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
-	<li>Belum proyek buat aplikasi Ai dan sejenisnya habiskan uang banyak hasil profitabilitas nya apa selama ini. Bicara uang bukan ?</li>
-	<li>Belum proyek di pemerintahan buat aplikasi habiskan uang banyak hasil profitabilitas nya apa selama ini. Bicara uang bukan ?</li>
+	<li>Belum proyek buat aplikasi Ai dan sejenisnya habiskan uang banyak hasil profitabilitas nya apa selama ini. Bicara uang bukan namanya profitabilitas</li>
+	<li>Belum proyek di pemerintahan buat aplikasi habiskan uang banyak hasil profitabilitas nya apa selama ini. Bicara uang bukan namanya profitabilitas</li>
 	<li>Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency</li>
 	<li>Selama belum di beli akan terlihat siapa yang tidak berguna</li>
 	<li>Aturan gue buat tetap berlaku kalo mau beli</li>
@@ -787,6 +787,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
