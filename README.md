@@ -50,7 +50,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
-	<li>Kalo saingan gue sudah miskin banyak gaya dan skill coding biasa biasa saja jadilah orang tidak berguna selamanya yang kaya saja mikir</li>
+	<li>Kalo saingan gue sudah miskin banyak gaya dan skill coding biasa biasa saja jadilah orang tidak berguna selamanya yang kaya saja mikir kalo tidak punya uang untuk beli</li>
 	<li>Kalo saingan gue skill coding standart standart saja jadi mainan gue masih copy and paste terus edit hahahaha apa lagi masih pakai Ai atau google search cari referensinya not my level you know. The checkmate forever</li>
 	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna</li>
 	<li>Dari 2021 sampai sekarang siapa tidak berguna sudah terlihat dan seterusnya produk gue buat makin besar dan mahal harganya</li>
@@ -795,6 +795,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
