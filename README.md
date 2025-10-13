@@ -50,6 +50,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Kalo mau niru bertanding itu sadar diri dulu kalo goblok skill coding standart saja</li>
 	<li>Dari 2021 sampai sekarang siapa tidak berguna sudah terlihat</li>
 	<li>Perusahaan milik gue sendiri tidak ada urusan dengan invenstor dan pemerintah selama ini karena tidak go publik dan tidak main proyek</li>
 	<li>Belum proyek buat aplikasi Ai, aplikasi website dan sejenisnya habiskan uang banyak dan hasil profitabilitas nya apa selama ini. Bicara uang bukan namanya profitabilitas</li>
@@ -792,6 +793,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
