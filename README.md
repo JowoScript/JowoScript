@@ -50,7 +50,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
-	<li>Kalo saingan gue skill coding standart standart saja lulusan smk jadi mainan gue masih copy and paste hahahaha</li>
+	<li>Kalo saingan gue skill coding standart standart saja lulusan smk jadi mainan gue masih copy and paste terus edit hahahaha</li>
 	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna</li>
 	<li>Dari 2021 sampai sekarang siapa tidak berguna sudah terlihat dan seterusnya produk gue buat makin besar dan mahal harganya</li>
 	<li>Perusahaan milik gue sendiri tidak ada urusan dengan invenstor dan pemerintah selama ini karena tidak go publik dan tidak main proyek</li>
@@ -794,6 +794,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
