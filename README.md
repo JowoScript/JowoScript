@@ -50,7 +50,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
-	<li>Ganti pemerinntahaan dan kekuasaan akan terlihat siapa yang tidak berguna selama belum beli produk gue buat. Watch and learn</li>
+	<li>Setiap 5 tahun pemilihan pemerinntahaan dan kekuasaan akan terlihat siapa yang tidak berguna selama belum beli produk gue buat. Watch and learn</li>
 	<li>Beli produk saya pasti barang palsu sama orang lain tidak ada jaminan dari saya ya. beli wajib langsung kesaya</li>
 	<li>Mereka suka menjadi provokaor membeci gue mereka akan hancur juga di akhir</li>
 	<li>Kita lihat perusahaan go publik di luar negeri hasil profit juga tidak ada. Di akhir mereka akan mati sendiri belum biaya hidup di luar negeri mahal</li>
@@ -799,6 +799,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
