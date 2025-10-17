@@ -50,7 +50,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
-	<li>Contoh miskin dan goblok mau masuk sekolah mana bisa itu sudah aturan dari dulu</li>
+	<li>Contoh miskin dan goblok mau masuk sekolah mana bisa itu sudah aturan dari dulu, miskin tapi pintar masih bisa dapat beasiswa</li>
 	<li>Contoh orang goblok masih punya uang masih bisa sekolah ya itu aturannya dari dulu. Setelah lulus mau jadi pengangguran atau tidak itu nasib</li>
 	<li>Setiap 5 tahun pemilihan pemerinntahaan dan kekuasaan akan terlihat siapa yang tidak berguna selama belum beli produk gue buat. Watch and learn</li>
 	<li>Beli produk saya pasti barang palsu sama orang lain tidak ada jaminan dari saya ya. beli wajib langsung kesaya</li>
@@ -801,6 +801,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
