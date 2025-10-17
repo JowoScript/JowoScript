@@ -50,7 +50,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
-	<li>Sudah masuk daftar blacklist gue ya itu tetap aturan ya</li>
+	<li>Sudah masuk daftar blacklist gue ya itu tetap aturan ya itu resiko</li>
 	<li>Sudah miskin goblok skill coding biasa biasa saja banyak tingkah depan gue jadi bahan mainan gue. Punya uang beli apa ? </li>
 	<li>Contoh miskin dan goblok mau masuk sekolah mana bisa itu sudah aturan dari dulu, miskin tapi pintar masih bisa dapat beasiswa</li>
 	<li>Contoh orang goblok masih punya uang masih bisa sekolah ya itu aturannya dari dulu. Setelah lulus mau jadi pengangguran atau tidak itu nasib</li>
@@ -803,6 +803,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
