@@ -50,7 +50,9 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Psikologi siapa top level sekarang</li>
 	<li>Live website kapanpun bisa saya lakukan kalo mau..siapa yang bodoh selama ini. Selama ini domain gue non aktifkan dulu. Tidak baca kata kata gue di bawah ini</li>
+	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna</li>
 	<li>Biaya hidup saya tidak di tanggung pemerintah selama ini bukan fitnah ya jadi selama belum di beli produk gue buat siapa yang tidak berguna akan terlihat dan siapa beban negara selama ini (Hilang harga diri kau hahahhaha)</li>
 	<li>Sudah masuk daftar blacklist gue ya itu tetap aturan ya itu resiko (Mereka suka menjadi provokaor membeci gue mereka akan hancur juga di akhir)</li>
 	<li>Contoh miskin dan goblok mau masuk sekolah mana bisa itu sudah aturan dari dulu, miskin tapi pintar masih bisa dapat beasiswa</li>
@@ -804,6 +806,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
