@@ -51,7 +51,7 @@
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
 	<li>Psikologi siapa top level sekarang dan siapa pemilik IQ tertinggi di dunia</li>
-	<li>Siapa yang kerja di pemerintahaan selama ini akan terlihat orang kerja masuk lewat orang dalam tapi statusnya sudah pegawai tetap itu banyak ya kalian boleh bohong di dunia tapi di akhirat kalian akan habis. Itulah kalo mempersulit gue dulu buka bukaan kita siapa yang hancur dan kebenaran bukan fitnah. Kata siapa tidak bisa kena PHK walapun statusnya pegawai tetap karena masuk kerja lewat orang dalam</li>
+	<li>Siapa yang kerja di pemerintahaan selama ini akan terlihat orang kerja masuk lewat orang dalam tapi statusnya sudah pegawai tetap itu banyak ya kalian boleh bohong di dunia tapi di akhirat kalian akan habis. Itulah kalo mempersulit gue dulu buka bukaan kita siapa yang hancur dan kebenaran bukan fitnah. Kata siapa tidak bisa kena PHK atau di pecat walapun statusnya pegawai tetap karena masuk kerja lewat orang dalam</li>
 	<li>Buktikan saja profitabilitas nya apa selama ini perusahaan go publik dan cryptocurrency (Sudah tidak ada nilainya). Bicara uang bukan namanya profitabilitas</li>
 	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna</li>
 	<li>Biaya hidup saya tidak di tanggung pemerintah selama ini bukan fitnah ya jadi selama belum di beli produk gue buat siapa yang tidak berguna akan terlihat dan siapa beban negara selama ini (Hilang harga diri kau hahahhaha)</li>
@@ -807,6 +807,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
