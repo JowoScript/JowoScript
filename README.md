@@ -50,6 +50,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <ul>
+	<li>Gue tidak akan jahat kalo dulu gue tidak di persulit masuk kerjanya ya. Siapapun wajib beli gue mau keadialan</li>
 	<li>Siapa yang kerja di pemerintahaan selama ini akan terlihat orang kerja masuk lewat orang dalam tapi statusnya sudah pegawai tetap itu banyak ya kalian boleh bohong di dunia tapi di akhirat kalian akan habis. Itulah kalo mempersulit gue dulu buka bukaan kita siapa yang hancur dan kebenaran bukan fitnah. Kata siapa tidak bisa kena PHK atau di pecat walapun statusnya pegawai tetap karena masuk kerja lewat orang dalam. Kecuali istansi pemerintahaan milik lu sendiri </li>
 	<li>Buktikan saja profitabilitas nya apa selama ini perusahaan go publik dan cryptocurrency (Sudah tidak ada nilainya). Bicara uang bukan namanya profitabilitas</li>
 	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna</li>
@@ -806,6 +807,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
