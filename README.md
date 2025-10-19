@@ -57,7 +57,7 @@ Iam still move forward to development other products everyday looks the list pro
 	<li>Gue tidak akan jahat kalo dulu gue tidak di persulit masuk kerjanya ya. Gantian siapa yang hancur dan tidak berguna ya. Siapapun wajib beli adil bukan</li>
 	<li>Siapa yang kerja di pemerintahaan selama ini akan terlihat orang kerja masuk lewat orang dalam tapi statusnya sudah pegawai tetap itu banyak ya kalian boleh bohong di dunia tapi di akhirat kalian akan habis. Itulah kalo mempersulit gue dulu buka bukaan kita siapa yang hancur dan kebenaran bukan fitnah. Kata siapa tidak bisa kena PHK atau di pecat walapun statusnya pegawai tetap karena masuk kerja lewat orang dalam. Kecuali istansi pemerintahaan milik lu sendiri </li>
 	<li>Buktikan saja profitabilitas nya apa selama ini perusahaan go publik dan cryptocurrency (Sudah tidak ada nilainya). Bicara uang bukan namanya profitabilitas</li>
-	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna</li>
+	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna abadi</li>
 	<li>Biaya hidup saya tidak di tanggung pemerintah selama ini bukan fitnah ya jadi selama belum di beli produk gue buat siapa yang tidak berguna akan terlihat dan siapa beban negara selama ini (Hilang harga diri kau hahahhaha)</li>
 	<li>Sudah masuk daftar blacklist gue ya itu tetap aturan ya itu resiko (Mereka suka menjadi provokaor membeci gue mereka akan hancur juga di akhir)</li>
 	<li>Contoh miskin dan goblok mau masuk sekolah mana bisa itu sudah aturan dari dulu, miskin tapi pintar masih bisa dapat beasiswa</li>
@@ -811,6 +811,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
