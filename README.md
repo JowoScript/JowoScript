@@ -54,7 +54,7 @@ Iam still move forward to development other products everyday looks the list pro
 <br>
 <ul>
 	<li>Gue tidak perlu bohong ya perusahaan milik sendiri dan produk milik sendiri. Orang jujur selalu menang di akhir ✍️📚</li>
-	<li>Belum ada yg beli produk gue jadi santai. Dari pada nipu jual saham dan cryptocurrency selama ini. Sesuai judul siapa yg hancur. Di akhir kehancuran mereka sendiri ✍️📚</li>
+	<li>Belum ada yg beli produk gue jadi santai gue. Dari pada nipu jual saham dan cryptocurrency selama ini. Sesuai judul siapa yg hancur. Di akhir kehancuran mereka sendiri ✍️📚.</li>
 	<li>Banyak media online demi uang mereka berbohong biarkan saja orang bodoh selalu begituh. Di akhir kehancuran mereka sendiri ✍️📚</li>
 	<li>Mana ada belinya ke sodara gue apa lagi ke teman gue tidak ada jaminan barang asli. Belinya wajib ke gue</li>
 	<li>Anak IT yg hobinya nipu gue di akhir juga akan hancur</li>
@@ -816,6 +816,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
