@@ -53,6 +53,9 @@ The real stuff not selling in online or black market or traders. Only me have th
 Iam still move forward to development other products everyday looks the list products. The all products under my legals company's PT JowoScript Technology Indonesia
 <br>
 <ul>
+	<li>
+	<li>Mana ada belinya ke sodara gue apa lagi ke teman gue. Belinya wajib ke gue</li>
+	<li>Anak IT yg hobinya nipu gue di akhir juga akan hancur</li>
 	<li>Gue buat jowoscript mana ada hoax fakta ada data rekam website gue. itu baru 1 produk gue buat publikasikan. Emang seperti kalian bisanya hoax. baca kata kata gue dibawah ini</li>
 	<li>Gue tidak akan jahat kalo dulu gue tidak di persulit masuk kerjanya ya. Gantian siapa yang hancur dan tidak berguna ya. Siapapun wajib beli adil bukan</li>
 	<li>Siapa yang kerja di pemerintahaan selama ini akan terlihat orang kerja masuk lewat orang dalam tapi statusnya sudah pegawai tetap itu banyak ya kalian boleh bohong di dunia tapi di akhirat kalian akan habis. Itulah kalo mempersulit gue dulu buka bukaan kita siapa yang hancur dan kebenaran bukan fitnah. Kata siapa tidak bisa kena PHK atau di pecat walapun statusnya pegawai tetap karena masuk kerja lewat orang dalam. Kecuali istansi pemerintahaan milik lu sendiri </li>
@@ -811,6 +814,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
