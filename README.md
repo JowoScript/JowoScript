@@ -54,7 +54,7 @@ Iam still move forward to development other products everyday looks the list pro
 <br>
 <ul>
 	<li>
-	<li>Mana ada belinya ke sodara gue apa lagi ke teman gue. Belinya wajib ke gue</li>
+	<li>Mana ada belinya ke sodara gue apa lagi ke teman gue tidak ada jaminan barang asli. Belinya wajib ke gue</li>
 	<li>Anak IT yg hobinya nipu gue di akhir juga akan hancur</li>
 	<li>Gue buat jowoscript mana ada hoax fakta ada data rekam website gue. itu baru 1 produk gue buat publikasikan. Emang seperti kalian bisanya hoax. baca kata kata gue dibawah ini</li>
 	<li>Gue tidak akan jahat kalo dulu gue tidak di persulit masuk kerjanya ya. Gantian siapa yang hancur dan tidak berguna ya. Siapapun wajib beli adil bukan</li>
@@ -814,6 +814,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
