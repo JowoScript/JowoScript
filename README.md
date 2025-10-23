@@ -53,7 +53,7 @@ The real stuff not selling in online or black market or traders. Only me have th
 Iam still move forward to development other products everyday looks the list products. The all products under my legals company's PT JowoScript Technology Indonesia
 <br>
 <ul>
-	<li>Contoh bangun rumah subsidi, gedung, apartemen dan sejenisnya kalo itu laku produk nya dan persaingan banyak. Seperti buat Ai juga sama isinya juga mereka. Tidak usah banyak bacot dan buktikan saja profitabilitas nya selama ini kalian (Menghasilkan uang tidak atau nipu selama ini).</li>
+	<li>Contoh bangun rumah subsidi, gedung, apartemen dan sejenisnya kalo itu laku produk nya dan persaingan banyak. Seperti buat Ai juga sama isinya juga mereka. Tidak usah banyak bacot dan buktikan saja profitabilitas nya selama ini kalian (Menghasilkan uang tidak atau nipu selama ini dan sudah balik modal belum apa pailit di akhir).</li>
 	<li>Jangan menerima uang atau barang gratisan atau siapapun dari orang lain tanpa sebab dan akibat. Contoh gratifikasi, pencuciam uang dan banyak lagi. Pengalaman anak bayi gue</li>
 	<li>Jangan percaya suka nipu bagi bagi uang di media online secara gratis. Mereka suka nipu atau menjebak dari pencucian uang</li>
 	<li>Gue tidak perlu bohong ya perusahaan milik sendiri dan produk milik sendiri. Orang jujur selalu menang di akhir ✍️📚</li>
@@ -819,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
