@@ -59,7 +59,7 @@ The real stuff not selling in online or black market or traders. Only me have th
 Iam still move forward to development other products everyday looks the list products. The all products under my legals company's PT JowoScript Technology Indonesia
 <br>
 <ul>
-	<li>Dalam kelompok singa pasti akan terlihat siapa yg tidak berguna dalam kelompoknya seperti itu perusahaan, organisasi, Instasi dan sejenisnya ya. Paham sampai sini. Gue santai yang buat dan tidak ikat singa pecundang</li>
+	<li>Dalam kelompok singa pasti akan terlihat siapa yg tidak berguna dalam kelompoknya seperti itu perusahaan, organisasi, Instasi dan sejenisnya ya. Paham sampai sini. Gue santai yang buat dan tidak ikut singa pecundang</li>
 	<li>Kalian terima gaji dan tunjangan dari pemerintah hina hina gue ? tanya ke rakyat sendiri siapa yang tidak berguna kalian apa gue. Tidak percaya tunggu saja ganti kekuasaan pemerintahan setiap 5 tahun. Pegang omongan gue pengalaman anak bayi.</li>
 	<li>Contoh bangun rumah subsidi, gedung, apartemen dan sejenisnya kalo itu laku produk nya dan persaingan banyak. Seperti buat Ai juga sama isinya juga mereka. Tidak usah banyak bacot dan buktikan saja profitabilitas nya selama ini kalian (Menghasilkan uang tidak atau nipu selama ini dan sudah balik modal belum apa pailit di akhir). Kalo hanya alesan berguna saja produk gue buat hanya tersenyum ya dan buktikan saja kalian selama ini terima gaji dan tunjangan apa profitabilitasnya. Gue buat jowoscript mana ada hoax fakta ada data rekam website gue. itu baru 1 produk gue buat publikasikan sudah bikin dunia gempar. Gimana produk baru lainnya dari gue buat bisa di lihat dari foto ya paham sampai sini dan belum gue publikasikan baca harganya.</li>
 	<li>Jangan menerima uang atau barang gratisan atau siapapun dari orang lain tanpa sebab dan akibat. Contoh gratifikasi, pencuciam uang dan banyak lagi. Pengalaman anak bayi gue</li>
@@ -827,6 +827,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
