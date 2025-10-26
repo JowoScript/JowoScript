@@ -59,7 +59,7 @@ The real stuff not selling in online or black market or traders. Only me have th
 Iam still move forward to development other products everyday looks the list products. The all products under my legals company's PT JowoScript Technology Indonesia
 <br>
 <ul>
-	<li>Dalam kelompok singa pasti akan terlihat siapa yg tidak berguna dalam kelompoknya seperti itu perusahaan, organisasi, Instasi dan sejenisnya ya. Paham sampai sini. Selama belum di beli siapa yg tidak berguna gue tanya. Gue santai yg buat dan perusahaan milik sendiri</li>
+	<li>Dalam kelompok singa pasti akan terlihat siapa yg tidak berguna dalam kelompoknya seperti itu perusahaan, organisasi, Instasi pemerintah dan sejenisnya ya. Paham sampai sini. Selama belum di beli siapa yg tidak berguna gue tanya. Gue santai yg buat dan perusahaan milik sendiri</li>
 	<li>Laporan keuangan instansi saja bisa terlihat nanti siapa yg korupsi. Selama ini belum ada yg beli ya produk gue</li>
 	<li>Laporan keuangan perusahaan juga akan terlihat mana yg di danai tapi hasilnya ompong. Selama ini belum ada yg beli ya produk gue</li>
 	<li>Kalian terima gaji dan tunjangan dari pemerintah hina hina gue ? tanya ke rakyat sendiri siapa yang tidak berguna kalian apa gue. Tidak percaya tunggu saja ganti kekuasaan pemerintahan setiap 5 tahun. Pegang omongan gue pengalaman anak bayi.</li>
@@ -829,6 +829,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
