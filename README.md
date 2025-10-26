@@ -15,9 +15,7 @@
 	<br><br>
 	No matter how small my business is, I'm still the boss and only me can development my product end to end
 	<br>
-	It has been viewed over 1 million times worldwide since 2021. Akan gue ungkit dulu dulu biar hancur kalian 
-	<br>
-	Selama belum di beli siapa yang hancur
+	It has been viewed over 1 million times worldwide since 2021. Akan gue ungkit dulu dulu persulit gue biar hancur kalian 
 </strong>
 <br><br>
 <strong>
@@ -824,6 +822,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
