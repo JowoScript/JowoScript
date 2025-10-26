@@ -17,7 +17,7 @@
 	<br>
 	It has been viewed over 1 million times worldwide since 2021. Akan gue ungkit dulu dulu persulit gue test biar hancur kalian 
 	<br>
-	Banyak bukan dulu gue di persulit test kerjanya. Siapa yang tidak berguna gue tanya
+	Banyak bukan dulu gue di persulit test kerjanya. Siapa yang tidak berguna gue tanya. Mampus kau
 </strong>
 <br><br>
 <strong>
@@ -824,6 +824,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
