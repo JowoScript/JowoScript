@@ -61,7 +61,7 @@ Iam still move forward to development other products everyday looks the list pro
 <ul>
 	<li>Aturan gue buat tetap berlaku kalo mau beli. Selama belum di beli gue santai dulu. Baru gue eksekusi aturan gue buat kalo sudah deal ini berlaku di negara manapun yang mau beli. Apa saya pernah becanda kalo tentang aturan ? tidak pernah</li>
 	<li>Setiap tahun inflasi biaya hidup naik bukan dan biaya sekolah juga. Lulus sekolah jadi pengangguran itu banyak ya karena persaingan itu nyata.</li>
-	<li>Dalam kelompok singa pasti akan terlihat siapa yg tidak berguna dalam kelompoknya seperti itu perusahaan, organisasi, partai, Instasi pemerintah dan sejenisnya ya. Paham sampai sini. Selama belum di beli siapa yg tidak berguna gue tanya. Tumbali saja teman gue yang bermasalah dan bermuka dua. Gue santai yg buat produk dan perusahaan milik sendiri</li>
+	<li>Dalam kelompok singa pasti akan terlihat siapa yg tidak berguna dalam kelompoknya seperti itu perusahaan, organisasi, partai, Instasi pemerintah dan sejenisnya ya. Paham sampai sini. Selama belum di beli siapa yg tidak berguna gue tanya. Tumbalin saja teman gue yang bermasalah dan bermuka dua. Gue santai yg buat produk dan perusahaan milik sendiri</li>
 	<li>Laporan keuangan instansi saja bisa terlihat nanti siapa yg korupsi. Selama ini belum ada yg beli ya produk gue</li>
 	<li>Laporan keuangan perusahaan juga akan terlihat mana yg di danai tapi hasilnya ompong. Selama ini belum ada yg beli ya produk gue</li>
 	<li>Kalian terima gaji dan tunjangan dari pemerintah hina hina gue ? tanya ke rakyat sendiri siapa yang tidak berguna kalian apa gue. Tidak percaya tunggu saja ganti kekuasaan pemerintahan setiap 5 tahun. Pegang omongan gue pengalaman anak bayi.</li>
@@ -831,6 +831,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
