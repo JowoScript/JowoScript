@@ -88,7 +88,7 @@
 <div align="justify">
 <ol>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
-<li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time, back to point number 7 and Only the local currency of your country of residence is allowed to purchase my products, back to point number 7</li>
+<li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time, back to point number 7 and Only the local currency of your country of residence is allowed to purchase my products, back to point number 7. This fair and justic for goverment</li>
 <li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
 <li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
@@ -769,6 +769,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
