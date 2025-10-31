@@ -52,63 +52,6 @@
 	<li>Many new method secret in product</li>
 </ul>
 
-### Muhammad Nurcahyo Pratomo Intro Small talk
-No money don't buy my new programing language.
-Google, IBM, Microsoft, Oracle don't have what's I create. Iam not lie and ask the true or answer the true.
-The real stuff not selling in online or black market or traders. Only me have the real stuff. The real stuff don't have slash 🤪. Don't trust with other company if they buy. Iam not lie
-Iam still move forward to development other products everyday looks the list products. The all products under my legals company's PT JowoScript Technology Indonesia
-<br>
-<ul>
-	<li>Aturan gue buat tetap berlaku kalo mau beli. Selama belum di beli gue santai dulu. Baru gue eksekusi aturan gue buat kalo sudah deal ini berlaku di negara manapun yang mau beli. Apa saya pernah becanda kalo tentang aturan ? tidak pernah</li>
-	<li>Setiap tahun inflasi biaya hidup naik bukan dan biaya sekolah juga. Lulus sekolah jadi pengangguran itu banyak ya karena persaingan itu nyata.</li>
-	<li>Dalam kelompok singa pasti akan terlihat siapa yg tidak berguna dalam kelompoknya seperti itu perusahaan, organisasi, partai, Instasi pemerintah dan sejenisnya ya. Paham sampai sini. Selama belum di beli siapa yg tidak berguna gue tanya. Gue santai yg buat produk dan perusahaan milik sendiri</li>
-	<li>Laporan keuangan instansi saja bisa terlihat nanti siapa yg korupsi. Selama ini belum ada yg beli ya produk gue</li>
-	<li>Laporan keuangan perusahaan juga akan terlihat mana yg di danai tapi hasilnya ompong. Selama ini belum ada yg beli ya produk gue</li>
-	<li>Kalian terima gaji dan tunjangan dari pemerintah hina hina gue ? tanya ke rakyat sendiri siapa yang tidak berguna kalian apa gue. Tidak percaya tunggu saja ganti kekuasaan pemerintahan setiap 5 tahun. Pegang omongan gue pengalaman anak bayi.</li>
-	<li>Contoh bangun rumah subsidi, gedung, apartemen dan sejenisnya kalo itu laku produk nya dan persaingan banyak. Seperti buat Ai juga sama isinya juga mereka. Tidak usah banyak bacot dan buktikan saja profitabilitas nya selama ini kalian (Menghasilkan uang tidak atau nipu selama ini dan sudah balik modal belum apa pailit di akhir). Kalo hanya alesan berguna saja produk gue buat hanya tersenyum ya dan buktikan saja kalian selama ini terima gaji dan tunjangan apa profitabilitasnya. Gue buat jowoscript mana ada hoax fakta ada data rekam website gue. itu baru 1 produk gue buat publikasikan sudah bikin dunia gempar. Gimana produk baru lainnya dari gue buat bisa di lihat dari foto ya paham sampai sini dan belum gue publikasikan baca harganya.</li>
-	<li>Jangan menerima uang atau barang gratisan atau siapapun dari orang lain tanpa sebab dan akibat. Contoh gratifikasi, pencuciam uang dan banyak lagi. Pengalaman anak bayi gue</li>
-	<li>Jangan percaya suka nipu bagi bagi uang di media online secara gratis. Mereka suka nipu atau menjebak dari pencucian uang</li>
-	<li>Gue tidak perlu bohong ya perusahaan milik sendiri dan produk milik sendiri. Orang jujur selalu menang di akhir ✍️📚</li>
-	<li>Belum ada yg beli produk gue jadi santai gue. Dari pada nipu jual saham dan cryptocurrency selama ini. Sesuai judul siapa yg hancur. Di akhir kehancuran mereka sendiri ✍️📚.</li>
-	<li>Banyak media online demi uang mereka berbohong biarkan saja orang bodoh selalu begituh. Di akhir kehancuran mereka sendiri ✍️📚</li>
-	<li>Mana ada belinya ke sodara gue apa lagi ke teman gue tidak ada jaminan barang asli. Belinya wajib ke gue</li>
-	<li>Anak IT yg hobinya nipu gue di akhir juga akan hancur</li>
-	<li>Gue buat jowoscript mana ada hoax fakta ada data rekam website gue. itu baru 1 produk gue buat publikasikan. Emang seperti kalian bisanya hoax. baca kata kata gue dibawah ini</li>
-	<li>Gue tidak akan jahat kalo dulu gue tidak di persulit masuk kerjanya ya. Gantian siapa yang hancur dan tidak berguna ya. Siapapun wajib beli adil bukan</li>
-	<li>Siapa yang kerja di pemerintahaan selama ini akan terlihat orang kerja masuk lewat orang dalam tapi statusnya sudah pegawai tetap itu banyak ya kalian boleh bohong di dunia tapi di akhirat kalian akan habis. Itulah kalo mempersulit gue dulu buka bukaan kita siapa yang hancur dan kebenaran bukan fitnah. Kata siapa tidak bisa kena PHK atau di pecat walapun statusnya pegawai tetap karena masuk kerja lewat orang dalam. Kecuali istansi pemerintahaan milik lu sendiri </li>
-	<li>Buktikan saja profitabilitas nya apa selama ini perusahaan go publik dan cryptocurrency (Sudah tidak ada nilainya). Bicara uang bukan namanya profitabilitas</li>
-	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna abadi</li>
-	<li>Biaya hidup saya tidak di tanggung pemerintah selama ini bukan fitnah ya jadi selama belum di beli produk gue buat siapa yang tidak berguna akan terlihat dan siapa beban negara selama ini (Hilang harga diri kau hahahhaha)</li>
-	<li>Sudah masuk daftar blacklist gue ya itu tetap aturan ya itu resiko (Mereka suka menjadi provokaor membeci gue mereka akan hancur juga di akhir)</li>
-	<li>Contoh miskin dan goblok mau masuk sekolah mana bisa itu sudah aturan dari dulu, miskin tapi pintar masih bisa dapat beasiswa</li>
-	<li>Contoh orang goblok masih punya uang masih bisa sekolah ya itu aturannya dari dulu. Setelah lulus mau jadi pengangguran atau tidak itu nasib</li>
-	<li>Setiap 5 tahun pemilihan pemerinntahaan dan kekuasaan akan terlihat siapa yang tidak berguna selama belum beli produk gue buat. Watch and learn</li>
-	<li>Beli produk saya pasti barang palsu sama orang lain tidak ada jaminan dari saya ya. beli wajib langsung kesaya</li>
-	<li>Mereka suka menjadi provokaor membeci gue mereka akan hancur juga di akhir</li>
-	<li>Kita lihat perusahaan go publik di luar negeri hasil profit juga tidak ada. Di akhir mereka akan mati sendiri belum biaya hidup di luar negeri mahal</li>
-	<li>Kalo saingan gue sudah miskin banyak gaya dan skill coding biasa biasa saja jadilah orang tidak berguna selamanya yang kaya saja mikir kalo tidak punya uang untuk beli</li>
-	<li>Kalo saingan gue skill coding standart standart saja jadi mainan gue masih copy and paste terus edit hahahaha apa lagi masih pakai Ai atau google search cari referensinya not my level you know. The checkmate forever</li>
-	<li>Tidak ada skill ya pecat pecatin saja gampangkan masukin blacklist sekalian biar paham rasanya pengangguran dan tidak berguna</li>
-	<li>Dari 2021 sampai sekarang siapa tidak berguna sudah terlihat dan seterusnya produk gue buat makin besar dan mahal harganya</li>
-	<li>Perusahaan milik gue sendiri tidak ada urusan dengan invenstor dan pemerintah selama ini karena tidak go publik dan tidak main proyek</li>
-	<li>Belum proyek buat aplikasi Ai, aplikasi website dan sejenisnya habiskan uang banyak dan hasil profitabilitas nya apa selama ini. Bicara uang bukan namanya profitabilitas</li>
-	<li>Belum proyek di pemerintahan buat aplikasi website habiskan uang banyak dan hasil profitabilitas nya apa selama ini. Bicara uang bukan namanya profitabilitas</li>
-	<li>Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency</li>
-	<li>Selama belum di beli akan terlihat siapa yang tidak berguna</li>
-	<li>Aturan gue buat tetap berlaku kalo mau beli</li>
-	<li>Visual studio saja sudah lebih dari 10 tahun sampai sekarang berkembang terus. Itu hanya contoh kecil ya. Semua bahasa pemrograman baru gue buat hanya bisa di kingdom studio dan tidak bisa berjalan di IDE manapun itu. Paham sampai sini kalo bodoh itu sadar diri</li>
-	<li>Selama mahkama agung sama gue, gue yang lindungin dari orang yang mau fitnah. Kalo tidak benar ya saya tidak lindungin. Paham sampai sini ya</li>
-	<li>Sodara dari ibu dan bapak gue santai, gue yang lindungin dari orang yang mau fitnah. Kalo tidak benar ya saya tidak lindungin. Paham sampai sini ya</li>
-	<li>Perusahaan milik gue sendiri dan produk milik gue sendiri. Selama ini belum ada yang beli. Selama tidak beli kita lihat siapa yg hancur dan tidak berguna akan terlihat nantinya</li>
-	<li>Kalo saingan gue hanya pengusaha mau statusnya kaya atau miskin ya mereka sendiri yg akan bermasalah hukum kalo mau nipu gue</li>
-	<li>Kalo saingan gue hanya masih kerja di pemerintahan atau perusahaan ya kalo nipu gue pasti mereka sendiri akan kena pecat dan di pidanakan</li>
-	<li>Kalo saingan gue pengangguran mereka akan mati oleh persaingan dunia kerja</li>
-	<li>Mereka yg tidak berguna akan mati oleh persaingan zaman 😎</li>
-	<li>Masih profit perusahaan di danai selama ini ? kita lihat saja nanti ya semua butuh bukti pengluaran dan pemasukan nanti terlihat. Produk perusahaan gue tidak ada yang gratis ya semua bayar, mau adu argumentasi gue ladenin. Dari awal buat sampai sekarang terbukti tetap wajib beli. Selama ini belum ada yang beli. Tidak melenca melence bicara gue ya. Bicara A pasti A dan B pasti B</li>
-	<li>Hina gue tidak berguna gimana yang habiskan anggaran pemerintah dan terima bantuan dari pemerintah selama ini seperti terima subsidi, terima bantuan sosial, dan banyak lagi ya seperti terima gaji dan tunjangan itu termasuk juga kalo hina gue tidak berguna.</li>
-	<li>Setiap 5 tahun sekali ganti kekuasaan nanti akan terlihat siapa yang tidak berguna (talk to do more) bukan level gue jadi penjilat dan sejenisnya ya ini berlaku di seluruh negara bukan di indonesia saja. Setiap negara yang di pilih rakyatnya pasti 5 tahun sekali pemilihan ulang dan sudah terpilih 2 kalii tidak bisa calonkan lagi itu aturan dari dulu</li>
-</ul>
-
 ### Muhammad Nurcahyo Pratomo Intro Jowo Kingdom Machine or JKM History Small talk
 <div>
 	I'm behind Code Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. Orang orang yg persulit gue dulu test kerja dan test masuk kerja masih sehat apa sudah mati ? hahahaha. Beli saja saham dan cryptocurrency selama bodoh mu tetap atau nambah. Perusahaan gue selama ini tidak go publik dan tidak ikut cryptocurrency.
@@ -832,6 +775,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
