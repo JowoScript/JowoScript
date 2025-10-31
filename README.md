@@ -179,13 +179,7 @@
      title="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"
      alt="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"     
      width="100%" height="100%"></img>
-     
-#### Configure your new project
-<img src="Kingdom Studio Version 0.1.13 fiture configure your new project.png" 
-     title="configure your new project"
-     alt="configure your new project"     
-     width="100%" height="100%"></img>
-     
+         
 #### Kingdom Studio Version 0.1.12
 <img src="Kingdom Studio Version 0.1.12 about.png" 
      title="Kingdom Studio Version 0.1.12"
@@ -775,6 +769,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
