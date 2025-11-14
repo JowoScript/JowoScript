@@ -20,6 +20,8 @@
 	Banyak bukan dulu gue di persulit test kerjanya dan masuk test kerjanya (Di indonesia dan malaysia semua ada datanya gue) ternasuk data di jobstreet berapa banyak gue lamar kerja dulu. Siapa yang tidak berguna gue tanya. Mampus kau
 	<br>
 	Buktikan saja publik speaking hobinya bohong lambe turah di depan layar kamera. just blablabla then show to me
+	<br>
+	Jabatan dan kekuasaan itu tidak ada yang abadi tapi teknologi itu terus maju kedepan
 </strong>
 <br><br>
 <strong>
@@ -777,6 +779,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
