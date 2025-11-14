@@ -22,6 +22,8 @@
 	Buktikan saja publik speaking hobinya bohong lambe turah di depan layar kamera. just blablabla then show to me
 	<br>
 	Jabatan dan kekuasaan itu tidak ada yang abadi tapi teknologi itu terus maju kedepan
+	<br>
+	After Ai then don't have more innovation thats my prediction
 </strong>
 <br><br>
 <strong>
@@ -779,6 +781,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
