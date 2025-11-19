@@ -23,6 +23,8 @@
 	<br>
 	Jabatan dan kekuasaan itu tidak ada yang abadi tapi teknologi itu terus maju kedepan
 	<br>
+	iam find job commissary suit level
+	<br>
 	After Ai then don't have more innovation that's my prediction
 </strong>
 <br><br>
@@ -781,6 +783,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
