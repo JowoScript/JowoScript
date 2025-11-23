@@ -126,7 +126,8 @@
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
-<li>Muhammad Nurcahyo Pratomo has the right to blacklist government agencies if there are individuals who threaten and make things difficult for me</li>
+<li>Muhammad Nurcahyo Pratomo and familys has the right to blacklist government agencies if there are individuals who threaten and make things difficult for me</li>
+<li>Muhammad Nurcahyo Pratomo has the right to blacklist company agencies if there are individuals who threaten and make things difficult for me</li>
 <li>Minimum age required to be 18 years old in using programming language code and can use good logic, back to point point number 7</li>
 <li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
 <li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
@@ -726,6 +727,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
