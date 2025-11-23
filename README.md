@@ -29,7 +29,7 @@
 	<br><br>
 	Teman bermuka dua saja gue tau semuanya dekat rumah gimana yang jahu pengalaman anak bayi gue (Sudah gue blacklist juga paham)
 	<br>
-	Teman bermuka dua ingin jatuhkan saya karena mereka tidak berguna dalam hidupnya dan beban di masyarakat
+	Teman bermuka dua ingin jatuhkan saya karena mereka tidak berguna dalam hidupnya dan beban di masyarakat. FAKTA
 	<br>
 	<br>
 	This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)
@@ -724,6 +724,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
