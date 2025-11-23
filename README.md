@@ -52,6 +52,12 @@
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
 
+#### Legality Statement Letter of PT JowoScript Technology Indonesia
+<img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
+     title="Legality Statement Letter of PT JowoScript Technology Indonesia"
+     alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
+     width="100%" height="100%"></img>
+
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 #### Selama belum di beli akan terlihat siapa yang tidak berguna
 <img src="Kingdom Studio CMD.png" 
@@ -177,66 +183,6 @@
 <li>Handling array of objects and decided multiple of attributes and pseudo with license business jowoscript programing language</li>	
 </ol>
 </div>
-
-#### Kingdom Studio About Technology
-<img src="Kingdom Studio Version 0.1.14 about technology.png" 
-     title="Kingdom Studio About Technology"
-     alt="Kingdom Studio About Technology"     
-     width="100%" height="100%"></img>
-     
-#### Kingdom Studio Version 0.1.14 Account license your need the serial number key not more and not less too.
-<img src="Kingdom Studio Version 0.1.14 Account license.png" 
-     title="Kingdom Studio Version 0.1.14 Account license"
-     alt="Kingdom Studio Version 0.1.14 Account license"     
-     width="100%" height="100%"></img>
-     
-#### Only Product Of PT JowoScript Technology Indonesia support in kingdom studio
-<img src="Kingdom Studio Version 0.1.15 fiture release your new project.png" 
-     title="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"
-     alt="Only Product Of PT JowoScript Technology Indonesia support in kingdom studio"     
-     width="100%" height="100%"></img>
-         
-#### Kingdom Studio Version 0.1.12
-<img src="Kingdom Studio Version 0.1.12 about.png" 
-     title="Kingdom Studio Version 0.1.12"
-     alt="Kingdom Studio Version 0.1.12"     
-     width="100%" height="100%"></img>
-     
-#### Legality Statement Letter of PT JowoScript Technology Indonesia
-<img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
-     title="Legality Statement Letter of PT JowoScript Technology Indonesia"
-     alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
-     width="100%" height="100%"></img>
-
-#### Kingdom Studio Version 0.1.8
-<img src="Kingdom Studio Version 0.1.8.png" 
-     title="Kingdom Studio Version 0.1.8"
-     alt="Kingdom Studio Version 0.1.8"     
-     width="100%" height="100%"></img>
-
-#### JowoScript Native Code Version 8.7.6 in Chrome
-<img src="JowoScript Native Code Version 8.7.6.png" 
-     title="JowoScript Native Code Version 8.7.6 in Chrome"
-     alt="JowoScript Native Code Version 8.7.6 in Chrome"     
-     width="100%" height="100%"></img>
-
-#### JowoScript Native Code Version 8.7.6 in Edge
-<img src="JowoScript Native Code Version 8.7.6 in edge.png" 
-     title="JowoScript Native Code Version 8.7.6 in Edge"
-     alt="JowoScript Native Code Version 8.7.6 in Edge"     
-     width="100%" height="100%"></img>
-
-#### JowoScript Native Code Version 8.7.6 in FireFox
-<img src="JowoScript Native Code Version 8.7.6 in firefox.png" 
-     title="JowoScript Native Code Version 8.7.6 in FireFox"
-     alt="JowoScript Native Code Version 8.7.6 in FireFox"     
-     width="100%" height="100%"></img>
-
-#### JowoScript Native Code Version 8.7.6 in Yandex
-<img src="JowoScript Native Code Version 8.7.6 in yandex.png" 
-     title="JowoScript Native Code Version 8.7.6 in Yandex"
-     alt="JowoScript Native Code Version 8.7.6 in Yandex"     
-     width="100%" height="100%"></img>
      
 ## PT JowoScript Technology Indonesia products list :
 <div align="justify">
@@ -700,21 +646,6 @@ VM460:19 Digits Doctoral Mind Level : ▉█▉▉▉███▉▉██▉▉
 VM460:20 Digits Doctoral Level : ╡╡╡╞╞╡╞╞╡╡╞╡╡╡╡╡╞╞╞╡╞╡╡╞╞╡╞╡╡╡╡╞╞╞
 
 ```
-#### File JowoScript Screen Example 1
-<img src="Example 1.png" 
-     title="Screen Example 1"
-     alt="Screen Example 1"     
-     width="100%" height="750pt"></img>
-#### File JowoScript Screen Encryption
-<img src="encryption.jpg" 
-     title="Screen Encryption"
-     alt="Screen Encryption"     
-     width="100%" height="750pt"></img>
-#### File JowoScript Screen Encryption RipeMD
-<img src="encryption RipeMD.jpg" 
-     title="Screen Encryption RipeMD"
-     alt="Screen Encryption RipeMD"     
-     width="100%" height="750pt"></img>
 #### File JowoKingdom Example
 ```html
  /*
@@ -785,6 +716,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
