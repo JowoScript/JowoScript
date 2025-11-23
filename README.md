@@ -21,8 +21,8 @@
 	<br>
 	<br>
 	Gue berhak blacklist perusahaan yang bermasalah sama gue dulu. Dilihat saja harga saham mereka kalo tidak hancur selamanya dan tidak ada masa depanya
-	<br>
-	cryptocurrencry sudah tidak ada nilainya kedepannya sudah gue blacklist karena tidak sesuai hukum yang ada
+	<br><br>
+	cryptocurrencry sudah tidak ada nilainya kedepannya sudah gue blacklist karena tidak sesuai hukum yang ada dan bertentangan dengan hukum
 	<br>
 	<br>
 	After Ai then don't have more innovation that's my prediction (this end game)
@@ -783,6 +783,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
