@@ -25,7 +25,8 @@
 	cryptocurrencry sudah tidak ada nilainya kedepannya sudah gue blacklist karena tidak sesuai hukum yang ada dan bertentangan dengan hukum. Listen my point number 2. Iam learn the law global
 	<br>
 	<br>
-	Orang goblok pasti memiliki psikologinya rendah dan tidak mikir untuk 10 tahun kedepan kalo sudah gue blacklist paham persaingan makin berat dan lulusan sekolah nambah setiap tahunnya. Pengalaman anak bayi gue baik baik
+	Orang goblok tidak mikir untuk 10 tahun kedepan kalo sudah gue blacklist paham persaingan makin berat dan lulusan sekolah nambah setiap tahunnya.
+	<br>
 	<br>
 	This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)
 	<br>
@@ -719,6 +720,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
