@@ -27,7 +27,7 @@
 	<br>
 	Orang goblok tidak mikir untuk 10 tahun kedepan kalo sudah gue blacklist paham persaingan makin berat dan lulusan sekolah nambah setiap tahunnya. Tidak percaya kalian kerja sekarang makin berat bukan
 	<br>
-	Teman bermuka dua saja gue tau semuanya pengalaman anak bayi gue
+	Teman bermuka dua saja gue tau semuanya pengalaman anak bayi gue (Sudah gue blacklist juga paham)
 	<br>
 	<br>
 	This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)
@@ -722,6 +722,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
