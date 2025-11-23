@@ -19,6 +19,7 @@
 	<br>
 	Banyak bukan dulu gue di persulit test kerjanya dan masuk test kerjanya (Di indonesia dan malaysia semua ada datanya gue) ternasuk data di jobstreet berapa banyak gue lamar kerja dulu. Siapa yang tidak berguna gue tanya. Mampus kau
 	<br>
+	<br>
 	Gue berhak blacklist perusahaan yang bermasalah sama gue dulu. Kabarin saja saham mereka kalo tidak hancur selamanya
 	<br>
 	<br>
@@ -780,6 +781,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
