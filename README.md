@@ -29,6 +29,8 @@
 	<br>
 	Orang goblok tidak mikir untuk 10 tahun kedepan kalo sudah gue blacklist paham persaingan makin berat dan lulusan sekolah nambah setiap tahunnya. Tidak percaya kalian kerja sekarang makin berat bukan
 	<br><br>
+	Apa lagi sudah punya anak jadi pengangguran dan skill coding biasa saja gue masukin blacklist bisa apa gue tanya
+	<br><br>
 	Teman bermuka dua saja gue tau semuanya dekat rumah gimana yang jahu pengalaman anak bayi gue (Sudah gue blacklist juga paham)
 	<br>
 	Teman bermuka dua ingin jatuhkan saya karena mereka tidak berguna dalam hidupnya dan beban di masyarakat. FAKTA
@@ -728,6 +730,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
