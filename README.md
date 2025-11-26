@@ -100,6 +100,7 @@
 <li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
 <li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
+<li>Muhammad Nurcahyo Pratomo  has the right to blacklist if there are individuals problem</li>
 <li>Muhammad Nurcahyo Pratomo and familys has the right to blacklist government agencies if there are individuals who threaten and make things difficult for me</li>
 <li>Muhammad Nurcahyo Pratomo and familys has the right to blacklist company agencies if there are individuals who threaten and make things difficult for me</li>
 <li>Muhammad Nurcahyo Pratomo has the right to create global native code and strict code in bytecode form with a valid commercial license in the field of science with new programing language and old programing language</li>
@@ -705,6 +706,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
