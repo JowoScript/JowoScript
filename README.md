@@ -23,6 +23,7 @@
 ### Blacklist data by name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
 <div align="justify">
 <ol>
+	<li>Big bad wolf</li>
 	<li>Penta Group</li>
 	<li>Sinergi group</li>
 	<li>IFS Solusi Integrasi</li>
@@ -731,6 +732,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
