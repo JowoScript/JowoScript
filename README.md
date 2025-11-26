@@ -11,36 +11,6 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always productive, defense industry Information Technology, capability Information Technology and move forward breakthrough information technology
 	<br>
-	Sekecil apapun perusahaan gue tetap gue bossnya
-	<br><br>
-	No matter how small my business is, I'm still the boss and only me can development my product end to end
-	<br>
-	It has been viewed over 1 million times worldwide since 2021. Akan gue ungkit dulu dulu persulit gue test biar hancur kalian 
-	<br>
-	Banyak bukan dulu gue di persulit test kerjanya dan masuk test kerjanya (Di indonesia dan malaysia semua ada datanya gue) ternasuk data di jobstreet berapa banyak gue lamar kerja dulu. Siapa yang tidak berguna gue tanya. Mampus kau
-	<br>
-	<br>
-	Gue berhak blacklist perusahaan bermasalah sama gue dulu. Dilihat saja harga saham mereka kalo tidak hancur selamanya dan tidak ada masa depanya
-	<br>
-	Gue berhak blacklist instansi pemerintah jika ada oknum yang mengancam dan persulit saya
-	<br><br>
-	cryptocurrencry sudah tidak ada nilainya kedepannya sudah gue blacklist karena tidak sesuai hukum yang ada dan bertentangan dengan hukum. Listen my point number 2. Iam learn the law global
-	<br>
-	<br>
-	Orang goblok tidak mikir untuk 10 tahun kedepan kalo sudah gue blacklist paham persaingan makin berat dan lulusan sekolah nambah setiap tahunnya. Tidak percaya kalian kerja sekarang makin berat bukan
-	<br><br>
-	Apa lagi sudah punya anak jadi pengangguran dan skill coding biasa saja gue masukin blacklist bisa apa gue tanya
-	<br><br>
-	Teman bermuka dua saja gue tau semuanya dekat rumah gimana yang jahu pengalaman anak bayi gue (Sudah gue blacklist juga paham)
-	<br>
-	Teman bermuka dua ingin jatuhkan saya karena mereka tidak berguna dalam hidupnya dan beban di masyarakat. FAKTA
-	<br>
-	<br>
-	This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)
-	<br>
-	<br>
-	orang bodoh menciptakan kebodohan dan orang cerdas menciptakan kecerdasan
-	<br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 </strong>
 <br><br>
@@ -732,6 +702,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
