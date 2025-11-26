@@ -21,8 +21,7 @@
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Selama belum di beli akan terlihat siapa yang tidak berguna
-
+#### Harga mau naik atau turun itu hak pribadi Muhammad Nurcahyo Pratomo
 <img src="Kingdom Studio Shell 0.1.45.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
@@ -706,6 +705,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
