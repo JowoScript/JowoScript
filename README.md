@@ -23,13 +23,13 @@
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
 <div align="justify">
 <ol>
-	<li>Big bad wolf</li>
-	<li>Penta Group</li>
-	<li>Sinergi group</li>
-	<li>IFS Solusi Integrasi</li>
-	<li>Medco Energi</li>
-	<li>MetroData</li>
-	<li>Whatever type of cryptocurrency</li>
+	<li>Big bad wolf (global)</li>
+	<li>Penta Group Indonesia</li>
+	<li>Sinergi group Indonesia</li>
+	<li>IFS Solusi Integrasi Indonesia</li>
+	<li>Medco Energi Indonesia</li>
+	<li>MetroData Indonesia</li>
+	<li>Whatever type of cryptocurrency (global)</li>
 	<li>Infosys india</li>
 	<li></li>
 </ol>
@@ -788,6 +788,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
