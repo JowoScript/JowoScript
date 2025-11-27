@@ -62,6 +62,7 @@
 	<li>Mahkamah Agung Indonesia</li>
 	<li>Mahkamah Konsitusi Indonesia</li>
 	<li>Otoritas Jasa Keuangan Indonesia</li>
+	<li>Komisi Penyiaraan Indonesia</li>
 	<li>Bursa Efek Indonesia</li>
 </ol>
 </div>
@@ -751,6 +752,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
