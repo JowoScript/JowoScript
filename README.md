@@ -99,7 +99,6 @@
 	<li>Linux Foundation United States</li>	
 	<li>Cloudflare United States</li>
 	<li>Meta United States</li>
-	<li>IBM United States</li>
 	<li>Appel United States</li>	
 	<li></li>
 </ol>
@@ -790,6 +789,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
