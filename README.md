@@ -13,6 +13,10 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br>
+	You graduate from school or university and become unemployed, your competitors are already AI. Fact
+	<br>
+	Create applications whenever you can copy them. your cant create my programing language which can be copied. Fact
+	<br><br>
 	Kalian lulus sekolah juga jadi pengangguran saingannya sudah Ai. Fakta
 	<br>
 	Buat aplikasi kapanpun bisa di tiru. buat bahasa program gue mana bisa di tiru
@@ -794,6 +798,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
