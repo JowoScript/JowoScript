@@ -78,6 +78,8 @@
 	<li>Microsoft</li>
 	<li>Linux Foundation</li>
 	<li>Cloudflare</li>
+	<li>Meta</li>
+	<li>IBM</li>
 </ol>
 </div>
 
@@ -766,6 +768,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
