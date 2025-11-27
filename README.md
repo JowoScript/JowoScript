@@ -69,6 +69,7 @@
 	<li>Bursa Efek Indonesia</li>
 	<li>Kementrian Ekonomi Indonesia</li>
 	<li>Badan Pengkajian Penerapan Teknologi Indonesia</li>
+	<li>Badan Pertimbangan Kepegawaian Indonesia</li>
 	<li>Pemerintah daerah DKI Jakarta, Indonesia</li>
 	<li>Pemerintah kabupaten Bantul, Indonesia</li>	
 	<li>Pemerintah kabupaten Serang, Indonesia</li>	
@@ -782,6 +783,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
