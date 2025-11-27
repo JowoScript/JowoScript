@@ -55,7 +55,7 @@
 </ol>
 </div>
 
-### Have no problems and are safe with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned
+### Have no problems and are safe with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change)
 <div align="justify">
 <ol>
 	<li>Menpan RB Indonesia</li>
@@ -77,7 +77,7 @@
 </ol>
 </div>
 
-### Have no problems and are safe with its creator based on name company (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned
+### Have no problems and are safe with its creator based on name company (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change)
 <div align="justify">
 <ol>
 	<li>Manulife Indonesia</li>
@@ -779,6 +779,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
