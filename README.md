@@ -29,6 +29,7 @@
 	<li>IFS Solusi Integrasi</li>
 	<li>Medco Energi</li>
 	<li>MetroData</li>
+	<li>Whatever type of cryptocurrency</li>
 	<li></li>
 </ol>
 </div>
@@ -773,6 +774,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
