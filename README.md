@@ -76,12 +76,12 @@
 ### Have no problems and are safe with its creator based on name company (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned
 <div align="justify">
 <ol>
-	<li>Google</li>
-	<li>Microsoft</li>
-	<li>Linux Foundation</li>
-	<li>Cloudflare</li>
-	<li>Meta</li>
-	<li>IBM</li>
+	<li>Google United States</li>
+	<li>Microsoft United States</li>
+	<li>Linux Foundation United States</li>
+	<li>Cloudflare United States</li>
+	<li>Meta United States</li>
+	<li>IBM United States</li>
 </ol>
 </div>
 
@@ -770,6 +770,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
