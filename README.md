@@ -58,6 +58,7 @@
 <div align="justify">
 <ol>
 	<li>Menpan RB Indonesia</li>
+	<li>Komisi Yudisial</li>
 	<li>Kejaksaan Agung Indonesia</li>
 	<li>Mahkamah Agung Indonesia</li>
 	<li>Mahkamah Konsitusi Indonesia</li>
@@ -752,6 +753,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
