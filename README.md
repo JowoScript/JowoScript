@@ -13,7 +13,7 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br>
-	Pengangguran yang hina gue masuk blacklist mereka bisa apa persaingan makin berat dan setiap tahun lulusan makin nambah. Kalian lulus sekolah juga saingannya sudah Ai
+	Pengangguran yang hina gue masuk blacklist mereka bisa apa persaingan makin berat dan setiap tahun lulusan makin nambah. Kalian lulus sekolah juga jadi pengangguran saingannya sudah Ai
 </strong>
 <br><br>
 <strong>
@@ -790,6 +790,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
