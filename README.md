@@ -15,7 +15,9 @@
 	<br>
 	Pengangguran yang hina gue masuk blacklist mereka bisa apa persaingan makin berat dan setiap tahun lulusan makin nambah.
 	<br>
-	Siapa yang buka peluang gue tanya ? sadar diri kalo goblok. Fakta, Bisa buat apa yang gue buat sekarang ?
+	Siapa yang buka peluang gue tanya ? sadar diri kalo goblok. Fakta
+	<br>
+	Bisa buat apa yang gue buat sekarang ? orang goblok biasa banyak tidak sadar diri. Fakta
 	<br>
 	Kalian lulus sekolah juga jadi pengangguran saingannya sudah Ai
 </strong>
@@ -794,6 +796,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
