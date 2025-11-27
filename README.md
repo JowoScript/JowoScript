@@ -87,9 +87,10 @@
 	<li>Cloudflare United States</li>
 	<li>Meta United States</li>
 	<li>IBM United States</li>
-	<li>Appel United States<li>
+	<li>Appel United States</li>
 	<li>Hostinger Lithuania</li>
 	<li>Niagahoster Indonesia</li>
+	<li></li>
 </ol>
 </div>
 
@@ -778,6 +779,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
