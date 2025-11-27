@@ -54,6 +54,17 @@
 </ol>
 </div>
 
+### Have no problems and are safe with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned
+<div align="justify">
+<ol>
+	<li>Menpan RB</li>
+	<li>Mahkama Agung</li>
+	<li>Mahkama Konsitusi</li>
+	<li>Otoritas Jasa Keuangan</li>
+	<li>Bursa Efek Indonesia</li>
+</ol>
+</div>
+
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 #### Harga mau naik atau turun itu hak pribadi Muhammad Nurcahyo Pratomo
 <img src="Kingdom Studio Shell 0.1.45.png" 
@@ -739,6 +750,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
