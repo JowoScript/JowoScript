@@ -57,11 +57,11 @@
 ### Have no problems and are safe with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned
 <div align="justify">
 <ol>
-	<li>Menpan RB</li>
-	<li>Kejaksaan Agung</li>
-	<li>Mahkama Agung</li>
-	<li>Mahkama Konsitusi</li>
-	<li>Otoritas Jasa Keuangan</li>
+	<li>Menpan RB Indonesia</li>
+	<li>Kejaksaan Agung Indonesia</li>
+	<li>Mahkama Agung Indonesia</li>
+	<li>Mahkama Konsitusi Indonesia</li>
+	<li>Otoritas Jasa Keuangan Indonesia</li>
 	<li>Bursa Efek Indonesia</li>
 </ol>
 </div>
@@ -751,6 +751,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
