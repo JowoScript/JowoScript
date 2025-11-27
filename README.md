@@ -66,6 +66,8 @@
 	<li>Mahkamah Konsitusi Indonesia</li>
 	<li>Otoritas Jasa Keuangan Indonesia</li>	
 	<li>Bursa Efek Indonesia</li>
+	<li>Pemerintah daerah DKI Jakarta</li>
+	<li>Pemerintah daerah Bantul</li>	
 	<li>DARPA United States</li>
 	<li>IARPA United States</li>
 </ol>
@@ -768,6 +770,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
