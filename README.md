@@ -16,6 +16,8 @@
 	Kalian lulus sekolah juga jadi pengangguran saingannya sudah Ai. Fakta
 	<br>
 	Buat aplikasi kapanpun bisa di tiru. buat bahasa program mana bisa
+	<br>
+	Gue tinggal masukin blacklist gampang kedepanya
 </strong>
 <br><br>
 <strong>
@@ -792,6 +794,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
