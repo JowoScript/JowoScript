@@ -20,7 +20,7 @@
 </div>
 </div>
 
-### Blacklist data by name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
+### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
 <div align="justify">
 <ol>
 	<li>Big bad wolf</li>
@@ -33,21 +33,21 @@
 </ol>
 </div>
 
-### Blacklist data by name person (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
+### Blacklist data is problematic with its creator based on name person (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
 <div align="justify">
 <ol>
 	<li>this secret processing</li>
 </ol>
 </div>
 
-### Blacklist data by univesity (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
+### Blacklist data is problematic with its creator based on university (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
 <div align="justify">
 <ol>
 	<li>this secret processing</li>
 </ol>
 </div>
 
-### Blacklist data by government agencies (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
+### Blacklist data is problematic with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned
 <div align="justify">
 <ol>
 	<li>this secret processing</li>
@@ -739,6 +739,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
