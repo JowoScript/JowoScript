@@ -33,7 +33,7 @@
 	<li>MetroData Indonesia is have problematic with creator based so the relationship with IBM partners is tied up</li>
 	<li>Whatever type of cryptocurrency (global)</li>
 	<li>Infosys india (global)</li>
-	<li>IBM Indonesia (global)<li>
+	<li>IBM Indonesia (global)</li>
 	<li></li>
 </ol>
 </div>
@@ -790,6 +790,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
