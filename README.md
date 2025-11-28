@@ -123,6 +123,7 @@
 	<li>Appel United States</li>
 	<li>Nvdia United States</li>
 	<li>Oracle United States</li>
+	<li>Gigabyte Chines and Taiwan</li>
 	<li></li>
 </ol>
 </div>
@@ -812,6 +813,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
