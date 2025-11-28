@@ -25,7 +25,7 @@
 	<br><br><br>
 	Muhammad Nurcahyo Pratomo has the right to blacklist if there are individuals problem for me 
 	<br>
-	(in media sosial with id or email profile or voice or video and face + eyes recognitation, etc)
+	(in media sosial with id or email profile or voice or video and face + eyes recognitation, etc) exception if you don't have a head in your body
 </strong>
 <br><br>
 <strong>
@@ -804,6 +804,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
