@@ -23,7 +23,7 @@
 	<br>
 	Daftar blacklist masih akan bertambah kedepanya
 	<br><br><br>
-	Muhammad Nurcahyo Pratomo has the right to blacklist if there are individuals problem for me
+	Muhammad Nurcahyo Pratomo has the right to blacklist if there are individuals problem for me (in media sosial with id and email profile, etc)
 </strong>
 <br><br>
 <strong>
@@ -802,6 +802,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
