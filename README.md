@@ -24,6 +24,8 @@
 	Daftar blacklist masih akan bertambah kedepanya
 	<br><br><br>
 	Muhammad Nurcahyo Pratomo has the right to blacklist if there are individuals problem for me 
+	<br>
+	(in media sosial with id or email profile or voice or video and face + eyes recognitation, etc)
 </strong>
 <br><br>
 <strong>
