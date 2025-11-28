@@ -30,6 +30,8 @@
 	exception if you don't have a head in your body
 	<br>
 	baik baik kalo jadi konten kreator ya kalo goblok selama ini tidak paham hukum
+	<br>
+	mereka tidak paham hukum menggunakan aplikasi untuk kebodohan mereka sendiri selama ini
 </strong>
 <br><br>
 <strong>
@@ -808,6 +810,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
