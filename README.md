@@ -53,6 +53,7 @@
 	<li>Infosys india (global) is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22)</li>
 	<li>Polisi Indonesia (oknum)</li>
 	<li>IBM Indonesia (global)</li>
+	<li>MNC Group Indonesia (oknum)</li>
 	<li></li>
 </ol>
 </div>
@@ -815,6 +816,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
