@@ -50,10 +50,10 @@
 	<li>Medco Energi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22)</li>
 	<li>MetroData Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22) so the relationship with IBM partners is tied up</li>
 	<li>Whatever type of cryptocurrency (global) is ilegal currency (case closed)</li>
-	<li>Infosys india (global) is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22)</li>
-	<li>Polisi Indonesia (oknum)</li>
-	<li>IBM Indonesia (global)</li>
-	<li>MNC Group Indonesia (oknum)</li>
+	<li>Infosys india (individual) is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22)</li>
+	<li>Polisi Indonesia (individual)</li>
+	<li>IBM Indonesia (individual)</li>
+	<li>MNC Group Indonesia (individual)</li>
 	<li></li>
 </ol>
 </div>
@@ -816,6 +816,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
