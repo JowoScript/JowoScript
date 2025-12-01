@@ -21,7 +21,7 @@
 	<br>
 	Buat aplikasi kapanpun bisa di tiru. buat bahasa program gue mana bisa di tiru. Apa lagi sudah masuk blacklist
 	<br><br><br>
-	Banyaknya modal itu tidak ada artinya jika masa depan suram.
+	Banyaknya modal di danai pemerintah atau swasta itu tidak ada artinya jika masa depan suram.
 	<br>
 	Barisan orang goblok akan bermunculan satu persatu dan masa depan suram hahahaha
 	<br><br>
@@ -835,6 +835,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
