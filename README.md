@@ -21,6 +21,8 @@
 	<br>
 	Buat aplikasi kapanpun bisa di tiru. buat bahasa program gue mana bisa di tiru. Apa lagi sudah masuk blacklist
 	<br>
+	Banyaknya modal itu tidak ada artinya kalo tidak ada masa depan
+	<br>
 	Daftar blacklist masih akan bertambah kedepanya
 	<br><br><br>
 	Muhammad Nurcahyo Pratomo has the right to blacklist if there are individuals problem for me 
@@ -818,6 +820,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
