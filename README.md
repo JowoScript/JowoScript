@@ -39,7 +39,7 @@
 	<br>
 	Orang yang bermasalah sama gue pasti pura pura lupa atau sejenisnya. Pemain di mainin gue
 	<br>
-	Orang yang jahat sama gue dulu semua pasti hancur satu satu
+	Orang yang jahat sama gue dulu semua pasti hancur satu satu, waktu akan bicara
 </strong>
 <br><br>
 <strong>
@@ -842,6 +842,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
