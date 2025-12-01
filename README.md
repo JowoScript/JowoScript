@@ -115,8 +115,6 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 	<li>Otoritas Jasa Keuangan Indonesia</li>	
 	<li>Bursa Efek Indonesia</li>
 	<li>Perusahaan Listrik Negara Indonesia</li>
-	<li>Kementrian Ekonomi Indonesia</li>
-	<li>Kementrian Ekonomi Kreatif Indonesia</li>
 	<li>Badan Pengkajian Penerapan Teknologi Indonesia (Badan Riset dan Inovasi Nasional)</li>
 	<li>Badan Pertimbangan Kepegawaian Indonesia</li>
 	<li>Pemerintah daerah DKI Jakarta, Indonesia</li>
@@ -842,6 +840,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
