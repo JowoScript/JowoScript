@@ -151,6 +151,9 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 	<li>Oracle United States</li>
 	<li>Gigabyte Taiwan (Chines)</li>
 	<li>ASUSTeK Taiwan (Chines)</li>
+	<li>Intel United States</li>
+	<li>Advanced Micro Devices AMD United States</li>
+	<li>TSMC Taiwan (Chines)</li>
 	<li></li>
 </ol>
 </div>
@@ -840,6 +843,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
