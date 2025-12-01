@@ -54,7 +54,7 @@
 	<li>Polisi Indonesia</li>
 	<li>IBM Indonesia</li>
 	<li>MNC Group Indonesia</li>
-	<li>Kompas Group Indonesia</li>
+	<li>Kompas Gramedia Group Indonesia</li>
 	<li></li>
 </ol>
 </div>
@@ -817,6 +817,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
