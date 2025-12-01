@@ -37,7 +37,7 @@
 	<br>
 	Sudah masuk blacklist bisa buat apa ? website saja dan Ai not my level
 	<br>
-	Lulus sekolah cari kerja makin susah itu fakta cari masalah sama gue ya makin gelap
+	Orang yang bermasalah sama gue pasti pura pura lupa atau sejenisnya. Pemain di mainin
 </strong>
 <br><br>
 <strong>
@@ -840,6 +840,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
