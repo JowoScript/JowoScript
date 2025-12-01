@@ -51,6 +51,10 @@
 Netscape created and released JavaScript, which gave websites powerful computing capabilities they never had before. (They also made the infamous <blink> tag.) Microsoft countered with Cascading Style Sheets (CSS), which became the standard for web page design.
 
 Things got a little out of hand in 1997 when Microsoft released Internet Explorer 4.0. The team built a giant letter “e” and snuck it on the lawn of Netscape headquarters. The Netscape team promptly knocked the giant “e” over and put their own Mozilla dinosaur mascot on top of it.
+
+Then Microsoft began shipping Internet Explorer with their Windows operating system. Within 4 years, it had 75% of the market and by 1999 it had 99% of the market. The company faced antitrust litigation over the move, and Netscape decided to open source its codebase and created the not-for-profit Mozilla, which went on to create and release Firefox in 2002. Realizing that having a browser monopoly wasn’t in the best interests of users and the open web, Firefox was created to provide choice for web users. By 2010, Mozilla Firefox and others had reduced Internet Explorer’s market share to 50%.
+
+Other competitors emerged during the late ‘90s and early 2000s, including Opera, Safari, and Google Chrome. Microsoft Edge replaced Internet Explorer with the release of Windows 10 in 2015.
 </div>
 
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future)
@@ -831,6 +835,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
