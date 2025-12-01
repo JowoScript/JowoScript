@@ -43,6 +43,7 @@
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future)
 <div align="justify">
 <ol>
+	<li>Holywings Group is have problematic with Muhammad Nurcahyo Pratomo in big bad wolf</li>
 	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work)</li>
 	<li>Penta Group Indonesia</li>
 	<li>Sinergi group Indonesia</li>
@@ -54,8 +55,7 @@
 	<li>Polisi Indonesia</li>
 	<li>IBM Indonesia</li>
 	<li>MNC Group Indonesia</li>
-	<li>Kompas Gramedia Group Indonesia</li>
-	<li>Holywings Group is have problematic with Muhammad Nurcahyo Pratomo in big bad wolf</li>
+	<li>Kompas Gramedia Group Indonesia</li>	
 	<li></li>
 </ol>
 </div>
@@ -818,6 +818,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
