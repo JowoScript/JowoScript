@@ -33,7 +33,7 @@
 	<br>
 	exception if you don't have a head in your body
 	<br>
-	Masukin blacklist saja tidak bisa kerja terus pecat biar jadi pengangguran biar paham
+	Masukin blacklist saja tidak bisa kerja terus pecat biar jadi pengangguran biar paham kerasnya hidup
 </strong>
 <br><br>
 <strong>
@@ -833,6 +833,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
