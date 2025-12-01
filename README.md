@@ -44,6 +44,15 @@
 </div>
 </div>
 
+### Muhammad Nurcahyo Pratomo Deep The Browser War (Web Application Archive)
+<div>
+	By 1995, Netscape Navigator wasn’t the only way to get online. Computer software giant Microsoft licensed the old Mosaic code and built its own window to the web, Internet Explorer. The release sparked a war. Netscape and Microsoft worked feverishly to make new versions of their programs, each attempting to outdo the other with faster, better products.
+
+Netscape created and released JavaScript, which gave websites powerful computing capabilities they never had before. (They also made the infamous <blink> tag.) Microsoft countered with Cascading Style Sheets (CSS), which became the standard for web page design.
+
+Things got a little out of hand in 1997 when Microsoft released Internet Explorer 4.0. The team built a giant letter “e” and snuck it on the lawn of Netscape headquarters. The Netscape team promptly knocked the giant “e” over and put their own Mozilla dinosaur mascot on top of it.
+</div>
+
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future)
 <div align="justify">
 <ol>
@@ -822,6 +831,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
