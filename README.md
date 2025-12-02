@@ -13,7 +13,6 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br>
-	Perusahaan Pailit suruh bubar saja dan sita semua asset perusahaan dan ownernya
 </strong>
 <br><br>
 <strong>
@@ -816,6 +815,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
