@@ -13,33 +13,7 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br>
-	You graduate from school or university and become unemployed, your competitors are already AI. Fact
-	<br>
-	Create applications whenever you can copy them. your cant create my programing language which can be copied. Fact
-	<br><br>
-	Kalian lulus sekolah juga jadi pengangguran saingannya sudah Ai. Fakta
-	<br>
-	Buat aplikasi kapanpun bisa di tiru. buat bahasa program gue mana bisa di tiru. Apa lagi sudah masuk blacklist
-	<br><br><br>
-	Banyaknya modal di danai pemerintah atau swasta itu tidak ada artinya jika masa depan suram.
-	<br>
-	Barisan orang goblok akan bermunculan satu persatu dan masa depan suram hahahaha
-	<br><br>
-	Daftar blacklist masih akan bertambah kedepanya
-	<br><br><br>
-	Muhammad Nurcahyo Pratomo has the right to blacklist if there are individuals problem for me 
-	<br>
-	(in media sosial with id or email profile or voice or video or ip geolocation and face + eyes recognitation, etc) 
-	<br>
-	exception if you don't have a head in your body
-	<br>
-	Sudah masuk blacklist tidak akan bisa menggunakan produk bahasa program baru gue buat selamanya (Hak pribadi saya)
-	<br>
-	Sudah masuk blacklist bisa buat apa ? website saja dan Ai not my level
-	<br>
-	Orang yang bermasalah sama gue pasti pura pura lupa atau sejenisnya. Pemain di mainin gue
-	<br>
-	Orang yang jahat sama gue dulu semua pasti hancur satu satu, waktu akan bicara
+	Perusahaan Pailit suruh bubar saja
 </strong>
 <br><br>
 <strong>
@@ -842,6 +816,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
