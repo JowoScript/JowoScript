@@ -21,7 +21,7 @@
 	<br>
 	Banyaknya modal tidak menjamin hebat. Pegang omongan gue
 	<br>
-	Banyaknya jatah anggaran pemerintah tidak menjamin berkualitas SDM nya. Pegang omongan gue
+	Banyaknya jatah anggaran pemerintah di istansi tertentu tidak menjamin berkualitas SDM nya. Pegang omongan gue
 </strong>
 <br><br>
 <strong>
@@ -825,6 +825,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
