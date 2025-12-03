@@ -17,7 +17,7 @@
 	<br>
 	Siapa kena audit keuangan juga bukan gue ini, saingan gue pengangguran skill coding masih di bawah gue mah santai gue
 	<br>
-	Ramai ramai itu tidak menjamin berkualitas
+	Ramai ramai itu tidak menjamin berkualitas. Pegang omongan gue 
 </strong>
 <br><br>
 <strong>
@@ -821,6 +821,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
