@@ -13,9 +13,9 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br><br>
-	Banyaknya jatah anggaran pemerintah di istansi tertentu tidak menjamin berkualitas SDM nya. Pegang omongan gue
+	Banyaknya jatah anggaran pemerintah di istansi tertentu tidak menjamin berkualitas SDM nya. Pegang omongan gue. prediksi saya
 	<br>
-	Akan terlihat siapa yang tidak bisa bekerja di pemerintahaan dan swasta
+	Akan terlihat siapa yang tidak bisa bekerja di pemerintahaan dan swasta. prediksi saya
 </strong>
 <br><br>
 <strong>
@@ -819,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
