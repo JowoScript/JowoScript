@@ -17,7 +17,7 @@
 	<br>
 	Akan terlihat siapa yang tidak bisa bekerja di pemerintahaan dan swasta. prediksi saya
 	<br>
-	Langit dan bumi pun menjadi saksi (Witness)
+	Langit dan bumi pun menjadi saksi (Witness) siapa musuh ku pasti akan binasah
 </strong>
 <br><br>
 <strong>
@@ -821,6 +821,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
