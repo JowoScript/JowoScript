@@ -12,15 +12,7 @@
 	PT JowoScript Technology Indonesia
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
-	<br>
-	Dari 2021 sampai sekarang belum ada yang beli dan tidak menerima uang sepeserpun
-	<br>
-	Siapa kena audit keuangan juga bukan gue ini, saingan gue pengangguran skill coding masih di bawah gue mah santai gue
-	<br>
-	Ramai ramai itu tidak menjamin berkualitas. Pegang omongan gue 
-	<br>
-	Banyaknya modal tidak menjamin hebat. Pegang omongan gue
-	<br>
+	<br><br>
 	Banyaknya jatah anggaran pemerintah di istansi tertentu tidak menjamin berkualitas SDM nya. Pegang omongan gue
 </strong>
 <br><br>
@@ -825,6 +817,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
