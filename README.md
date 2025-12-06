@@ -13,7 +13,13 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br><br>
-	Banyaknya jatah anggaran pemerintah di istansi tertentu tidak menjamin berkualitas SDM nya. Pegang omongan gue. prediksi saya
+	Cukup audit saja anggaran pemerintah dan perusahaan go public selama ini kalo mau tau koruptor gituu ribet benar ya. Siapa yg maling dan merugi terus alesannya 🤣.
+	<br>
+	Siapa tidak kerja dan kerja akan terlihat semuanya
+	<br>
+	Siapa beban negara dan bukan akan terlihat
+	<br>
+	Siapa suka markup anggara dan bukan
 	<br>
 	Akan terlihat siapa yang tidak bisa bekerja di pemerintahaan dan swasta. prediksi saya
 	<br>
@@ -821,6 +827,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
