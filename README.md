@@ -29,7 +29,7 @@
 	<br>
 	bank apapun itu jenisnya tidak ada kebal hukum
 	<br>
-	Pengangguran ketawain saja gue juga dulu di persulit, senggol gue baru gue tembak pakai timah panas
+	Pengangguran dan skill coding di bawah gue ketawain saja gue juga dulu di persulit, senggol gue baru gue tembak pakai timah panas
 </strong>
 <br><br>
 <strong>
@@ -833,6 +833,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
