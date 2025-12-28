@@ -22,6 +22,8 @@
 	Bocil ilmunya masih sedikit baru main unicron jadi bahan ketawaan gue selama ini. paham ya
 	<br>
 	Pegawai bank saja kalo nakal korupsi saja bisa kena pidana sudah otomatis kena pecat terus masuk penjara belum ganti rugi
+	<br>
+	Di lapas saja ada kelas kelasnya punya uang dan tidak ruangnya beda
 </strong>
 <br><br>
 <strong>
@@ -825,6 +827,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
