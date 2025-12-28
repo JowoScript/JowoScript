@@ -15,7 +15,7 @@
 	<br><br>
 	Akhir 2026 Perusahaan mana lagi failed jangan lupa bayar hutang
 	<br>
-	Modal besar tapi goblok merugi terus ya siap siap bayar hutang. tanya sudah pengalaman puluhan tahun bacotan anak kecil di benarkan
+	Modal besar tapi goblok merugi terus ya siap siap bayar hutang. tanya sudah pengalaman puluhan tahun bacotan gue di benarkan
 </strong>
 <br><br>
 <strong>
@@ -819,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
