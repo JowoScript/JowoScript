@@ -13,25 +13,7 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br><br>
-	Cukup audit saja anggaran pemerintah dan perusahaan go public selama ini kalo mau tau koruptor gituu ribet benar ya. Siapa yg maling dan merugi terus alesannya 🤣.
-	<br>
-	Siapa tidak kerja dan kerja akan terlihat semuanya
-	<br>
-	Siapa beban negara dan bukan akan terlihat
-	<br>
-	Siapa suka markup anggara dan bukan
-	<br>
-	Akan terlihat siapa yang tidak bisa bekerja di pemerintahaan dan swasta. prediksi saya
-	<br>
-	Langit dan bumi pun menjadi saksi (Witness) siapa musuh ku pasti akan binasah
-	<br><br><br>
-	rekening pegawai bank kalo bermasalah saja bisa di laporkan dan di kunci
-	<br>
-	bank apapun itu jenisnya tidak ada kebal hukum
-	<br>
-	Pengangguran dan skill coding di bawah gue ketawain saja gue juga dulu di persulit, senggol gue baru gue tembak pakai timah panas
-	<br>
-	Teman gue sekolah dan teman gue main yang masuk lewat orang dalam di dunia kerja juga banyak dulu
+	Akhir 2026 Perusahaan mana lagi failed jangan lupa bayar hutang
 </strong>
 <br><br>
 <strong>
@@ -835,6 +817,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
