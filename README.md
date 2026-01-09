@@ -13,18 +13,6 @@
 	<br><br>
 	After Ai then don't have more innovation that's my prediction (this end game)
 	<br><br>
-	Akhir 2026 Perusahaan mana lagi failed jangan lupa bayar hutang
-	<br>
-	Modal besar tapi goblok merugi terus ya siap siap bayar hutang. tanya sudah pengalaman puluhan tahun bacotan gue di benarkan
-	<br>
-	perusahaan go publik saja anak kecil juga bisa buat tapi ada resikonya kalo failed ya bayar hutang itu sudah aturan dari dulu
-	<br>
-	Bocil ilmunya masih sedikit baru main unicron jadi bahan ketawaan gue selama ini. paham ya
-	<br>
-	Pegawai bank saja kalo nakal korupsi atau penggelapan uang saja bisa kena pidana dan otomatis kena pecat terus masuk penjara belum ganti rugi uang nasabah
-	<br>
-	Di lapas saja ada kelas kelasnya punya uang dan tidak ruangnya beda, anak bayi levelnya bicara
-	<br><br>
 	Gue tinggal niru buat aplikasi apapun itu pakai produk bahasa pemrograman gue buat sendiri, duluan buat aplikasi belum tentu hebat bagi gue beda kelas level legend suka ngepoor dulu gue seperti biasa barisan orang goblok akan bermunculan di dunia kerja
 	<br><br>
 	Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli
@@ -831,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
