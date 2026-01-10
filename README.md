@@ -54,7 +54,8 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 	<li>Polisi Indonesia, polisi bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa polisi bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
 	<li>IBM Indonesia</li>
 	<li>MNC Group Indonesia (see point number 22 / mainin gue lewat test masuk kerja)</li>
-	<li>Kompas Gramedia Group Indonesia</li>	
+	<li>Kompas Gramedia Group Indonesia</li>
+	<li>Transcorp (PT Trans Corpora) (see point number 22 / mainin gue lewat test masuk kerja)</li>
 	<li>SMK Media Informatika (guru) guru bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa guru bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri | mainin gue dalam membuat RPP)</li>
 	<li>Kementerian Pendidikan Tinggi, Sains, dan Teknologi Indonesia (Dosen Oknum) Dosen bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa dosen bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
 	<li></li>
@@ -821,6 +822,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
