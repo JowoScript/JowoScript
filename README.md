@@ -24,6 +24,8 @@
 	Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk
 	<br><br>
 	siapa tidak berguna di dunia kerja akan terlihat satu per satu
+	<br><br>
+	kalo saingan gue pengangguran bukan level gue sekarang ya
 </strong>
 <br><br>
 <strong>
@@ -828,6 +830,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
