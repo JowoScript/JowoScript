@@ -41,7 +41,7 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 <div align="justify">
 <ol>
 	<li>Holywings Group</li>
-	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja dan kerja di luar aturan)</li>
+	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja dan kerja di luar aturan pada tahun 2017)</li>
 	<li>Penta Group Indonesia</li>
 	<li>Sinergi group Indonesia</li>
 	<li>IFS Solusi Integrasi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue lewat test masuk kerja)</li>
@@ -819,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
