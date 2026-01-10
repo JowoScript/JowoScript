@@ -18,6 +18,8 @@
 	Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli
 	<br>
 	Pengalaman pribadi gue lebih banyak dari kalian selama ini
+	<br><br>
+	(yang lemah dan kuat akan terlihat ketika sendiri)
 </strong>
 <br><br>
 <strong>
@@ -822,6 +824,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
