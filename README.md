@@ -44,14 +44,14 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja dan kerja di luar aturan pada tahun 2017)</li>
 	<li>Penta Group Indonesia</li>
 	<li>Sinergi group Indonesia</li>
-	<li>IFS Solusi Integrasi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue lewat test masuk kerja)</li>
-	<li>Medco Energi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue lewat test masuk kerja)</li>
-	<li>MetroData Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue lewat test masuk kerja) so the relationship with IBM partners is tied up</li>
+	<li>IFS Solusi Integrasi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja)</li>
+	<li>Medco Energi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja)</li>
+	<li>MetroData Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja) so the relationship with IBM partners is tied up</li>
 	<li>Whatever type of cryptocurrency (global) is ilegal currency (case closed)</li>
 	<li>Infosys india is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue lewat test masuk kerja)</li>
 	<li>Polisi Indonesia, polisi bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa polisi bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
 	<li>IBM Indonesia</li>
-	<li>MNC Group Indonesia</li>
+	<li>MNC Group Indonesia (see point number 22 / mainin gue lewat test masuk kerja)</li>
 	<li>Kompas Gramedia Group Indonesia</li>	
 	<li>SMK Media Informatika (guru) guru bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa guru bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
 	<li>Kementerian Pendidikan Tinggi, Sains, dan Teknologi Indonesia (Dosen Oknum) Dosen bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa dosen bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
@@ -819,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
