@@ -20,7 +20,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law
 <div>
-	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. The checkmate forever 
+	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Next generasi tidak nurut hukum gue buat ya selamat jadi pengangguran abadi. The checkmate forever 
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
@@ -824,6 +824,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
