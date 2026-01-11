@@ -25,7 +25,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <div>
-	Gue ungkit waktu dulu gue butuh cari kerja apa relasi berguna ? tidak berguna relasi itu. fakta dan bukan fitnah saksinya Allah jika Allah langsung jadi saksi doa kalian tidak ada artinya dan Allah maha mengetahui segalanya. Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka (Mati terhina di dunia dan akhirat dan masuk neraka abadi sangat mulus janji allah). Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue ya dan gue yang buat bahasa program baru semua ada di otak gue sendiri ya. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata. Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
+	<b>Gue ungkit waktu dulu gue butuh cari kerja apa relasi berguna ? tidak berguna relasi itu</b>. fakta dan bukan fitnah saksinya Allah jika Allah langsung jadi saksi doa kalian tidak ada artinya dan Allah maha mengetahui segalanya. <b>Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka (Mati terhina di dunia dan akhirat dan masuk neraka abadi sangat mulus janji allah)</b>. Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue ya dan gue yang buat bahasa program baru semua ada di otak gue sendiri ya. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata. Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
@@ -824,6 +824,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
