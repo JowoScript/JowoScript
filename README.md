@@ -193,22 +193,22 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 
 ### Muhammad Nurcahyo Pratomo Intro JXML and JHTML History Small talk
 <div>
-	I'm behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. 
+	<b>I'm behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with love.</b> My mission intergration all product PT JowoScript Technology Indonesia
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Object Notation History Small talk
 <div>
-	I'm behind Code Jowo Object Notation until now, Jowo Object Notation Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. 
+	<b>I'm behind Code Jowo Object Notation until now</b>, Jowo Object Notation Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. 
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JowoScript and JS3 History Small talk
 <div>
-	I'm behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. 
+	<b>I'm behind Code JowoScript and JS3 until now</b>, JowoScript and JS3 Build first 2021 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. 
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Kingdom Studio History Small talk
 <div>
-	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. 
+	<b>I'm behind Code Kingdom Studio until now</b>, Kingdom Studio Build first 2025 until now and build with love. My mission intergration all product PT JowoScript Technology Indonesia in kingdom studio ide for create many project the future. 
 </div>
 
 ### Jaminan Produk (Jika sudah beli)
@@ -834,6 +834,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
