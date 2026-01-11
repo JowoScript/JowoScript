@@ -20,7 +20,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <div>
-	Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka. Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue sebagai buat bahasa program baru. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata. Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
+	Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka. Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue sebagai buat bahasa program baru semua ada di otak gue sendiri ya. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata. Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
@@ -819,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
