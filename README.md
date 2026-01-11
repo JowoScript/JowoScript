@@ -273,8 +273,8 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 <li><b>Cant be read in Artificial Intelligence (AI)</b> with license business jowoscript programing language</li>
 <li><b>Cant be read in Artificial Intelligence (AI)</b> with license business jowo kingdom programing language</li>
 <li><b>Can lock in native code</b> with license business jowoscript programing language</li>
-<li>Can lock in Kingdom Studio with license business kingdom studio</li>
-<li>Can lock in Jowo Kingdom Machine with license business jowo kingdom programing language</li>
+<li><b>Can lock in Kingdom Studio</b> with license business kingdom studio</li>
+<li><b>Can lock in Jowo Kingdom Machine</b> with license business jowo kingdom programing language</li>
 <li>Auto compile and dive deeper JowoScript of compile inside file extension *.js or *.jowo with type of application/jowoscript or text/jowoscript with license business jowoscript programing language</li>
 <li>Auto compile and dive deeper JowoStyle of compile inside file extension *.jss or *.js3 with type of application/jowostyle or text/jowostyle with license business jowoscript programing language</li>
 <li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li>
@@ -819,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
