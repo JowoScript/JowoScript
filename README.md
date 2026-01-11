@@ -40,7 +40,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <div>
-	Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli
+	Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
@@ -839,6 +839,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
