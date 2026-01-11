@@ -188,27 +188,27 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Kingdom Machine or JKM History Small talk
 <div>
-	<b>I'm behind Code Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with knowledge</b>.
+	I'm behind Code Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with knowledge.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JXML and JHTML History Small talk
 <div>
-	<b>I'm behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with knowledge</b>.
+	I'm behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with knowledge.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Object Notation History Small talk
 <div>
-	<b>I'm behind Code Jowo Object Notation until now, Jowo Object Notation Build first 2025 until now and build with knowladge</b>.
+	I'm behind Code Jowo Object Notation until now, Jowo Object Notation Build first 2025 until now and build with knowladge.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JowoScript and JS3 History Small talk
 <div>
-	<b>I'm behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with knowladge</b>.
+	I'm behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with knowladge.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Kingdom Studio History Small talk
 <div>
-	<b>I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with knowledge</b>.
+	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with knowledge.
 </div>
 
 ### Jaminan Produk (Jika sudah beli)
@@ -285,9 +285,9 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 <li>JowoScript programing language product copyright is PT JowoScript Technology Indonesia</li>
 <li>Kingdom Studio product copyright is PT JowoScript Technology Indonesia</li>
 <li>Jowo Kingdom Machine product copyright is PT JowoScript Technology Indonesia</li>
-<li>Cant be read in Artificial Intelligence (AI) with license business jowoscript programing language</li>
-<li>Cant be read in Artificial Intelligence (AI) with license business jowo kingdom programing language</li>
-<li>Can lock in native code with license business jowoscript programing language</li>
+<li><b>Cant be read in Artificial Intelligence (AI)</b> with license business jowoscript programing language</li>
+<li><b>Cant be read in Artificial Intelligence (AI)</b> with license business jowo kingdom programing language</li>
+<li><b>Can lock in native code</b> with license business jowoscript programing language</li>
 <li>Can lock in Kingdom Studio with license business kingdom studio</li>
 <li>Can lock in Jowo Kingdom Machine with license business jowo kingdom programing language</li>
 <li>Auto compile and dive deeper JowoScript of compile inside file extension *.js or *.jowo with type of application/jowoscript or text/jowoscript with license business jowoscript programing language</li>
@@ -834,6 +834,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
