@@ -38,6 +38,11 @@
 </div>
 </div>
 
+### Muhammad Nurcahyo Pratomo Intro Small talk
+<div>
+	Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli
+</div>
+
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
 <div>
 	By 1995, Netscape Navigator wasn’t the only way to get online. Computer software giant Microsoft licensed the old Mosaic code and built its own window to the web, Internet Explorer. The release sparked a war. Netscape and Microsoft worked feverishly to make new versions of their programs, each attempting to outdo the other with faster, better products.
@@ -834,6 +839,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
