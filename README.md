@@ -98,17 +98,17 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 ### Have no problems and are safe with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
 <div align="justify">
 <ol>
-	<li>Menpan RB Indonesia</li>
-	<li>Komisi Yudisial Indonesia</li>
-	<li>Komisi Penyiaraan Indonesia</li>
-	<li>Komisi Pemberantasan Korupsi Indonesia</li>
-	<li>Kejaksaan Agung Indonesia</li>
-	<li>Mahkamah Agung Indonesia</li>
-	<li>Mahkamah Konsitusi Indonesia</li>
-	<li>Otoritas Jasa Keuangan Indonesia</li>	
-	<li>Bursa Efek Indonesia</li>
-	<li>Perusahaan Listrik Negara Indonesia</li>
-	<li>Badan Pengkajian Penerapan Teknologi Indonesia (Badan Riset dan Inovasi Nasional)</li>
+	<li>Menpan RB Indonesia (MRB)</li>
+	<li>Komisi Yudisial Indonesia (KY)</li>
+	<li>Komisi Penyiaraan Indonesia (KPI)</li>
+	<li>Komisi Pemberantasan Korupsi Indonesia (KPK)</li>
+	<li>Kejaksaan Agung Indonesia (KA)</li>
+	<li>Mahkamah Agung Indonesia (MA)</li>
+	<li>Mahkamah Konsitusi Indonesia (MK)</li>
+	<li>Bursa Efek Indonesia (Bursa Efek Jakarta / BEJ)</li>
+	<li>Otoritas Jasa Keuangan Indonesia (OJK)</li>	
+	<li>Perusahaan Listrik Negara Indonesia (PLN)</li>
+	<li>Badan Pengkajian Penerapan Teknologi Indonesia / BPPT (Badan Riset dan Inovasi Nasional / BRIN)</li>
 	<li>Badan Pertimbangan Kepegawaian Indonesia</li>
 	<li>Pemerintah daerah DKI Jakarta, Indonesia</li>
 	<li>Pemerintah kabupaten Bantul, Indonesia</li>	
@@ -834,6 +834,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
