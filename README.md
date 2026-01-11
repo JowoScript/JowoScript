@@ -99,12 +99,12 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 <div align="justify">
 <ol>
 	<li>Menpan RB Indonesia (MRB)</li>
-	<li>Komisi Yudisial Indonesia (KY)</li>
-	<li>Komisi Penyiaraan Indonesia (KPI)</li>
-	<li>Komisi Pemberantasan Korupsi Indonesia (KPK)</li>
-	<li>Kejaksaan Agung Indonesia (KA)</li>
 	<li>Mahkamah Agung Indonesia (MA)</li>
 	<li>Mahkamah Konsitusi Indonesia (MK)</li>
+	<li>Kejaksaan Agung Indonesia (KA)</li>	
+	<li>Komisi Yudisial Indonesia (KY)</li>
+	<li>Komisi Penyiaraan Indonesia (KPI)</li>
+	<li>Komisi Pemberantasan Korupsi Indonesia (KPK)</li>		
 	<li>Bursa Efek Indonesia (Bursa Efek Jakarta / BEJ)</li>
 	<li>Otoritas Jasa Keuangan Indonesia (OJK)</li>	
 	<li>Perusahaan Listrik Negara Indonesia (PLN)</li>
@@ -834,6 +834,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
