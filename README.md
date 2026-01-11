@@ -9,27 +9,7 @@
 <div align="center">
 	
 <strong>
-	PT JowoScript Technology Indonesia - Tetap Keren Selamanya
-	<br><br>
-	Buat aplikasi Ai semua hasilnya sama saja. Pengalaman pribadi gue lebih banyak dari kalian selama ini
-	<br><br>
-	Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata
-	<br><br>
-	Gue tinggal niru buat aplikasi apapun itu pakai produk bahasa pemrograman gue buat sendiri, duluan buat aplikasi belum tentu hebat bagi gue beda kelas level legend suka ngepoor dulu gue seperti biasa barisan orang goblok akan bermunculan di dunia kerja
-	<br><br>
-	Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli
-	<br>
-	Pengalaman pribadi gue lebih banyak dari kalian selama ini
-	<br><br>
-	(Mental dan intelektual yang lemah dan kuat akan terlihat ketika sendiri seperti saya sekarang)
-	<br>
-	Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk
-	<br><br>
-	siapa tidak berguna di dunia kerja akan terlihat satu per satu
-	<br><br>
-	kalo saingan gue pengangguran dan pengusaha bukan level gue sekarang ya karena mereka tidak punya uang untuk beli produk gue buat
-	<br>
-	gue ungkit dulu waktu gue butuh cari kerja apa relasi berguna ? tidak. Pengalaman pribadi saya ya
+	PT JowoScript Technology Indonesia - Tetap Keren Selamanya	
 </strong>
 <br><br>
 <strong>
@@ -40,7 +20,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <div>
-	Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata
+	Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata. Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
@@ -839,6 +819,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
