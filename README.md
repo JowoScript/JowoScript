@@ -44,6 +44,7 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) Tidak ada fitnah apa mereka buat kepada saya dulu mereka akan hancur terhina dunia dan akhirat (tidak gue izinkan masuk surga selamanya)
 <div align="justify">
 <ol>
+	<li>Cryptocurrency</li>
 	<li>Holywings Group</li>
 	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja dan kerja di luar aturan pada tahun 2017)</li>
 	<li>Penta Group Indonesia</li>
@@ -56,7 +57,6 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 	<li>Polisi Indonesia, polisi bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa polisi bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
 	<li>IBM Indonesia</li>
 	<li>MNC Group Indonesia (see point number 22 / mainin gue lewat test masuk kerja | Setiap perusahaan gue datengin pasti gue catat)</li>
-	<li>Kompas Gramedia Group Indonesia</li>
 	<li>Transcorp (PT Trans Corpora) (see point number 22 / mainin gue lewat test masuk kerja | Semua perusahaan gue datengin pasti gue catat)</li>
 	<li>SMK Media Informatika (guru) guru bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa guru bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri | mainin gue dalam membuat RPP)</li>
 	<li>Kementerian Pendidikan Tinggi, Sains, dan Teknologi Indonesia (Dosen Oknum) Dosen bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa dosen bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
@@ -784,6 +784,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
