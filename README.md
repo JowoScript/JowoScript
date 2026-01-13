@@ -114,7 +114,7 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 </ol>
 </div>
 
-### Have no problems and are safe with its creator based on name company (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
+### Whitelist data is have no problems and are safe with its creator based on name company (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
 <div align="justify">
 <ol>
 	<li>Manulife Indonesia</li>
@@ -824,6 +824,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
