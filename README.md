@@ -41,7 +41,7 @@ Then Microsoft began shipping Internet Explorer with their Windows operating sys
 Other competitors emerged during the late ‘90s and early 2000s, including Opera, Safari, and Google Chrome. Microsoft Edge replaced Internet Explorer with the release of Windows 10 in 2015. 2021 Ai replace of all them this good news for Muhammad Nurcahyo Pratomo. Then Muhammad Nurcahyo Pratomo created a new programming language for commercial license without them and make new rules
 </div>
 
-### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) Tidak ada fitnah apa mereka buat kepada saya dulu mereka akan hancur terhina dunia dan akhirat (tidak gue izinkan masuk surga selamanya)
+### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future)
 <div align="justify">
 <ol>
 	<li>Cryptocurrency</li>
@@ -784,6 +784,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
