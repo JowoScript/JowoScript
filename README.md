@@ -88,54 +88,14 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 ### Whitelist data is have no problems and are safe with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
 <div align="justify">
 <ol>
-	<li>Menpan RB Indonesia (MRB)</li>
-	<li>Mahkamah Agung Indonesia (MA)</li>
-	<li>Mahkamah Konsitusi Indonesia (MK)</li>
-	<li>Kejaksaan Agung Indonesia (KA)</li>	
-	<li>Komisi Yudisial Indonesia (KY)</li>
-	<li>Komisi Penyiaraan Indonesia (KPI)</li>
-	<li>Komisi Pemberantasan Korupsi Indonesia (KPK)</li>		
-	<li>Bursa Efek Indonesia (Bursa Efek Jakarta / BEJ)</li>
-	<li>Otoritas Jasa Keuangan Indonesia (OJK)</li>	
-	<li>Perusahaan Listrik Negara Indonesia (PLN)</li>
-	<li>Badan Pengkajian Penerapan Teknologi Indonesia / BPPT (Badan Riset dan Inovasi Nasional / BRIN)</li>
-	<li>Badan Pertimbangan Kepegawaian Indonesia</li>
-	<li>Pemerintah daerah DKI Jakarta, Indonesia</li>
-	<li>Pemerintah kabupaten Bantul, Indonesia</li>	
-	<li>Pemerintah kabupaten Serang, Indonesia</li>	
-	<li>Pemerintah kabupaten Kota Tangerang, Indonesia</li>
-	<li>Dinas Pemadam Kebakaran dan Penyelamatan Indonesia</li>
-	<li>DARPA United States</li>
-	<li>IARPA United States</li>
-	<li>Mahkamah Federal Malaysia</li>
-	<li>Supreme Court of United States</li>
-	<li>Supreme Court of China</li>
-	<li></li>
+	<li>this secret processing</li>	
 </ol>
 </div>
 
 ### Whitelist data is have no problems and are safe with its creator based on name company (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
 <div align="justify">
 <ol>
-	<li>Manulife Indonesia</li>
-	<li>Niagahoster Indonesia</li>
-	<li>Hostinger Lithuania</li>	
-	<li>Heitech Padu Malaysia this saved by apologize</li>
-	<li>Google United States</li>
-	<li>Microsoft United States</li>
-	<li>Linux Foundation United States</li>	
-	<li>Cloudflare United States</li>
-	<li>Meta United States</li>
-	<li>Appel United States</li>
-	<li>Nvdia United States</li>
-	<li>Oracle United States</li>
-	<li>Gigabyte Taiwan (Chines)</li>
-	<li>ASUSTeK Taiwan (Chines)</li>
-	<li>Intel United States</li>
-	<li>Advanced Micro Devices - AMD United States</li>
-	<li>Taiwan Semiconductor Manufacturing Company - TSMC Taiwan (Chines)</li>
-	<li>GitHub</li>
-	<li></li>
+	<li>this secret processing</li>	
 </ol>
 </div>
 
@@ -824,6 +784,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
