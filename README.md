@@ -20,7 +20,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law
 <div>
-	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. Surat Az-Zumar (39:5): "Dia Allah menciptakan langit dan bumi dengan (tujuan) yang benar, Dia menutupkan malam atas siang dan menutupkan siang atas malam dan menundukkan matahari dan bulan, masing-masing <b>berjalan (kedepan) menurut waktu yang ditentukan</b>". Al-Anbiya ayat 30 : Apakah orang-orang yang kafir tidak mengetahui bahwasanya langit dan bumi itu keduanya dahulu adalah suatu yang padu, kemudian Kami pisahkan antara keduanya. Dan dari air Kami jadikan segala sesuatu yang hidup (Kehidupan). Al-Fussilat ayat 11 : langit itu masih berupa asap sampai sekarang. Manusia bodoh menciptakan dewa dewa palsu dan agama palsu tanpa pedoman yang baik dari Allah. Agama palsu di ciptakan manusia tidak memiliki pengetahuan alam dan isinya. The checkmate forever 
+	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. Surat Az-Zumar (39:5): "Dia Allah menciptakan langit dan bumi dengan (tujuan) yang benar, Dia menutupkan malam atas siang dan menutupkan siang atas malam dan menundukkan matahari dan bulan, masing-masing <b>berjalan (kedepan) menurut waktu yang ditentukan</b>". Al-Anbiya ayat 30 : Apakah orang-orang yang kafir tidak mengetahui bahwasanya langit dan bumi itu keduanya dahulu adalah suatu yang padu, kemudian Kami pisahkan antara keduanya. Dan dari air Kami jadikan segala sesuatu yang hidup (Kehidupan). Al-Fussilat ayat 11 : langit itu masih berupa asap sampai sekarang. Manusia bodoh menciptakan dewa dewa palsu dan agama palsu tanpa pedoman yang baik dari Allah. Agama palsu di ciptakan manusia tidak memiliki pengetahuan alam dan isinya. Kitab-kitab Allah dari awal sampai penutup adalah Taurat (untuk Nabi Musa), Zabur (untuk Nabi Daud), Injil (untuk Nabi Isa), dan Al-Qur'an (untuk Nabi Muhammad SAW) sebagai penyempurna, yang berisi petunjuk dan cahaya dari Allah untuk membimbing manusia. The checkmate forever 
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
@@ -784,6 +784,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
