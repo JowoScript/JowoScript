@@ -25,7 +25,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <div>
-	Sering hujan besar tandanya kebenaran gue bicara selama ini. Gue saja di buat nganggur 10 tahun lebih dan bales dendam gue bakal kenyataan siapa jadi parasit selama ini di dunia kerja juga bukan gue terlihat ya dan skill coding di bawah gue juga pasti end game apa lagi baru lulus sekolah banyak gaya depan gue jadi mainan gue. Mau di beli atau tidak gue tetap stay cool, hidup apa apa serba ada itu beda. Orang yang hina gue miskin itu level gue lebih tinggi ya dan gue tidak perlu korupsi ya di akhir gue juga akan sangat kaya raya harga produk gue saja bisa di lihat ya. Perusahaan mana lagi pailit bayar hutang ya. Mereka terima gaji dan tunjangan juga sama saja ya selama ini mereka bisa kaya dari situ dan semua butuh hasil kerja juga ya dan jika tidak ada hasil kerjanya semua itu ada audit keuangan ya, tidak ada hasil kerja juga termasuk penggelapan keuangan dan siapa yang masuk penjara juga bukan gue. Beda caranya saja ya siapa yang tumbang bukan gue.
+	Sering hujan besar tandanya kebenaran gue bicara selama ini. Gue saja di buat nganggur 10 tahun lebih dan bales dendam gue bakal kenyataan siapa jadi parasit dan benalu selama ini di dunia kerja juga bukan gue terlihat ya dan skill coding di bawah gue juga pasti end game apa lagi baru lulus sekolah banyak gaya depan gue jadi mainan gue. Mau di beli atau tidak gue tetap stay cool, hidup apa apa serba ada itu beda. Orang yang hina gue miskin itu level gue lebih tinggi ya dan gue tidak perlu korupsi ya di akhir gue juga akan sangat kaya raya harga produk gue saja bisa di lihat ya. Perusahaan mana lagi pailit bayar hutang ya. Mereka terima gaji dan tunjangan juga sama saja ya selama ini mereka bisa kaya dari situ dan semua butuh hasil kerja juga ya dan jika tidak ada hasil kerjanya semua itu ada audit keuangan ya, tidak ada hasil kerja juga termasuk penggelapan keuangan dan siapa yang masuk penjara juga bukan gue. Beda caranya saja ya siapa yang tumbang bukan gue.
 	<b>Gue ungkit waktu dulu gue butuh cari kerja apa relasi berguna ? tidak berguna relasi itu</b>. fakta dan bukan fitnah saksinya Allah jika Allah langsung jadi saksi dan doa kalian tidak ada artinya dan Allah maha mengetahui segalanya. Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue ya dan gue yang buat bahasa program baru semua ada di otak gue sendiri ya. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. <b>Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata (Mati terhina di dunia dan akhirat dan masuk neraka abadi sangat mulus janji allah).</b> Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
 </div>
 
@@ -785,6 +785,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
