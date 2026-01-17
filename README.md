@@ -20,12 +20,12 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law
 <div>
-	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. Surat Az-Zumar (39:5): "Dia Allah menciptakan langit dan bumi dengan (tujuan) yang benar, Dia menutupkan malam atas siang dan menutupkan siang atas malam dan menundukkan matahari dan bulan, masing-masing <b>berjalan (kedepan) menurut waktu yang ditentukan</b>". Al-Anbiya ayat 30 : Apakah orang-orang yang kafir tidak mengetahui bahwasanya langit dan bumi itu keduanya dahulu adalah suatu yang padu, kemudian Kami pisahkan antara keduanya. Dan dari air Kami jadikan segala sesuatu yang hidup (Kehidupan). Al-Fussilat ayat 11 : langit itu masih berupa asap sampai sekarang. Manusia bodoh menciptakan dewa dewa palsu dan agama palsu tanpa pedoman yang baik dari Allah. Agama palsu di ciptakan manusia tidak memiliki pengetahuan alam dan isinya. Kitab-kitab Allah dari awal sampai penutup adalah Taurat (untuk Nabi Musa), Zabur (untuk Nabi Daud), Injil (untuk Nabi Isa), dan Al-Qur'an (untuk Nabi Muhammad SAW) sebagai penyempurna, yang berisi petunjuk dan cahaya dari Allah untuk membimbing manusia. The checkmate forever 
+	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. The checkmate forever 
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk
 <div>
-	<b>Gue ungkit waktu dulu gue butuh cari kerja apa relasi berguna ? tidak berguna relasi itu</b>. fakta dan bukan fitnah saksinya Allah jika Allah langsung jadi saksi dan doa kalian tidak ada artinya dan Allah maha mengetahui segalanya. <b>Kalo saingan gue pengangguran dan skill coding di bawah gue suruh mati saja mereka (Mati terhina di dunia dan akhirat dan masuk neraka abadi sangat mulus janji allah)</b>. Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue ya dan gue yang buat bahasa program baru semua ada di otak gue sendiri ya. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. <b>Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata (Mati terhina di dunia dan akhirat dan masuk neraka abadi sangat mulus janji allah).</b> Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
+	<b>Gue ungkit waktu dulu gue butuh cari kerja apa relasi berguna ? tidak berguna relasi itu</b>. fakta dan bukan fitnah saksinya Allah jika Allah langsung jadi saksi dan doa kalian tidak ada artinya dan Allah maha mengetahui segalanya. Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue ya dan gue yang buat bahasa program baru semua ada di otak gue sendiri ya. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. <b>Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata (Mati terhina di dunia dan akhirat dan masuk neraka abadi sangat mulus janji allah).</b> Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
@@ -784,6 +784,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
