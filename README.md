@@ -104,7 +104,7 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 #### Whether the price goes up or down is Muhammad Nurcahyo Pratomo's personal right, you can afford it but being blacklisted means game over, ask all the company founders if what Muhammad Nurcahyo Pratomo said is true
-<img src="Kingdom Studio Shell 0.1.45.png" 
+<img src="Kingdom Technology 0.1.47.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
@@ -112,7 +112,7 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 #### Selama belum di beli akan terlihat siapa yang tidak berguna
 
-<img src="Kingdom Studio Shell intro.png" 
+<img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
@@ -787,6 +787,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
