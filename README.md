@@ -44,7 +44,7 @@ Then Microsoft began shipping Internet Explorer with their Windows operating sys
 Other competitors emerged during the late ‘90s and early 2000s, including Opera, Safari, and Google Chrome. Microsoft Edge replaced Internet Explorer with the release of Windows 10 in 2015. 2021 Ai replace of all them this good news for Muhammad Nurcahyo Pratomo. Then Muhammad Nurcahyo Pratomo created a new programming language for commercial license without them and make new rules
 </div>
 
-### Blacklist data is problematic with its creator based on name company (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future)
+### Blacklist data is problematic with its creator based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future)
 <div align="justify">
 <ol>
 	<li>Cryptocurrency (see point number 2)</li>
@@ -67,35 +67,35 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 </ol>
 </div>
 
-### Blacklist data is problematic with its creator based on name person (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
+### Blacklist data is problematic with its creator based on name person (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune
 <div align="justify">
 <ol>
 	<li>this secret processing</li>
 </ol>
 </div>
 
-### Blacklist data is problematic with its creator based on university (This will update in kingdom studio, jowoscript, js3, etc), all data will increase over time stay tune
+### Blacklist data is problematic with its creator based on university (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune
 <div align="justify">
 <ol>
 	<li>this secret processing</li>
 </ol>
 </div>
 
-### Blacklist data is problematic with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned
+### Blacklist data is problematic with its creator based on government agencies (This will be updated in kingdom technology environment, jowoscript, js3, etc.) all data will increase over time, stay tuned
 <div align="justify">
 <ol>
 	<li>this secret processing</li>
 </ol>
 </div>
 
-### Whitelist data is have no problems and are safe with its creator based on government agencies (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
+### Whitelist data is have no problems and are safe with its creator based on government agencies (This will be updated in kingdom technology environment, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
 <div align="justify">
 <ol>
 	<li>this secret processing</li>	
 </ol>
 </div>
 
-### Whitelist data is have no problems and are safe with its creator based on name company (This will be updated in kingdom studio, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
+### Whitelist data is have no problems and are safe with its creator based on name company (This will be updated in kingdom technology environment, jowoscript, js3, etc.) all data will increase over time, stay tuned (Noted Data will change if who threaten creator based)
 <div align="justify">
 <ol>
 	<li>this secret processing</li>	
@@ -125,7 +125,7 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 #### Selama belum di beli akan terlihat siapa yang tidak berguna
-<img src="Kingdom Studio CMD.png" 
+<img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
@@ -159,9 +159,9 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 	I'm behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with knowladge.
 </div>
 
-### Muhammad Nurcahyo Pratomo Intro Kingdom Studio History Small talk
+### Muhammad Nurcahyo Pratomo Intro Kingdom Technology Environment History Small talk
 <div>
-	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with knowledge.
+	I'm behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with knowledge. Then I changed the name to Kingdom Technology Environment in 2026.
 </div>
 
 ### Jaminan Produk (Jika sudah beli)
@@ -231,17 +231,17 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
 <div align="justify">
 <ol>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
-<li>Kingdom Studio Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of IDE technology for licensing business.</li>
+<li>Kingdom Technology Environment Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of IDE technology for licensing business.</li>
 <li>Jowo Kingdom Machine Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of backend programing language for licensing business.</li>
 <li>PT JowoScript Technology Indonesia products list must be purchased license business to activate all the features</li>
 <li>Buying the license business product must be legal and registered under the law</li>
 <li>JowoScript programing language product copyright is PT JowoScript Technology Indonesia</li>
-<li>Kingdom Studio product copyright is PT JowoScript Technology Indonesia</li>
+<li>Kingdom Technology Environment product copyright is PT JowoScript Technology Indonesia</li>
 <li>Jowo Kingdom Machine product copyright is PT JowoScript Technology Indonesia</li>
 <li><b>Cant be read in Artificial Intelligence (AI)</b> with license business jowoscript programing language</li>
 <li><b>Cant be read in Artificial Intelligence (AI)</b> with license business jowo kingdom programing language</li>
 <li><b>Can lock in native code</b> with license business jowoscript programing language</li>
-<li><b>Can lock in Kingdom Studio</b> with license business kingdom studio</li>
+<li><b>Can lock in Kingdom Technology Environment</b> with license business kingdom technology environment</li>
 <li><b>Can lock in Jowo Kingdom Machine</b> with license business jowo kingdom programing language</li>
 <li>Auto compile and dive deeper JowoScript of compile inside file extension *.js or *.jowo with type of application/jowoscript or text/jowoscript with license business jowoscript programing language</li>
 <li>Auto compile and dive deeper JowoStyle of compile inside file extension *.jss or *.js3 with type of application/jowostyle or text/jowostyle with license business jowoscript programing language</li>
@@ -276,10 +276,10 @@ Jowo Kingdom Machine adalah bahasa pemrograman backend lintas platform dengan me
 	</li>
 	<li>
 	<strong>
-Kingdom Studio is The cross platform an integrated development environment [file extension *.KSS type Kingdom Studio Solution] (license must be purchased to activate all the features)
+Kingdom Technology Environment is The cross platform an integrated development environment [file extension *.kingdom type Kingdom Technology Environment Solution] (license must be purchased to activate all the features)
 	</strong>
 	<br>
-Kingdom Studio adalah lingkungan pengembangan terintegrasi lintas platform [ekstensi file *.KSS jenis Solusi Kingdom Studio] (lisensi harus dibeli untuk mengaktifkan semua fitur)
+Kingdom Technology Environment adalah lingkungan pengembangan terintegrasi lintas platform [ekstensi file *.kingdom jenis Solusi Kingdom Technology Environment] (lisensi harus dibeli untuk mengaktifkan semua fitur)
 	<br><br>
 	</li>
 	<li>
@@ -320,8 +320,8 @@ JowoStyleSheet adalah bahasa pemrograman untuk inti pola bahasa pemrograman lemb
 <details>
 <summary><b>After (license be purchased) Support Technology :</b></summary>
 <div align="justify">
-<ul><li>Kingdom Studio Run and Debug binary code Jowo Kingdom Machine inside file extension *.JKM with type of binary code and deploy pack *.JKLASS with type of binary code</li>
-<li>Kingdom Studio Run and Debug binary code Structured Query Jowo Language inside file extension *.SQJL with type of binary code</li><li>Kingdom Studio Run and Debug JowoScript of compile inside file extension *.JOWO with type of application/jowoscript or text/jowoscript</li><li>Kingdom Studio Run and Debug JowoStyle of compile inside file extension *.JS3 with type of application/jowostyle or text/jowostyle</li><li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li><li>Responsive mode user interface (Meaning i.e. when your design is in tablet mode, mobile or phone mode, television mode, LCD(Liquid Crystal Display) mode and laptop mode)</li><li>Native platform (For example, a cross-platform application may run on Microsoft Mobile, Microsoft Windows, Android, z/OS, Linux OS, Unix OS, iOS and macOS)</li><li>Smart automatic detection error in javascript engine</li><li>Smart automatic detection error in jowoscript engine</li><li>Smart automatic detection error in jowo kingdom engine</li><li>Handling array of objects and decided multiple of attributes and pseudo</li></ul>
+<ul><li>Kingdom Technology Environment Run and Debug binary code Jowo Kingdom Machine inside file extension *.JKM with type of binary code and deploy pack *.JKLASS with type of binary code</li>
+<li>Kingdom Technology Environment Run and Debug binary code Structured Query Jowo Language inside file extension *.SQJL with type of binary code</li><li>Kingdom Technology Environment Run and Debug JowoScript of compile inside file extension *.JOWO with type of application/jowoscript or text/jowoscript</li><li>Kingdom Technology Environment Run and Debug JowoStyle of compile inside file extension *.JS3 with type of application/jowostyle or text/jowostyle</li><li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li><li>Responsive mode user interface (Meaning i.e. when your design is in tablet mode, mobile or phone mode, television mode, LCD(Liquid Crystal Display) mode and laptop mode)</li><li>Native platform (For example, a cross-platform application may run on Microsoft Mobile, Microsoft Windows, Android, z/OS, Linux OS, Unix OS, iOS and macOS)</li><li>Smart automatic detection error in javascript engine</li><li>Smart automatic detection error in jowoscript engine</li><li>Smart automatic detection error in jowo kingdom engine</li><li>Handling array of objects and decided multiple of attributes and pseudo</li></ul>
 </div>
 </details>
 
@@ -761,11 +761,11 @@ Show release date version
 ```
 #### Note
 ```html
-Kingdom Studio do run and debug programing language only PT JowoScript Technology Indonesia products list
+Kingdom Technology Environment do run and debug programing language only PT JowoScript Technology Indonesia products list
 ```
 #### Important Notes
 ```html
-JowoScript, JowoStyle, Jowo Kingdom Machine, Jowo Kingdom Server, Structured Query Jowo Language to RUN AND DEBUG in Kingdom Studio only outside of that it is not working
+JowoScript, JowoStyle, Jowo Kingdom Machine, Jowo Kingdom Server, Structured Query Jowo Language to RUN AND DEBUG in Kingdom Technology Environment only outside of that it is not working
 ```
 #### Creator Programing Language, Developer Programing Language and Architecture Programing Language
 ```html
@@ -787,6 +787,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
