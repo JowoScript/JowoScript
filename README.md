@@ -117,6 +117,14 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
 
+### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
+#### Only work in my new programing language
+
+<img src="Only work in my new programing language.jpg" 
+     title="PT JowoScript Technology Indonesia"
+     alt="PT JowoScript Technology Indonesia"     
+     height="100%" width="100%"></img>
+	 
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
@@ -787,6 +795,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
