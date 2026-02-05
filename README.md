@@ -133,7 +133,7 @@ Other competitors emerged during the late ‘90s and early 2000s, including Oper
      height="100%" width="100%"></img>
 	 
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
-#### Dibaca modal perusahaan gue 101 rupiah karena skill gue di atas rata rata mampu buat sendiri produk. Siapapun wajib beli kalo mau beli produk gue buat
+#### Dibaca modal perusahaan gue 101 rupiah karena skill gue di atas rata rata mampu buat sendiri produk. Siapapun wajib beli kalo mau beli produk gue buat, Siapa jadi benalu di dunia kerja tidak ada kerja sama dan join perusahaan gue dulu saja di persulit soal test kerja. Bales dendam gue itu nyata
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
@@ -803,6 +803,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
