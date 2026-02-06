@@ -13,7 +13,7 @@
 	<br>
 	The checkmate forever - Selama belum beli ya nonton saja
 	<br>
-	JavaScript is many The pondation in Ai like build coloring processing, video cut, images cut and etc.
+	JavaScript is many The pondation in Ai like build coloring processing, video cut, images cut, audio cut, detection face, detection noise and etc.
 </strong>
 <br><br>
 <strong>
@@ -800,6 +800,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
