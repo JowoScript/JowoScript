@@ -13,7 +13,7 @@
 	<br>
 	The checkmate forever - Selama belum beli ya nonton saja
 	<br>
-	Teman gue di Yogyakarta tidak ada yang masalah sama gue. bermasalah persulit gue dulu test soal masuk kerja dan bullying gue kerja dan teman gue bermuka dua
+	Teman gue di Yogyakarta tidak ada yang masalah sama gue. bermasalah persulit gue dulu test soal masuk kerja dan bullying gue kerja (Big Bad Wolf 2017 surabaya) dan teman gue bermuka dua
 </strong>
 <br><br>
 <strong>
@@ -800,6 +800,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
