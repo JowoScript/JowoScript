@@ -9,9 +9,9 @@
 <div align="center">
 	
 <strong>
-	PT JowoScript Technology Indonesia - Always TOP Forever
+	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br>
-	The checkmate forever - Selama belum beli ya nonton saja
+	The checkmate forever - Selama belum beli ya nonton saja. Without JowoScript the JavaScript not perfect
 	<br>
 	JavaScript is many The foundation in artificial intelligence world like build coloring processing, video cut, images cut, audio cut, detection face, detection nose and etc. Kita lihat benalu di dunia kerja akan bermunculan terus satu persatu sesuai kata kata gue
 </strong>
@@ -800,6 +800,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
