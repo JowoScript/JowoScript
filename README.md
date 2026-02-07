@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br>
-	The checkmate forever - Selama belum beli ya nonton saja. Without JowoScript the JavaScript not perfect Thats my rules too baby hahahaha
+	The checkmate forever - Selama belum beli ya nonton saja. Without JowoScript the JavaScript not perfect
 	<br><br>
 	Bermasalah sama gue di Indonesia dan Malaysia saja selama ini hanya sedikit tidak banyak bandingkan 1 bumi
 	<br><br>
@@ -804,6 +804,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
