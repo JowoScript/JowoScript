@@ -12,12 +12,6 @@
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br>
 	The checkmate forever - Selama belum beli ya nonton saja. Without JowoScript the JavaScript not perfect
-	<br><br>
-	Bermasalah sama gue di Indonesia dan Malaysia saja selama ini hanya sedikit tidak banyak bandingkan 1 bumi
-	<br><br>
-	Contoh Teman bermuka dua, teman punya hutang, orang yg persulit gue test soal kerja dan orang yg bullying gue dulu kerja di big bad wolf tahun 2017 di surabaya
-	<br><br>
-	JavaScript is many The foundation in artificial intelligence world like build coloring processing, video cut, images cut, audio cut, detection face, detection nose and etc. Kita lihat benalu di dunia kerja akan bermunculan terus satu persatu sesuai kata kata gue
 </strong>
 <br><br>
 <strong>
@@ -796,6 +790,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
