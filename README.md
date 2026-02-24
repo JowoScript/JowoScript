@@ -20,7 +20,7 @@
 
 ### Bales dendam gue itu nyata
 <div>
-	Mampus kalian jadi robot setiap hari selama belum beli kalo saingan gue pengangguran biar mereka mati oleh persaingan karena setiap tahun nambah lulus sekolah FAKTA berdasarkan data global. Biar jurusan psikologi cari uang mampus mainin gue dulu kata nya pintar terbukti siapa goblok jadi mainan gue. Kita lihat trader losse profit terus hahahahaha
+	Mampus kalian jadi robot setiap hari selama belum beli kalo saingan gue pengangguran biar mereka mati oleh persaingan karena setiap tahun nambah lulus sekolah FAKTA berdasarkan data global. Biar jurusan psikologi cari uang mampus mainin gue dulu kata nya pintar terbukti siapa goblok jadi mainan gue. Kita lihat trader dan investor losse profit terus hahahahaha
 </div>
 
 ### Curhat gue ya
@@ -798,6 +798,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
