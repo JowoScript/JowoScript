@@ -18,12 +18,17 @@
 </div>
 </div>
 
-### Muhammad Nurcahyo Pratomo Intro Small talk of Law
+### Curhat gue ya
 <div>
-	Gue bukan jurusan psikologi di kasih soal test psikotest siapa yang goblok sebenarnya ? Jurusan Psikologi di kasih soal IT juga pasti mampus atau di kasih soal hukum juga pasti mampus. Jurusan hukum di kasih soal psikotest juga stress di akhir bukan jurusannya. Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat dimanapun negaranya atau pemerintah</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. Selama belum beli dan selama gue belum nerima uangnya lihat ekonomi dunia goyang like baby. The checkmate forever 
+	Gue bukan jurusan psikologi di kasih soal test psikotest siapa yang goblok sebenarnya ? Jurusan Psikologi di kasih soal IT juga pasti mampus atau di kasih soal hukum juga pasti mampus. Jurusan hukum di kasih soal psikotest juga stress di akhir bukan jurusannya. Biar jadi ayam selamanya yang persulit gue dulu mampus mati terhina di dunia dan akhirat. 
 </div>
 
-### Muhammad Nurcahyo Pratomo Intro Small talk
+### Muhammad Nurcahyo Pratomo Intro Small talk of Law
+<div>
+	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat dimanapun negaranya atau pemerintah</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. Selama belum beli dan selama gue belum nerima uangnya lihat ekonomi dunia goyang like baby. The checkmate forever 
+</div>
+
+### Muhammad Nurcahyo Pratomo Inytro Small talk
 <div>
 	Selama dari tahun 2021 sampai sekarang belum ada yang beli produk gue buat dan tidak menerima uangnya juga dan gue tidak merugikan negara juga selama ini. Siapa yang korupsi dan benalu di dunia kerja juga bukan gue selama ini. <b>Gue saja di buat nganggur 10 tahun lebih dan bales dendam gue bakal kenyataan siapa jadi parasit dan benalu selama ini di dunia kerja juga bukan gue terlihat ya dan skill coding di bawah gue juga pasti end game apa lagi baru lulus sekolah banyak gaya depan gue jadi mainan gue.</b> Mau di beli atau tidak gue tetap stay cool, hidup apa apa serba ada itu beda. Orang yang hina gue miskin itu level gue lebih tinggi ya dan gue tidak perlu korupsi ya di akhir gue juga akan sangat kaya raya harga produk gue saja bisa di lihat ya. Perusahaan mana lagi tidak berguna dan pailit bayar hutang ya. Mereka terima gaji dan tunjangan juga sama saja ya selama ini mereka bisa kaya dari situ dan semua butuh hasil kerja juga ya dan jika tidak ada hasil kerjanya semua itu ada audit keuangan ya, tidak ada hasil kerja juga termasuk penggelapan keuangan dan siapa yang masuk penjara juga bukan gue. Beda caranya saja ya siapa yang tumbang bukan gue.
 	<b>Gue ungkit waktu dulu gue butuh cari kerja apa relasi berguna ? tidak berguna relasi itu</b>. fakta dan bukan fitnah saksinya Allah jika Allah langsung jadi saksi dan doa kalian tidak ada artinya dan Allah maha mengetahui segalanya. Setiap tahun lulusan sekolah nambah sesuai prediksi gue jadi santai gue ya dan gue yang buat bahasa program baru semua ada di otak gue sendiri ya. Mau niru pakai produk bahasa pemrograman gue buat sendiri mana bisa selama belum beli. <b>Teman bermuka dua dan musuh gue selama masih hidup tidak akan gue izinkan siapun boleh beli. Harus mati dengan bukti nyata (Mati terhina di dunia dan akhirat dan masuk neraka abadi sangat mulus janji allah).</b> Fisik mudah di bentuk tapi mental dan intelektual susah di bentuk. Buat aplikasi Ai semua hasilnya sama semua hanya beda brand atau merek atau logo saja, pengalaman pribadi gue lebih banyak dari kalian paham. Aplikasi Ai tetap gemini pemenang brandnya karena google search engine integrasi dengan gemini di balik layarnya.
@@ -788,6 +793,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
