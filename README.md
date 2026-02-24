@@ -18,6 +18,11 @@
 </div>
 </div>
 
+### Bales dendam gue itu nyata
+<div>
+	Mampus kalian jadi robot setiap hari selama belum beli kalo saingan gue pengangguran biar mereka mati oleh persaingan karena setiap tahun nambah lulus sekolah FAKTA berdasarkan data global
+</div>
+
 ### Curhat gue ya
 <div>
 	Gue bukan jurusan psikologi di kasih soal test psikotest siapa yang goblok sebenarnya ? Jurusan Psikologi di kasih soal IT juga pasti mampus atau di kasih soal hukum juga pasti mampus. Jurusan hukum di kasih soal psikotest juga stress di akhir bukan jurusannya. Biar jadi ayam selamanya yang persulit gue dulu mampus mati terhina di dunia dan akhirat cari uang sana mampus siapa jadi benalu di dunia kerja kalo kerjaan hanya input data dan urus pajak karyawan dan kantor jurusan hukum juga bisa kerjainnya merem malah karena mudah kerjaannya tidak perlu jurusan psikologi 
@@ -793,6 +798,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
