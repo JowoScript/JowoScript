@@ -10,6 +10,8 @@
 	
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
+	<br>
+	Kita lihat benalu di dunia kerja pemerintahaan dan swasta akan bermunculan satu satu
 </strong>
 <br><br>
 <strong>
@@ -798,6 +800,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
