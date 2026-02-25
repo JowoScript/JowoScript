@@ -13,23 +13,7 @@
 	<br>
 	Kita lihat benalu di dunia kerja pemerintahaan dan swasta akan bermunculan satu satu
 	<br>
-	Apakah badai PHK masih berlajut tentu pegang omongan gue
-	<br><br><br>
-	Dalam otak mimpiku di takdirkan sujud seorang diri di depan kursi allah swt dan melihat ke bawah semua isi alama semesta dari langit 1 - 7 apa itu isi otak mimpi yang benar. I dont know 
-	<br>(Termasuk isi keluarga besar dari ibu dan ayah ku ada yang masuk surga dan neraka) sesungguhnya saya melihat neraka itu lebih luas dari pada surga dan surga lebih tenang dari pada neraka. Dan melihat musuh musuhku pada masuk neraka hahahahaha siapa suka merusak diriku mereka musuhku dan abadi di neraka musuh musuhku
-	<br><br>
-	Apakah Allah swt menciptakan ruang waktu untuk melihat masa depan ? I dont know
-	<br><br>
-	Setelah aku mati di tempatkan di mana di ruangan khusus yang sunyi dan enak sampai semua di hisab dan kembali sujud depan kursi allah swt untuk melihat semua isinya termasuk semua musuhku yang gue kenal hahahaha
-	<br><br><br>
-	Gimana para nabi nabi itu sudah di takdirkan setiap langitnya untuk mereka sendiri dan surga sendiri di temankan oleh malaikat (tidak akan kesepian dan setiap nabi akan senang selalu dan bisa merintahkan malaikat untuk jalan jalan menemui keluarganya atau yang nabi kehendak kecuali arsy malaikat tidak akan mampu naik sendiri) bukan di temankan keluarganya apa lagi bidadari surga cantik tidak ada dan nabi di takdirkan bersyukur selalu tidak protes karena setiap nabi sudah melihat isi neraka
-	<br><br><br>
-	Nanti kalian akan paham gimana di hisab kalian sendiri bukan sama keluargamu dan kalian akan panik disitu sendiri di ruangan sendiri dan 2 malaikat menimbang kalian dan seluruh tubuhmu akan bicara sendiri ngeri bukan dan tubuhmu tidak berbohong, tidak masuk logika dan malaikat tidak akan melihatmu hanya melihat timbanganmu sendiri.
-	<br><br>Musuh gue kenal akan saya sendiri lansung kasih salam gimana rasanya timbangan itu dan kamu hanya mendengar salam kata kata ku saja dan kalian hanya bisa maki maki di akhir hahahaha tetap saya tidak akan mendengarnya itu enaknya hanya senang melihatmu saja masuk neraka abadi hahahahaha
-	<br><br>
-	Apa saya bisa menolong keluarga ibu dan bapak jika masuk neraka pindah ke surga yang lebih baik ? hanya allah swt yang punya kuasa itu rahasia
-	<br><br>
-	Gimana orang masuk surga percayalah kalian akan senang di dampingkan malaikat semua bisa di wujudkan dari makanan dan minuman dan rumah atau tempat tidur yang enak kalian akan lupa segalanya karena senang tapi kalian tidak bisa ketemu nabi tanpa izin nabi itu sendiri dan jumlah nabi itu juga banyak ya dan hanya sedikit menerima wahyu. diriku sendiri yang akan ketemu nabi tanpa izin nabi itu sendiri setelah itu untuk perkenalan diri dari rahmatnya maha esa dan setiap nabi akan mengerti dari perjalanan masing masing kehidupan
+	Apakah badai PHK masih berlajut tentu pegang omongan gue	
 </strong>
 <br><br>
 <strong>
@@ -813,6 +797,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
