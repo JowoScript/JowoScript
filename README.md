@@ -16,6 +16,8 @@
 	sendiri gue buat produk bandingkan yang ramai ramai
 	<br>
 	Tanpa Teknologi Informasi sistem pemerintahaan akan hancur apapun jenis nama negaranya
+	<br>
+	Dalam otak mimpiku di takdirkan sujud seorang diri di depan kursi allah swt dan melihat bawah semua isi alama semesta dari langit 1 - 7
 </strong>
 <br><br>
 <strong>
@@ -804,6 +806,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
