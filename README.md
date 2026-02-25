@@ -14,6 +14,8 @@
 	Kita lihat benalu di dunia kerja pemerintahaan dan swasta akan bermunculan satu satu
 	<br>
 	sendiri gue buat produk bandingkan yang ramai ramai
+	<br>
+	Tanpa industri IT sistem pemerintahaan akan hancur
 </strong>
 <br><br>
 <strong>
@@ -802,6 +804,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
