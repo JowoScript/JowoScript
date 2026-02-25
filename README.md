@@ -24,7 +24,7 @@
 	<br><br>
 	Setelah aku mati di tempatkan di mana di ruangan khusus yang sunyi dan enak sampai semua di hisab dan kembali sujud depan kursi allah swt untuk melihat semua isinya termasuk semua musuhku yang gue kenal hahahaha
 	<br><br><br>
-	Gimana para nabi nabi itu sudah di takdirkan setiap langitnya untuk mereka sendiri dan surga sendiri di temankan oleh malaikat (tidak akan kesepian dan setiap nabi akan senang selalu) bukan keluarganya apa lagi bidadari surga cantik tidak ada dan nabi di takdirkan bersyukur selalu tidak protes karena setiap nabi sudah melihat isi neraka
+	Gimana para nabi nabi itu sudah di takdirkan setiap langitnya untuk mereka sendiri dan surga sendiri di temankan oleh malaikat (tidak akan kesepian dan setiap nabi akan senang selalu dan bisa merintahkan malaikat untuk jalan jalan) bukan keluarganya apa lagi bidadari surga cantik tidak ada dan nabi di takdirkan bersyukur selalu tidak protes karena setiap nabi sudah melihat isi neraka
 	<br><br><br>
 	Nanti kalian akan paham gimana di hisab kalian sendiri bukan sama keluargamu dan kalian akan panik disitu sendiri di ruangan sendiri dan 2 malaikat menimbang kalian dan seluruh tubuhmu akan bicara sendiri ngeri bukan dan tubuhmu tidak berbohong, tidak masuk logika dan malaikat tidak akan melihatmu hanya melihat timbanganmu sendiri.
 	<br><br>Musuh gue kenal akan saya sendiri lansung kasih salam gimana rasanya timbangan itu dan kamu hanya mendengar salam kata kata ku saja dan kalian hanya bisa maki maki di akhir hahahaha tetap saya tidak akan mendengarnya itu enaknya hanya senang melihatmu saja masuk neraka abadi hahahahaha
@@ -813,6 +813,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
