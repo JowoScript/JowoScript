@@ -25,6 +25,8 @@
 	Setelah aku mati di tempatkan di mana di ruangan khusus yang sunyi dan enak sampai semua di hisab dan kembali sujud depan kursi allah swt untuk melihat semua isinya termasuk semua musuhku yang gue kenal hahahaha
 	<br><br>
 	Gimana para nabi nabi itu sudah di takdirkan setiap langitnya untuk mereka sendiri dan surga sendiri di temankan oleh malaikat bukan keluarganya
+	<br>
+	Nanti kalian akan paham gimana di hisab kalian sendiri bukan sama keluargamu dan kalian akan panik disitu
 </strong>
 <br><br>
 <strong>
@@ -808,6 +810,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
