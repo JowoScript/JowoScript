@@ -13,6 +13,8 @@
 	<br>
 	Kita lihat benalu di dunia kerja pemerintahaan dan swasta akan bermunculan satu satu
 	<br>
+	Apakah badai PHK masih berlajut tentu pegang omongan gue
+	<br>
 	sendiri gue buat produk bandingkan yang ramai ramai
 	<br>
 	Tanpa Teknologi Informasi sistem pemerintahaan akan hancur apapun jenis nama negaranya
@@ -815,6 +817,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
