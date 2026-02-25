@@ -21,6 +21,8 @@
 	<br>(Termasuk isi keluarga besar dari ibu dan ayah ku ada yang masuk surga dan neraka) sesungguhnya saya melihat neraka itu lebih luas dari pada surga dan surga lebih tenang dari pada neraka. Dan melihat musuh musuhku pada masuk neraka hahahahaha siapa suka merusak diriku mereka musuhku dan abadi di neraka musuh musuhku
 	<br><br>
 	Apakah Allah swt menciptakan ruang waktu untuk melihat masa depan ? I dont know
+	<br><br>
+	Setelah aku mati di tempatkan di mana di ruangan khusus yang sunyi dan enak
 </strong>
 <br><br>
 <strong>
@@ -804,6 +806,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
