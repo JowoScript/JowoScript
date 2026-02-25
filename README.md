@@ -18,7 +18,7 @@
 	Tanpa Teknologi Informasi sistem pemerintahaan akan hancur apapun jenis nama negaranya
 	<br><br><br>
 	Dalam otak mimpiku di takdirkan sujud seorang diri di depan kursi allah swt dan melihat ke bawah semua isi alama semesta dari langit 1 - 7 apa itu isi otak mimpi yang benar. I dont know 
-	<br>(Termasuk isi keluarga besar dari ibu dan ayah ku ada yang masuk surga dan neraka) sesungguhnya saya melihat neraka itu lebih luas dari pada surga dan surga lebih tenang dari pada neraka. Dan melihat musuh musuhku pada masuk neraka hahahahaha siapa suka merusak diriku termasuk musuhku dan abadi di neraka musuh musuhku
+	<br>(Termasuk isi keluarga besar dari ibu dan ayah ku ada yang masuk surga dan neraka) sesungguhnya saya melihat neraka itu lebih luas dari pada surga dan surga lebih tenang dari pada neraka. Dan melihat musuh musuhku pada masuk neraka hahahahaha siapa suka merusak diriku mereka musuhku dan abadi di neraka musuh musuhku
 	<br><br>
 	Apakah Allah swt menciptakan ruang waktu untuk melihat masa depan ? I dont know
 </strong>
@@ -804,6 +804,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
