@@ -26,7 +26,7 @@
 	<br><br>
 	Gimana para nabi nabi itu sudah di takdirkan setiap langitnya untuk mereka sendiri dan surga sendiri di temankan oleh malaikat bukan keluarganya
 	<br>
-	Nanti kalian akan paham gimana di hisab kalian sendiri bukan sama keluargamu dan kalian akan panik disitu sendiri di ruangan sendiri dan 2 malaikat menimbang kalian
+	Nanti kalian akan paham gimana di hisab kalian sendiri bukan sama keluargamu dan kalian akan panik disitu sendiri di ruangan sendiri dan 2 malaikat menimbang kalian dan seluruh tubuhmu akan bicara sendiri ngeri bukan
 </strong>
 <br><br>
 <strong>
@@ -810,6 +810,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
