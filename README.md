@@ -68,7 +68,7 @@
 	<li>SMK Media Informatika (guru) guru bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa guru bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri | mainin gue dalam membuat RPP)</li>
 	<li>Kementerian Pendidikan Tinggi, Sains, dan Teknologi Indonesia (Dosen Oknum) Dosen bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa dosen bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
 	<li>Heitech Padu Berhard (Bullying gue lewat medsos ya dengan kaki bawahaan mu, Jangan pernah cari masalah sama gue lihat sudah banyak tumbang)</li>
-	<li>Apapun alesannya test psikotest semua masuk blacklist gue kalian sudah merugikan banyak jurusan, orang bukan jurusan psikologi di kasih soal test psikotest siapa yang goblok sebenarnya ? Jurusan psikologi di kasih soal jurusan kedokteran bisa jawab tidak atau kasih soal jurusan hukum atau kasih soal jurusan IT. Orang psikologi  paham artinya linier tidak dalam bidang jurusan ? tanya pakar professor di universitas</li>
+	<li>Apapun alesannya test psikotest semua masuk blacklist gue kalian (jurusan psikologi) sudah merugikan banyak jurusan, orang bukan jurusan psikologi di kasih soal test psikotest siapa yang goblok sebenarnya ? Jurusan psikologi di kasih soal jurusan kedokteran bisa jawab tidak atau kasih soal jurusan hukum atau kasih soal jurusan IT. Orang psikologi  paham artinya linier tidak dalam bidang jurusan ? tanya pakar professor di universitas</li>
 </ol>
 </div>
 
@@ -802,6 +802,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
