@@ -17,7 +17,7 @@
 	<br>
 	Tanpa Teknologi Informasi sistem pemerintahaan akan hancur apapun jenis nama negaranya
 	<br><br><br>
-	Dalam otak mimpiku di takdirkan sujud seorang diri di depan kursi allah swt dan melihat ke bawah semua isi alama semesta dari langit 1 - 7 apa itu isi otak mimpi yang benar. I dont know
+	Dalam otak mimpiku di takdirkan sujud seorang diri di depan kursi allah swt dan melihat ke bawah semua isi alama semesta dari langit 1 - 7 apa itu isi otak mimpi yang benar. I dont know (Termasuk isi keluarga besar ku ada yang masuk surga dan neraka)
 </strong>
 <br><br>
 <strong>
@@ -806,6 +806,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
