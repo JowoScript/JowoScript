@@ -23,6 +23,8 @@
 	Apakah Allah swt menciptakan ruang waktu untuk melihat masa depan ? I dont know
 	<br><br>
 	Setelah aku mati di tempatkan di mana di ruangan khusus yang sunyi dan enak sampai semua di hisab dan kembali sujud depan kursi allah swt untuk melihat semua isinya termasuk semua musuhku yang gue kenal hahahaha
+	<br><br>
+	Gimana para nabi nabi itu sudah di takdirkan setiap langitnya untuk mereka sendiri dan surga sendiri
 </strong>
 <br><br>
 <strong>
@@ -806,6 +808,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
