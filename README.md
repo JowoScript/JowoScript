@@ -31,7 +31,7 @@
 	<br><br>
 	Apa saya bisa menolong keluarga ibu dan bapak jika masuk neraka pindah ke surga yang lebih baik ? hanya allah swt yang punya kuasa itu rahasia
 	<br><br>
-	Gimana orang masuk surga percayalah kalian akan senang di dampingkan malaikat semua bisa di wujudkan dari makanan dan minuman dan rumah atau tempat tidur yang enak kalian akan lupa segalanya karena senang tapi kalian tidak bisa ketemu nabi tanpa izin nabi itu sendiri dan jumlah nabi itu juga banyak ya dan hanya sedikit menerima wahyu. diriku sendiri yang akan ketemu nabi setelah itu untuk perkenalan diri dari rahmatnya maha esa dan setiap nabi akan mengerti 
+	Gimana orang masuk surga percayalah kalian akan senang di dampingkan malaikat semua bisa di wujudkan dari makanan dan minuman dan rumah atau tempat tidur yang enak kalian akan lupa segalanya karena senang tapi kalian tidak bisa ketemu nabi tanpa izin nabi itu sendiri dan jumlah nabi itu juga banyak ya dan hanya sedikit menerima wahyu. diriku sendiri yang akan ketemu nabi setelah itu untuk perkenalan diri dari rahmatnya maha esa dan setiap nabi akan mengerti dari perjalanan masing masing kehidupan
 </strong>
 <br><br>
 <strong>
@@ -815,6 +815,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
