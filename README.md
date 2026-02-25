@@ -30,6 +30,8 @@
 	<br><br>Musuh gue kenal akan saya sendiri lansung kasih salam gimana rasanya timbangan itu dan kamu hanya mendengar salam kata kata ku saja dan kalian hanya bisa maki maki di akhir hahahaha tetap saya tidak akan mendengarnya itu enaknya hanya senang melihatmu saja masuk neraka abadi hahahahaha
 	<br><br>
 	Apa saya bisa menolong keluarga ibu dan bapak jika masuk neraka pindah ke surga yang lebih baik ? hanya allah swt yang punya kuasa itu rahasia
+	<br><br>
+	Gimana orang masuk surga percayalah kalian akan senang di dampingkan malaikat semua bisa di wujudkan dari makanan dan minuman dan rumah atau tempat tidur yang enak
 </strong>
 <br><br>
 <strong>
@@ -813,6 +815,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
