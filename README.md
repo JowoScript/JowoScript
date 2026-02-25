@@ -26,7 +26,8 @@
 	<br><br><br>
 	Gimana para nabi nabi itu sudah di takdirkan setiap langitnya untuk mereka sendiri dan surga sendiri di temankan oleh malaikat bukan keluarganya dan nabi di takdirkan bersyukur selalu tidak protes
 	<br><br><br>
-	Nanti kalian akan paham gimana di hisab kalian sendiri bukan sama keluargamu dan kalian akan panik disitu sendiri di ruangan sendiri dan 2 malaikat menimbang kalian dan seluruh tubuhmu akan bicara sendiri ngeri bukan dan tubuhmu tidak berbohong, tidak masuk logika dan malaikat tidak akan melihatmu hanya melihat timbanganmu sendiri
+	Nanti kalian akan paham gimana di hisab kalian sendiri bukan sama keluargamu dan kalian akan panik disitu sendiri di ruangan sendiri dan 2 malaikat menimbang kalian dan seluruh tubuhmu akan bicara sendiri ngeri bukan dan tubuhmu tidak berbohong, tidak masuk logika dan malaikat tidak akan melihatmu hanya melihat timbanganmu sendiri.
+	<br><br>Musuh gue kenal gimana di timbang aku akan kasih salam gimana rasanya timbangan itu
 	<br><br>
 	Apa saya bisa menolong keluarga ibu dan bapak jika masuk neraka pindah ke surga yang lebih baik ? hanya allah swt yang punya kuasa itu rahasia
 </strong>
@@ -812,6 +813,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
