@@ -32,7 +32,7 @@
 	<br><br>
 	Siapa di rugikan selama ini semua jurusan kecuali psikologi itu kesimpulannya gue, karena setiap cabang keiluman jurusan mempelajari masing masing bidangnya atau gue sebut linier (garis lurus). Paham sampai sini. Listen if translate google indonesia to english wrong that's your suffering
 	<br><br>
-	Who has been harmed so far by all majors except psycholog That's my conclusion, because each branch of science studies its own field, or what I call a linear (straight line). Understand up to this point. Listen, if Google translates Indonesian into English incorrectly, that's your suffering.
+	Who has been harmed so far by all majors except psycholog That's my conclusion, because each branch of science studies its own field, or what I call a linear (straight line). Understand up to this point. Listen, if Google translates Indonesian except English incorrectly, that's your suffering.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law
@@ -805,6 +805,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
