@@ -11,11 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br>
-	Kita lihat benalu di dunia kerja pemerintahaan dan swasta akan bermunculan satu satu
-	<br>
-	Apakah badai PHK masih berlajut tentu pegang omongan gue
-	<br>
-	what is my favorite drink ? water and coffee. simple but enjoy
+	Firefox and Chrome is difference machine but my new programing language can walking 2 machine
 </strong>
 <br><br>
 <strong>
@@ -805,6 +801,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
