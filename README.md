@@ -14,6 +14,8 @@
 	Firefox and Chrome is difference machine but my new programing language can walking 2 machine
 	<br>
 	Which other Indonesian, Japan, China, Englend, USA, Canada, Russian, India and Malaysian companies will close ?
+	<br>
+	Jurusan Psikologi bakal gue buat malu habis habisan
 </strong>
 <br><br>
 <strong>
@@ -803,6 +805,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
