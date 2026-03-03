@@ -209,7 +209,7 @@
 <li>Whatever type of cryptocurrency is strictly prohibited and into blacklist, go back to point number 1 and point number 7</li>
 <li>Money laundering is strictly prohibited, go back to point number 1 and point number 7</li>
 <li>Whatever the type of music and video, everything is regulated in the provision of services for each application and does not violate copyright, returning to point number 1 and point number 7</li>
-<li><b>Minimum age required to be 18 years old in using programming language code and can use good logic</b>, back to point point number 7</li>
+<li><b>Minimum age required to be 18 years old in using programming language code and can use good logic algorithms</b>, back to point point number 7</li>
 <li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
 <li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
 <li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 1 and point number 7</li>
@@ -808,6 +808,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
