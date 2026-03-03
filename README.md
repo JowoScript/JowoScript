@@ -192,7 +192,7 @@
 <div align="justify">
 <ol>
 <li>All types of psychometric test questions should be eliminated as a requirement for entering the workforce or of kind</li>
-<li>Minimum bachelor's degree in line with the field of study if you want to enter the police and military institutions. Examples of the majors in question include law, information technology, medicine, criminology, and economics.</li>
+<li>Minimum bachelor's degree in line with the field of study if you want to enter the police and military institutions. Examples of the majors in question include law, information technology, medicine, criminology, and economics exception Aviation (for air military special).</li>
 <li>The government is strictly prohibited from waging war between countries except to combat gambling sites, narcotics, corruption and the like</li>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
 <li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time, back to point number 7 and Only the local currency of your country of residence is allowed to purchase my products, back to point number 7. This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)</li>
@@ -808,6 +808,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
