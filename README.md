@@ -198,30 +198,30 @@
 <li>Minimum bachelor's degree in line with the field of study if you want to enter the police and military institutions. Examples of the majors in question include law, information technology, medicine, and economics exception Aviation (for air military special).</li>
 <li>The government is strictly prohibited from waging war between countries except to combat gambling sites, narcotics, corruption and the like</li>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
-<li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time, back to point number 7 and Only the local currency of your country of residence is allowed to purchase my products, back to point number 7. This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)</li>
-<li>Sites that contain pornography and immorality are strictly prohibited, back to point number 7 (Website or app users must be 20+ for adult content movie warnings)</li>
-<li>Gambling sites are strictly prohibited, back to point number 1 and point number 7</li>
-<li>Terrorism sites are strictly prohibited, back to point number 1 and point number 7</li>
-<li>User strictly prohibited as an instrument of crime, back to point number 1 and point number 7</li>
+<li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time and Only the local currency of your country of residence is allowed to purchase my products. This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)</li>
+<li>Sites that contain pornography and immorality are strictly prohibited (Website or app users must be 20+ for adult content movie warnings)</li>
+<li>Gambling sites are strictly prohibited</li>
+<li>Terrorism sites are strictly prohibited</li>
+<li>User strictly prohibited as an instrument of crime</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
 <li>Muhammad Nurcahyo Pratomo cannot be sued by any party, including the government, if it is detrimental to Muhammad Nurcahyo Pratomo, as stated in point number 7</li>
 <li>Muhammad Nurcahyo Pratomo  has the right to blacklist if there are individuals problem for me</li>
 <li>Muhammad Nurcahyo Pratomo and familys has the right to blacklist government agencies if there are individuals who threaten and make things difficult for me</li>
 <li>Muhammad Nurcahyo Pratomo and familys has the right to blacklist company agencies if there are individuals who threaten and make things difficult for me</li>
 <li>Muhammad Nurcahyo Pratomo has the right to create global native code and strict code in bytecode form with a valid commercial license in the field of science with new programing language and old programing language</li>
-<li>Whatever type of cryptocurrency is strictly prohibited and into blacklist, go back to point number 1 and point number 7</li>
-<li>Money laundering is strictly prohibited, go back to point number 1 and point number 7</li>
-<li>Whatever the type of music and video, everything is regulated in the provision of services for each application and does not violate copyright, returning to point number 1 and point number 7</li>
-<li><b>Minimum age required to be 18 years old in using programming language code and can use good logic algorithms</b>, back to point point number 7</li>
-<li>Price tag that has been applied cannot be contested by any party, either in the future or now, back to point number 7</li>
-<li>Alcohol or intoxicating drinks sites are strictly prohibited, back to point number 7</li>
-<li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc), back to point number 1 and point number 7</li>
-<li>Must have a legality flag that is a legal entity, back to point number 1 and point number 7</li>
-<li>It is strictly prohibited for weapons of war such as politics, crime and kindly, back to point number 1 and point number 7</li>
-<li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) people from indentiy (Indonesia and Malaysia) are MUST DIE FIRST and there must be EVIDENCE OF THE BODY, back to point number 7</li>
-<li>The company (Indonesia and Malaysia) that had problems with Muhammad Nurchayo Pratomo was the entrance test and etc before are strictly prohibited from obtaining licenses forever. back to point number 7 (i have big data private so no can lie)</li>
-<li>Friends people (example playmates or school or work) and two-faced friend (good in front but rotten behind) (Indonesia and Malaysia) They can hide from Muhammad Nurcahyo Pratomo but can't be lie in the out and people (Indonesia and Malaysia) who have problems with Muhammad Nurchayo Pratomo are MUST DIE FIRST and there must be EVIDENCE OF THE BODY.  Even if the problematic friend works for a government agency, the same rules apply to that agency. back to point number 7</li>
-<li>Especially for those who insert sound into music in Disc Jockey (DJ) and the conclusion is that the sound is changed into music to curse and be alone, the perpetrator MUST DIE FIRST and there must be EVIDENCE OF THE BODY if there is a company or government that wants to buy the license. Life is a choice. Rules are rules. If you dare to insult and curse by inserting sound into music, it means you have to dare to take risks. There must be proof of death of the perpetrator who made the music insert all this time. back to point number 7</li>
+<li>Whatever type of cryptocurrency is strictly prohibited and into blacklist</li>
+<li>Money laundering is strictly prohibited</li>
+<li>Whatever the type of music and video, everything is regulated in the provision of services for each application and does not violate copyright</li>
+<li><b>Minimum age required to be 18 years old in using programming language code and can use good logic algorithms</b></li>
+<li>Price tag that has been applied cannot be contested by any party, either in the future or now</li>
+<li>Alcohol or intoxicating drinks sites are strictly prohibited</li>
+<li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc)</li>
+<li>Must have a legality flag that is a legal entity</li>
+<li>It is strictly prohibited for weapons of war such as politics, crime and kindly</li>
+<li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) people from indentiy (Indonesia and Malaysia) are MUST DIE FIRST and there must be EVIDENCE OF THE BODY</li>
+<li>The company (Indonesia and Malaysia) that had problems with Muhammad Nurchayo Pratomo was the entrance test and etc before are strictly prohibited from obtaining licenses forever</li>
+<li>Friends people (example playmates or school or work) and two-faced friend (good in front but rotten behind) (Indonesia and Malaysia) They can hide from Muhammad Nurcahyo Pratomo but can't be lie in the out and people (Indonesia and Malaysia) who have problems with Muhammad Nurchayo Pratomo are MUST DIE FIRST and there must be EVIDENCE OF THE BODY.  Even if the problematic friend works for a government agency, the same rules apply to that agency.</li>
+<li>Especially for those who insert sound into music in Disc Jockey (DJ) and the conclusion is that the sound is changed into music to curse and be alone, the perpetrator MUST DIE FIRST and there must be EVIDENCE OF THE BODY if there is a company or government that wants to buy the license. Life is a choice. Rules are rules. If you dare to insult and curse by inserting sound into music, it means you have to dare to take risks. There must be proof of death of the perpetrator who made the music insert all this time.</li>
 <li>Registered trademark products of PT JowoScript Technology Indonesia</li>
 <li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
 </ol>
@@ -231,7 +231,7 @@
 <div align="justify">
 <ol>
 <li>Must follow and obey basic regulatory requirements in registration license agreement</li>
-<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker by Muhammad Nurcahyo Pratomo and a lawyer or legal entity, back to point number 1 and point number 7</li>
+<li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker by Muhammad Nurcahyo Pratomo and a lawyer or legal entity</li>
 <li>Must have a legality flag that is a legal entity</li>
 <li>Must have a domain name server live as your legality flag name masters (example of a live universal domain is *.gov.your name of goverment or any domain)</li>
 <li>Technology remains in end to end encryption</li>
@@ -243,11 +243,11 @@
 ### Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
 <div align="justify">
 <ol>
-<li>Will deal with the laws in force in the country where you live or jail the future, back to point number 1</li>
+<li>Will deal with the laws in force in the country where you live or jail the future</li>
 <li>Lawyers, police and prosecutors will act to prosecute existing violations cannot be contested by any party, either in the future or now</li>
-<li>Gambling The minimum fine for violation is the minimum price of the license purchased cannot be contested by any party, either in the future or now, back to point number 7</li>
-<li>Case studies on the inability to pay the minimum fine for violations will be submitted to existing laws, both based on the legal basis in force in the country where you live and cannot be challenged by any party, back to point number 1 and point number 7</li>
-<li>Payment of fines is made by both parties witnessed by the court and and lawyers or prosecutors or legal entities, back to point number 1 and number 7</li>
+<li>Gambling The minimum fine for violation is the minimum price of the license purchased cannot be contested by any party, either in the future or now</li>
+<li>Case studies on the inability to pay the minimum fine for violations will be submitted to existing laws, both based on the legal basis in force in the country where you live and cannot be challenged by any party</li>
+<li>Payment of fines is made by both parties witnessed by the court and and lawyers or prosecutors or legal entities</li>
 </ol>
 </div>
 
@@ -811,6 +811,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
