@@ -191,6 +191,7 @@
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
 <ol>
+	<li>Muhammad Nurcahyo Pratomo is tax-free from the government and invansion</li>
 	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo</li>
 	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiah.</li>
 <li>All types of psychometric test questions should be must eliminated as a requirement for entering the workforce or of kind</li>
@@ -810,6 +811,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
