@@ -191,6 +191,7 @@
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
 <ol>
+	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiah.</li>
 <li>All types of psychometric test questions should be must eliminated as a requirement for entering the workforce or of kind</li>
 <li>Minimum bachelor's degree in line with the field of study if you want to enter the police and military institutions. Examples of the majors in question include law, information technology, medicine, and economics exception Aviation (for air military special).</li>
 <li>The government is strictly prohibited from waging war between countries except to combat gambling sites, narcotics, corruption and the like</li>
@@ -808,6 +809,7 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 ```html
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
+
 
 
 
