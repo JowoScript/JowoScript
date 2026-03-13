@@ -11,11 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br>
-	Firefox and Chrome is difference machine but my new programing language can walking 2 machine
-	<br>
-	Which other Indonesian, Japan, China, Englend, USA, Canada, Russian, India and Malaysian companies will close ?
-	<br>
-	Jurusan Psikologi bakal gue buat malu habis habisan
+	orang salah translate bicara di luar negeri kalian sendiri akan mati bukan gue
 </strong>
 <br><br>
 <strong>
