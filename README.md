@@ -41,7 +41,7 @@
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) 
 <div align="justify">
 <ol>
-	<li>Cryptocurrency (see point number 2)</li>
+	<li>Cryptocurrency</li>
 	<li>Holywings Group</li>
 	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja pada tahun 2017 di Surabaya) Must die too siapa bullying gue dulu waktu kerja di surabaya. Pak Amir suruh buka suara sana saksi hidup dan chat wa group</li>
 	<li>Penta Group Indonesia</li>
@@ -57,7 +57,6 @@
 	<li>Transcorp (PT Trans Corpora) (see point number 22 / mainin gue lewat test masuk kerja | Semua perusahaan gue datengin pasti gue catat)</li>
 	<li>SMK Media Informatika (guru) guru bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa guru bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri | mainin gue dalam membuat RPP)</li>
 	<li>Kementerian Pendidikan Tinggi, Sains, dan Teknologi Indonesia (Dosen Oknum) Dosen bermasalah sama gue kalo kena pecat jadi pengangguran gampangkan bisa apa dosen bermasalah sama gue, bisa berdiri sendiri seperti gue (yang lemah dan kuat akan terlihat ketika sendiri)</li>
-	<li>Heitech Padu Berhard (Bullying gue lewat medsos ya dengan kaki bawahaan mu, Jangan pernah cari masalah sama gue lihat sudah banyak tumbang)</li>
 	<li>Apapun alesannya test psikotest semua masuk blacklist gue kalian (jurusan psikologi) sudah merugikan banyak jurusan, orang bukan jurusan psikologi di kasih soal test psikotest siapa yang goblok sebenarnya ? Jurusan psikologi di kasih soal jurusan kedokteran bisa jawab tidak atau kasih soal jurusan hukum atau kasih soal jurusan IT. Orang psikologi  paham artinya linier tidak dalam bidang jurusan ? tanya pakar professor di universitas</li>
 	<li>Sekolah Al-Hikmah petukangan selatan. music suara siapa di kita gue tidak tau</li>
 </ol>
