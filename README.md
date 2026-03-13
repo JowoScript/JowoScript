@@ -13,7 +13,7 @@
 	<br><br>
 	orang indonesia atau melayu salah translate bicara di luar negeri kalian sendiri akan bermasalah bukan gue
 	<br>Contoh gue bicara A terus kalian artikan B kalian sendiri akan bermasalah bukan gue
-	<br>
+	<br><br>
 	pengadaan barang dan jasa saja semua itu wajib transparan dan tender sama saja wajib transparan. Pengetahuan anak bayi nih tanpa di setir
 	<br><br>Jika ada anggota partai melakukan intimidasi ke saya dan saya akan masukan blacklist partainya apapun itu alesan nya kena pecat dari anggota partai jadi pengangguran 
 	<br><br>Modal maksimal perusahaan perorangan sendiri saja hanya 15 milliar rupiah jadi bukan saingan gue kalo perusahaan perorangan sendiri karena produk gue harganya triliun jadi siapa yang bodoh selama ini
