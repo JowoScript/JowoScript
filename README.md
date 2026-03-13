@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	orang indonesia salah translate bicara di luar negeri kalian sendiri akan mati bukan gue
+	orang indonesia atau melayu salah translate bicara di luar negeri kalian sendiri akan mati bukan gue
 	<br><br>Modal maksimal perusahaan perorangan sendiri saja hanya 15 milliar rupiah jadi bukan saingan gue kalo perusahaan perorangan sendiri karena produk gue harganya triliun jadi siapa yang bodoh selama ini
 </strong>
 <br><br>
