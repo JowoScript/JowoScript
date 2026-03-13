@@ -15,6 +15,7 @@
 	<br>Contoh gue bicara A terus kalian artikan B kalian sendiri akan bermasalah bukan gue
 	<br>
 	pengadaan barang dan jasa saja semua itu wajib transparan dan tender sama saja wajib transparan. Pengetahuan anak bayi nih tanpa di setir
+	<br><br>Jika ada anggota partai melakukan intimidasi ke saya dan saya akan masukan blacklist partainya apapun itu alesan nya
 	<br><br>Modal maksimal perusahaan perorangan sendiri saja hanya 15 milliar rupiah jadi bukan saingan gue kalo perusahaan perorangan sendiri karena produk gue harganya triliun jadi siapa yang bodoh selama ini
 </strong>
 <br><br>
