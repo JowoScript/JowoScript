@@ -10,7 +10,7 @@
 	
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
-	<br>
+	<br><br>
 	orang salah translate bicara di luar negeri kalian sendiri akan mati bukan gue
 </strong>
 <br><br>
