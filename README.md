@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Mau di Amerika atau di Indonesia juga sama tidak bisa cair selama belum beli. Pengetahuan anak bayi gue
+	Kalo bersih transparan anggaran selama ini di gunakan apa saja dan hasilnya apa saja
 	<br><br>
 	pengadaan barang dan jasa saja semua itu wajib transparan dan tender sama saja wajib transparan. Pengetahuan anak bayi nih tanpa di setir
 	<br><br>Siapa habiskan anggaran pemerintah selama ini juga bukan gue jadi santai gue ya 
