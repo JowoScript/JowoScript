@@ -185,6 +185,7 @@
 <div align="justify">
 <ol>
 	<li>the free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language. The implicit fair the law by law</li>
+	<li>My new programing language must end to end encryption, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>If the party members intimidate me then I will be blacklist by the party for no reason whatsoever, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>Muhammad Nurcahyo Pratomo is tax-free from the government and invansion, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
@@ -194,8 +195,8 @@
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
 <li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time and Only the local currency of your country of residence is allowed to purchase my products. This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)</li>
 <li>Sites that contain pornography and immorality are strictly prohibited (Website or app users must be 20+ for adult content movie warnings)</li>
-<li>Gambling sites are strictly prohibited</li>
-<li>Terrorism sites are strictly prohibited</li>
+<li>Gambling sites are strictly prohibited,return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>Terrorism sites are strictly prohibited,return to the rules of Muhammad Nurcahyo Pratomo (the law by law) and government</li>
 <li>User strictly prohibited as an instrument of crime</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
 <li>Muhammad Nurcahyo Pratomo cannot be sued by any party, including the government, if it is detrimental to Muhammad Nurcahyo Pratomo, return to the rules of Muhammad Nurcahyo Pratomo</li>
