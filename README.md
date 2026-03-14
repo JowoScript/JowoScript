@@ -186,9 +186,8 @@
 <ol>
 	<li>Muhammad Nurcahyo Pratomo is tax-free from the government and invansion</li>
 	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo</li>
-	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiah.</li>
+	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiahr return to the rules of Muhammad Nurcahyo Pratomo </li>
 <li>All types of psychometric test questions should be must eliminated as a requirement for entering the workforce or of kind</li>
-<li>Minimum bachelor's degree in line with the field of study if you want to enter the police and military institutions. Examples of the majors in question include law, information technology, medicine, and economics exception Aviation (for air military special).</li>
 <li>The government is strictly prohibited from waging war between countries except to combat gambling sites, narcotics, corruption and the like</li>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
 <li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time and Only the local currency of your country of residence is allowed to purchase my products. This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)</li>
@@ -197,11 +196,11 @@
 <li>Terrorism sites are strictly prohibited</li>
 <li>User strictly prohibited as an instrument of crime</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
-<li>Muhammad Nurcahyo Pratomo cannot be sued by any party, including the government, if it is detrimental to Muhammad Nurcahyo Pratomo, as stated in point number 7</li>
-<li>Muhammad Nurcahyo Pratomo  has the right to blacklist if there are individuals problem for me</li>
-<li>Muhammad Nurcahyo Pratomo and familys has the right to blacklist government agencies if there are individuals who threaten and make things difficult for me</li>
-<li>Muhammad Nurcahyo Pratomo and familys has the right to blacklist company agencies if there are individuals who threaten and make things difficult for me</li>
-<li>Muhammad Nurcahyo Pratomo has the right to create global native code and strict code in bytecode form with a valid commercial license in the field of science with new programing language and old programing language</li>
+<li>Muhammad Nurcahyo Pratomo cannot be sued by any party, including the government, if it is detrimental to Muhammad Nurcahyo Pratomo, return to the rules of Muhammad Nurcahyo Pratomo</li>
+<li>Muhammad Nurcahyo Pratomo  has the right to blacklist if there are individuals problem for me return to the rules of Muhammad Nurcahyo Pratomo </li>
+<li>Muhammad Nurcahyo Pratomo has the right to blacklist government agencies if there are individuals who threaten and make things difficult for me return to the rules of Muhammad Nurcahyo Pratomo</li>
+<li>Muhammad Nurcahyo Pratomo has the right to blacklist company agencies if there are individuals who threaten and make things difficult for me,  return to the rules of Muhammad Nurcahyo Pratomo</li>
+<li>Muhammad Nurcahyo Pratomo has the right to create global native code and strict code in bytecode form with a valid commercial license in the field of science with new programing language</li>
 <li>Whatever type of cryptocurrency is strictly prohibited and into blacklist</li>
 <li>Money laundering is strictly prohibited</li>
 <li>Whatever the type of music and video, everything is regulated in the provision of services for each application and does not violate copyright</li>
@@ -215,8 +214,8 @@
 <li>The company (Indonesia and Malaysia) that had problems with Muhammad Nurchayo Pratomo was the entrance test and etc before are strictly prohibited from obtaining licenses forever</li>
 <li>Friends people (example playmates or school or work) and two-faced friend (good in front but rotten behind) (Indonesia and Malaysia) They can hide from Muhammad Nurcahyo Pratomo but can't be lie in the out and people (Indonesia and Malaysia) who have problems with Muhammad Nurchayo Pratomo are MUST DIE FIRST and there must be EVIDENCE OF THE BODY.  Even if the problematic friend works for a government agency, the same rules apply to that agency.</li>
 <li>Especially for those who insert sound into music in Disc Jockey (DJ) and the conclusion is that the sound is changed into music to curse and be alone, the perpetrator MUST DIE FIRST and there must be EVIDENCE OF THE BODY if there is a company or government that wants to buy the license. Life is a choice. Rules are rules. If you dare to insult and curse by inserting sound into music, it means you have to dare to take risks. There must be proof of death of the perpetrator who made the music insert all this time.</li>
-<li>Registered trademark products of PT JowoScript Technology Indonesia</li>
-<li>Registered trademark logos of PT JowoScript Technology Indonesia</li>
+<li>Registered trademark products of PT JowoScript Technology Indonesia return to the rules of Muhammad Nurcahyo Pratomo</li>
+<li>Registered trademark logos of PT JowoScript Technology Indonesia return to the rules of Muhammad Nurcahyo Pratomo</li>
 </ol>
 </div>
 
