@@ -203,17 +203,17 @@
 <li>Muhammad Nurcahyo Pratomo has the right to blacklist government agencies if there are individuals who threaten and make things difficult for me return to the rules of Muhammad Nurcahyo Pratomo</li>
 <li>Muhammad Nurcahyo Pratomo has the right to blacklist company agencies if there are individuals who threaten and make things difficult for me,  return to the rules of Muhammad Nurcahyo Pratomo</li>
 <li>Muhammad Nurcahyo Pratomo has the right to create global native code and strict code in bytecode form with a valid commercial license in the field of science with new programing language</li>
-<li>Whatever type of cryptocurrency is strictly prohibited and into blacklist</li>
-<li>Money laundering is strictly prohibited</li>
-<li>Whatever the type of music and video, everything is regulated in the provision of services for each application and does not violate copyright</li>
-<li><b>Minimum age required to be 18 years old in using programming language code and can use good logic algorithms</b></li>
-<li>Price tag that has been applied cannot be contested by any party, either in the future or now</li>
-<li>Alcohol or intoxicating drinks sites are strictly prohibited</li>
-<li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc)</li>
-<li>Must have a legality flag that is a legal entity</li>
-<li>It is strictly prohibited for weapons of war such as politics, crime and kindly</li>
+<li>Whatever type of cryptocurrency is strictly prohibited and into blacklist, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>Money laundering is strictly prohibited, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>Whatever the type of music and video, everything is regulated in the provision of services for each application and does not violate copyright, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li><b>Minimum age required to be 18 years old in using programming language code and can use good logic algorithms</b> return to the rules of Muhammad Nurcahyo Pratomo (the law by law) </li>
+<li>Price tag that has been applied cannot be contested by any party, either in the future or now, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>Alcohol or intoxicating drinks sites are strictly prohibited, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>User OR Applications that support drug or narcotics transactions are strictly prohibited (example case study like heroin, cocaine, morphine, opium, etc) return to the rules of Muhammad Nurcahyo Pratomo (the law by law) </li>
+<li>Must have a legality flag that is a legal entity return to the rules of Muhammad Nurcahyo Pratomo (the law by law) </li>
+<li>It is strictly prohibited for weapons of war such as politics, crime and kindly, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 <li>Haters, abusers, bullies and two-faced friend (good in front but rotten behind) people from indentiy (Indonesia and Malaysia) are MUST DIE FIRST and there must be EVIDENCE OF THE BODY</li>
-<li>The company (Indonesia and Malaysia) that had problems with Muhammad Nurchayo Pratomo was the entrance test and etc before are strictly prohibited from obtaining licenses forever</li>
+<li>The company (Indonesia and Malaysia) that had problems with Muhammad Nurchayo Pratomo was the entrance test and etc before are strictly prohibited from obtaining licenses forever, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 <li>Friends people (example playmates or school or work) and two-faced friend (good in front but rotten behind) (Indonesia and Malaysia) They can hide from Muhammad Nurcahyo Pratomo but can't be lie in the out and people (Indonesia and Malaysia) who have problems with Muhammad Nurchayo Pratomo are MUST DIE FIRST and there must be EVIDENCE OF THE BODY.  Even if the problematic friend works for a government agency, the same rules apply to that agency.</li>
 <li>Especially for those who insert sound into music in Disc Jockey (DJ) and the conclusion is that the sound is changed into music to curse and be alone, the perpetrator MUST DIE FIRST and there must be EVIDENCE OF THE BODY if there is a company or government that wants to buy the license. Life is a choice. Rules are rules. If you dare to insult and curse by inserting sound into music, it means you have to dare to take risks. There must be proof of death of the perpetrator who made the music insert all this time.</li>
 <li>Registered trademark products of PT JowoScript Technology Indonesia return to the rules of Muhammad Nurcahyo Pratomo</li>
