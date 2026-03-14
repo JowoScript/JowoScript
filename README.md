@@ -14,9 +14,7 @@
 	Mau di Amerika atau di Indonesia juga sama tidak bisa cair selama belum beli. Pengetahuan anak bayi gue
 	<br><br>
 	pengadaan barang dan jasa saja semua itu wajib transparan dan tender sama saja wajib transparan. Pengetahuan anak bayi nih tanpa di setir
-	<br><br>siapa mau sombong sama gue di akhir kalian akan malu sendiri 
-	<br><br>Jika ada anggota partai melakukan intimidasi ke saya dan saya akan masukan blacklist partainya apapun itu alesan nya kena pecat dari anggota partai jadi pengangguran 
-	<br><br>Modal maksimal perusahaan perorangan sendiri saja hanya 15 milliar rupiah jadi bukan saingan gue kalo perusahaan perorangan sendiri karena produk gue harganya triliun jadi siapa yang bodoh selama ini
+	<br><br>siapa mau sombong sama gue di akhir kalian akan malu sendiri di akhir
 </strong>
 <br><br>
 <strong>
