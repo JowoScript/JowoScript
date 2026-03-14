@@ -186,7 +186,7 @@
 <ol>
 	<li>If the party members intimidate me then I will be blacklist by the party for no reason whatsoever, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>Muhammad Nurcahyo Pratomo is tax-free from the government and invansion, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
-	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo</li>
+	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiahr return to the rules of Muhammad Nurcahyo Pratomo </li>
 <li>All types of psychometric test questions should be must eliminated as a requirement for entering the workforce or of kind</li>
 <li>The government is strictly prohibited from waging war between countries except to combat gambling sites, narcotics, corruption and the like</li>
