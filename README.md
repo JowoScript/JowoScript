@@ -185,19 +185,19 @@
 <div align="justify">
 <ol>
 	<li>the free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language. The implicit fair the law by law</li>
-	<li>My new programming language must use end-to-end encryption and privacy security, returning to the rules of Muhammad Nurcahyo Pratomo (law by law) and cannot be sued by any party is a permanent legal form</li>
+	<li>My new programming language must use end-to-end encryption and privacy security, return to the rules of Muhammad Nurcahyo Pratomo (law by law) and cannot be sued by any party is a permanent legal form</li>
 	<li>If the party members intimidate me then I will be blacklist by the party for no reason whatsoever, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>Muhammad Nurcahyo Pratomo is tax-free from the government and invansion, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
-	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiahr return to the rules of Muhammad Nurcahyo Pratomo </li>
-<li>All types of psychometric test questions should be must eliminated as a requirement for entering the workforce or of kind</li>
-<li>The government is strictly prohibited from waging war between countries except to combat gambling sites, narcotics, corruption and the like</li>
+	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiah return to the rules of Muhammad Nurcahyo Pratomo </li>
+<li>All types of psychometric test questions should be must eliminated as a requirement for entering the workforce or of kind , return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>The government is strictly prohibited from waging war between countries except to combat gambling sites, narcotics, corruption and the like, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 <li>Must follow obey the legal policy rules and regulations in force in the country where you live and cannot be contested by any party</li>
 <li>Whatever type of cryptocurrency is not allowed forever to buy my products at any time and Only the local currency of your country of residence is allowed to purchase my products. This fair and justice for government (So the local currency government value have more powerful than cryptocurrency)</li>
 <li>Sites that contain pornography and immorality are strictly prohibited (Website or app users must be 20+ for adult content movie warnings)</li>
-<li>Gambling sites are strictly prohibited,return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>Gambling sites are strictly prohibited,return to the rules of Muhammad Nurcahyo Pratomo (the law by law) and government</li>
 <li>Terrorism sites are strictly prohibited,return to the rules of Muhammad Nurcahyo Pratomo (the law by law) and government</li>
-<li>User strictly prohibited as an instrument of crime</li>
+<li>User strictly prohibited as an instrument of crime return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 <li>The policy of the intellectual patent by Muhammad Nurcahyo Pratomo cannot be contested by any party, either in the future or now. Both in the form of binary code and inherethin or computed binary intellectual within patent and legal rights of technology creators by Muhammad Nurcahyo Pratomo. Legal Rights of Technology Creators</li>
 <li>Muhammad Nurcahyo Pratomo cannot be sued by any party, including the government, if it is detrimental to Muhammad Nurcahyo Pratomo, return to the rules of Muhammad Nurcahyo Pratomo</li>
 <li>Muhammad Nurcahyo Pratomo  has the right to blacklist if there are individuals problem for me return to the rules of Muhammad Nurcahyo Pratomo </li>
@@ -205,7 +205,7 @@
 <li>Muhammad Nurcahyo Pratomo has the right to blacklist company agencies if there are individuals who threaten and make things difficult for me,  return to the rules of Muhammad Nurcahyo Pratomo</li>
 <li>Muhammad Nurcahyo Pratomo has the right to create global native code and strict code in bytecode form with a valid commercial license in the field of science with new programing language</li>
 <li>Whatever type of cryptocurrency is strictly prohibited and into blacklist, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
-<li>Money laundering is strictly prohibited, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+<li>Money laundering is strictly prohibited, return to the rules of Muhammad Nurcahyo Pratomo (the law by law) and government</li>
 <li>Whatever the type of music and video, everything is regulated in the provision of services for each application and does not violate copyright, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 <li><b>Minimum age required to be 18 years old in using programming language code and can use good logic algorithms</b> return to the rules of Muhammad Nurcahyo Pratomo (the law by law) </li>
 <li>Price tag that has been applied cannot be contested by any party, either in the future or now, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
