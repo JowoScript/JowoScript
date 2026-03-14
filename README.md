@@ -184,7 +184,7 @@
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
 <ol>
-	<li>If the party members intimidate me then I will be blacklist by the party for no reason whatsoever, return to the rules of Muhammad Nurcahyo Pratomo</li>
+	<li>If the party members intimidate me then I will be blacklist by the party for no reason whatsoever, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>Muhammad Nurcahyo Pratomo is tax-free from the government and invansion, return to the rules of Muhammad Nurcahyo Pratomo</li>
 	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo</li>
 	<li>Intimidation, whether verbal or otherwise, is strictly prohibited. The incident against Muhammad Nurcahyo Pratomo is a serious offense and could result in a fine of 1,000 trillion rupiahr return to the rules of Muhammad Nurcahyo Pratomo </li>
