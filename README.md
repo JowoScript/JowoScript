@@ -185,7 +185,7 @@
 <div align="justify">
 <ol>
 	<li>the free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language. The implicit fair the law by law</li>
-	<li>My new programing language must end to end encryption, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
+	<li>My new programming language must use end-to-end encryption and privacy security, returning to the rules of Muhammad Nurcahyo Pratomo (law by law) and cannot be sued by any party is a permanent legal form</li>
 	<li>If the party members intimidate me then I will be blacklist by the party for no reason whatsoever, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>Muhammad Nurcahyo Pratomo is tax-free from the government and invansion, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
 	<li>People who have been to prison are strictly prohibited from using new programming languages ​​and products return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
