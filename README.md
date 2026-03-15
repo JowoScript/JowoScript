@@ -13,7 +13,7 @@
 	<br><br>
 	Teman gue bermasalah dan bermuka dua sama gue di pemerintahan dan swasta di test ulang saja masuk kerjanya karena masuknya kalo tidak lewat orang dalam atau hoki saja lulusnya selama ini fakta. gue jamin 1000% tidak lulus test masuk kerja. selama ini mereka ngumpet karena terlihat bodohnya
 	<br><br>
-	Kalo sudah jadi pengangguran bisa apa gue tanya mampu buat lebih dari produk gue buat
+	Kalo sudah jadi pengangguran bisa apa gue tanya mampu buat lebih dari produk gue buat bukan teman bapak atau ibu ya ini urusan gue sendiri 
 	<br><br>
 	Biar merasakan jadi pengangguran seperti gue rasakan hahahaha 
 	<br><br>
