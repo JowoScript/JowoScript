@@ -17,6 +17,8 @@
 	<br><br>
 	Biar merasakan jadi pengangguran seperti gue rasakan hahahaha apa lagi skill codingnya masih di bawah gue jahuuuu
 	<br><br>
+	Semua itu ada audit keuangan ya jadi selama belum beli kita lihat hasil kerjanya banyak gaya pengetahuan anak bayi
+	<br><br>
 	Selama belum beli baru lulus sekolah nonton saja ya. simple logic. pengetahuan anak bayi nih. gue juga dulu di persulit test masuk kerjanya
 	<br><br>
 	The evaluate from knowledge
