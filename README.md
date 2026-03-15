@@ -11,11 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Kalo bersih transparan anggaran selama ini di gunakan apa saja dan hasilnya apa saja
-	<br><br>
-	pengadaan barang dan jasa saja semua itu wajib transparan dan tender sama saja wajib transparan. Pengetahuan anak bayi nih tanpa di setir
-	<br><br>Siapa habiskan anggaran pemerintah selama ini juga bukan gue jadi santai gue ya 
-	<br><br>siapa mau sombong sama gue di akhir kalian akan malu sendiri di akhir
+	Teman gue bermasalah di pemerintahan dan swasta di test ulang saja masuk kerjanya karena masuknya kalo tidak lewat orang dalam atau hoki saja lulusnya. gue jamin 1000% tidak lulus test masuk kerja. selama ini mereka ngumpet karena terlihat bodohnya
 </strong>
 <br><br>
 <strong>
