@@ -196,7 +196,7 @@
 ### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
 <ol>
-	<li>It is strictly forbidden to wage war between countries without a clear reason based on  unity of nations https://www.un.org/en this is also my rule</li>
+	<li>It is strictly forbidden to wage war between countries without a clear reason based on the unity of nations and this is also i'm agree</li>
 	<li>The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical. The implicit fair the law by law and the legal by legal</li>
 	<li>My new programming language must use end-to-end encryption and privacy security, return to the rules of Muhammad Nurcahyo Pratomo (law by law) and cannot be sued by any party is a permanent legal form</li>
 	<li>If the party members intimidate me then I will be blacklist by the party for no reason whatsoever, return to the rules of Muhammad Nurcahyo Pratomo (the law by law)</li>
