@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Teman gue bermasalah di pemerintahan dan swasta di test ulang saja masuk kerjanya karena masuknya kalo tidak lewat orang dalam atau hoki saja lulusnya selama ini fakta. gue jamin 1000% tidak lulus test masuk kerja. selama ini mereka ngumpet karena terlihat bodohnya
+	Teman gue bermasalah dan bermuka dua sama gue di pemerintahan dan swasta di test ulang saja masuk kerjanya karena masuknya kalo tidak lewat orang dalam atau hoki saja lulusnya selama ini fakta. gue jamin 1000% tidak lulus test masuk kerja. selama ini mereka ngumpet karena terlihat bodohnya
 	<br><br>
 	Kalo sudah jadi pengangguran bisa apa gue tanya mampu buat lebih dari produk gue buat
 	<br><br>
@@ -30,6 +30,9 @@
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
+	foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
+	<br><br>
+	The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language. The implicit fair the law by law and the legal by legal
 	<br><br>
 	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat dimanapun negaranya atau pemerintah</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. Selama belum beli dan selama gue belum nerima uangnya lihat ekonomi dunia goyang like baby. The checkmate forever 
 </div>
