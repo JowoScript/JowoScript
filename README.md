@@ -17,7 +17,7 @@
 	<br><br>
 	Biar merasakan jadi pengangguran seperti gue rasakan hahahaha apa lagi skill codingnya masih di bawah gue jahuuuu
 	<br><br>
-	Selama belum beli ya lulus sekolah nonton saja ya. simple logic. pengetahuan anak bayi nih
+	Selama belum beli baru lulus sekolah nonton saja ya. simple logic. pengetahuan anak bayi nih. gue juga dulu di persulit test masuk kerjanya
 	<br><br>
 	The evaluate from knowledge
 	<br><br>
