@@ -16,6 +16,8 @@
 	Kalo sudah jadi pengangguran bisa apa gue tanya mampu buat lebih dari produk gue buat
 	<br><br>
 	The evaluate from knowledge
+	<br><br>
+	your dont know how deep my code
 </strong>
 <br><br>
 <strong>
