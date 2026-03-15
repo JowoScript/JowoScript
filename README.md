@@ -15,7 +15,7 @@
 	<br><br>
 	Kalo sudah jadi pengangguran bisa apa gue tanya mampu buat lebih dari produk gue buat bukan teman bapak atau ibu ya ini urusan gue sendiri 
 	<br><br>
-	Biar merasakan jadi pengangguran seperti gue rasakan hahahaha 
+	Biar merasakan jadi pengangguran seperti gue rasakan hahahaha apa lagi skill codingnya masih di bawah gue jahuuuu
 	<br><br>
 	The evaluate from knowledge
 	<br><br>
