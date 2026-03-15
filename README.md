@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Teman gue bermasalah di pemerintahan dan swasta di test ulang saja masuk kerjanya karena masuknya kalo tidak lewat orang dalam atau hoki saja lulusnya. gue jamin 1000% tidak lulus test masuk kerja. selama ini mereka ngumpet karena terlihat bodohnya
+	Teman gue bermasalah di pemerintahan dan swasta di test ulang saja masuk kerjanya karena masuknya kalo tidak lewat orang dalam atau hoki saja lulusnya selama ini fakta. gue jamin 1000% tidak lulus test masuk kerja. selama ini mereka ngumpet karena terlihat bodohnya
 </strong>
 <br><br>
 <strong>
