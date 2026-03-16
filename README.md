@@ -11,17 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Teman gue yang baik dan tidak bermuka dua dan tidak bermasalah sama gue aman. gue yang jamin
-	<br><br>
-	Teman gue bermasalah dan bermuka dua sama gue di pemerintahan dan swasta di test ulang saja masuk kerjanya karena masuknya kalo tidak lewat orang dalam atau hoki saja lulusnya selama ini fakta. gue jamin 1000% tidak lulus test masuk kerja. selama ini mereka ngumpet karena terlihat bodohnya
-	<br><br>
-	Kalo sudah jadi pengangguran bisa apa gue tanya mampu buat lebih dari produk gue buat bukan teman bapak atau ibu ya ini urusan gue sendiri 
-	<br><br>
-	Biar merasakan jadi pengangguran seperti gue rasakan hahahaha apa lagi skill codingnya masih di bawah gue jahuuuu
-	<br><br>
-	Semua itu ada audit keuangan ya jadi selama belum beli kita lihat hasil kerjanya banyak gaya pengetahuan anak bayi
-	<br><br>
-	Selama belum beli baru lulus sekolah nonton saja ya. simple logic. pengetahuan anak bayi nih. gue juga dulu di persulit test masuk kerjanya
+	Biar pengusaha dan pejabat jadi mainan gue sendiri
 	<br><br>
 	The evaluate from knowledge
 	<br><br>
