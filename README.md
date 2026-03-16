@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Biar pengusaha dan pejabat jadi mainan gue sendiri
+	siapa melakukan pencucian uang, gratifikasi, penggelapan pajak dan korupsi juga bukan gue ini.
 	<br><br>
 	The evaluate from knowledge
 	<br><br>
