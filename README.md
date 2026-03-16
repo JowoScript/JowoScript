@@ -11,9 +11,11 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Kalo saingan gue pengangguran biar sampai mati nonton terus. lihat dollar naik terus Rp 17.020 bank saja masih kalah nilai sama asset product gue buat
+	Kalo saingan gue pengangguran biar sampai mati nonton terus. lihat dollar naik terus Rp 17.070 bank saja masih kalah nilai sama asset product gue buat
 	<br><br>
 	Sekolah lagi kalian sana ben pinter
+	<br><br>
+	Sesuai judul akan terlihat orang orang bodoh di dunia kerja bisa lulus test belum tentu berkualitas
 	<br><br>
 	tenang saja gue berisik bukan bodoh ya ✍️📚 kita lihat musuh musuh gue pada tumbang semua everyday 🌝 without war. gue paham ekonomi, hukum dan teknologi informasi jadi baik baik
 </strong>
