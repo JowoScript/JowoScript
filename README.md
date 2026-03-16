@@ -13,6 +13,8 @@
 	<br><br>
 	Kalo saingan gue pengangguran biar sampai mati nonton terus. lihat dollar naik terus Rp 17.020 bank saja masih kalah nilai sama asset product gue buat
 	<br><br>
+	Sekolah lagi kalian dana ben pinter
+	<br><br>
 	tenang saja gue berisik bukan bodoh ya ✍️📚 kita lihat musuh musuh gue pada tumbang semua everyday 🌝 without war. gue paham ekonomi, hukum dan teknologi informasi jadi baik baik
 </strong>
 <br><br>
