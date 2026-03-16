@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	Permintaan gaji dan tunjangan mana mau kecil gue itu aturannya. harga produk mahal otomatis permintaan gaji gue juga mahal
+	Permintaan gaji dan tunjangan mana mau kecil gue itu aturannya. harga produk mahal otomatis permintaan gaji gue lebih mahal dari produk gue buat
 	<br><br>
 	tenang saja gue berisik bukan bodoh ya ✍️📚 kita lihat musuh musuh gue pada tumbang semua everyday 🌝 without war. gue paham ekonomi, hukum dan teknologi informasi jadi baik baik
 </strong>
