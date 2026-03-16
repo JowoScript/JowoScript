@@ -11,13 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	siapa melakukan pencucian uang, gratifikasi, penggelapan pajak dan korupsi juga bukan gue ini.
-	<br><br>
-	Kalo saingan gue pengangguran jurusan teknologi informasi biarkan saja itu resiko ya gue juga dulu di gituin 
-	<br><br>
-	The evaluate from knowledge
-	<br><br>
-	your dont know how deep my code
+	tenang saja gue berisik bukan bodoh ya ✍️📚 kita lihat musuh musuh gue pada tumbang semua
 </strong>
 <br><br>
 <strong>
