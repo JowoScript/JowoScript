@@ -13,6 +13,8 @@
 	<br><br>
 	Kalo saingan gue pengangguran biar sampai mati nonton terus. lihat dollar naik terus Rp 17.070 bank saja masih kalah nilai sama asset product gue buat
 	<br><br>
+	Produk jadi kalo hanya jadi partner bisnis doang tidak mau bayar mau gratis an gue hina hina hidupnya
+	<br><br>
 	Sekolah lagi kalian sana ben pinter
 	<br><br>
 	Sesuai judul akan terlihat orang orang bodoh di dunia kerja bisa lulus test belum tentu berkualitas
