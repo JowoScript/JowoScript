@@ -11,7 +11,7 @@
 <strong>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
-	tenang saja gue berisik bukan bodoh ya ✍️📚 kita lihat musuh musuh gue pada tumbang semua
+	tenang saja gue berisik bukan bodoh ya ✍️📚 kita lihat musuh musuh gue pada tumbang semua everyday 🙂🌝
 </strong>
 <br><br>
 <strong>
