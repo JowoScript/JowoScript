@@ -13,6 +13,8 @@
 	<br><br>
 	siapa melakukan pencucian uang, gratifikasi, penggelapan pajak dan korupsi juga bukan gue ini.
 	<br><br>
+	Kalo saingan gue pengangguran jurusan teknologi informasi biarkan saja itu resiko ya
+	<br><br>
 	The evaluate from knowledge
 	<br><br>
 	your dont know how deep my code
