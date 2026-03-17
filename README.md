@@ -13,7 +13,7 @@
 	<br><br>
 	many people dont know different of deepfake, cgi and Ai the fact in hell and i hate SDM rendah (human low IQ) semakin lama semakin bagus terlihat siapa goblok selama ini
 	<br><br>
-Teman gue bermasalah radit, fajar, reza dan sekitarnya suka lewat depan rumah pengangguran gue tau suka hina hina gue karena goblok mereka dan apa lagi masuk kerja hasil orang dalam ya selama ini bangga
+Tean gue bermasalah depan rumah pengangguran gue tau suka hina hina gue karena goblok mereka dan apa lagi masuk kerja hasil orang dalam ya selama ini bangga biar mereka susah kalo minta tolong gue jelas kepala hilang
 	<br><br>
 	baby knowledge and sleep time
 	<br><br>
