@@ -13,7 +13,7 @@
 	<br><br>
 	many people dont know different of deepfake, cgi and Ai the fact in hell and i hate SDM rendah (human low IQ) semakin lama semakin bagus terlihat siapa goblok selama ini
 	<br><br>
-Tean gue bermasalah depan rumah pengangguran gue tau suka hina hina gue algojo gue lebih banyak tidak terlihat di luar sana baik baik kalian
+teman gue bermasalah suka lewat depan rumah pengangguran gue tau suka hina hina gue algojo gue lebih banyak tidak terlihat di luar sana baik baik kalian
 	<br><br>
 	baby knowledge and sleep time
 	<br><br>
