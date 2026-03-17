@@ -10,7 +10,7 @@
 	
 <strong>
 	kalo saingan gue pengangguran biarkan mereka mati sendiri
-	<br>
+	<br><br>
 	teman gue dekat komplek susah minta tolong gue tau sendiri kalian di akhir gue orangnya tidak pelupa ya
 	<br><br>
 	baby knowledge and sleep time
