@@ -13,6 +13,8 @@
 	<br><br>
 	many people dont know different of deepfake, cgi and Ai the fact in hell and i hate SDM rendah (human low IQ) semakin lama semakin bagus terlihat siapa goblok selama ini
 	<br><br>
+Teman gue bermasalah suka lewat depan rumah pengangguran gue tau suka hina hina gue karena goblok mereka dan apa lagi masuk kerja hasil orang dalam ya selama ini bangga
+	<br><br>
 	baby knowledge and sleep time
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
