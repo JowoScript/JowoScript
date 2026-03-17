@@ -9,14 +9,7 @@
 <div align="center">
 	
 <strong>
-	Lulus test belum tentu pintar kerja apa lagi tidak lulus sekolah
-	<br><br>kalo donatur hasil hutang dan korupsi untuk hina hina gue tandanya sampah ketemu sampah 
-	<br><br>
-	Runtime.Build() this print app in java file number....then kotln same if you know 🤣
-	<br><br>
-	many people dont know different of deepfake, cgi and Ai the fact in hell and i hate SDM rendah (human low IQ) semakin lama semakin bagus terlihat siapa goblok selama ini
-	<br><br>
-biar nomton terus sampai mati dekat rumah beli juga tidak alesan. salah siapa goblok hidupnya persaingan itu berat terbukti siapa kurus kalian dan siapa punya hutang juga kalian dan siapa suka teriak teriak di depan kalian kasihan deh lu dan gue juga tenang saja selama belum beli siapa kena siksa juga bukan gue ini
+	kalo saingan gue pengangguran biarkan mereka mati sendiri
 	<br><br>
 	baby knowledge and sleep time
 	<br><br>
