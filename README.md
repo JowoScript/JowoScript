@@ -9,7 +9,7 @@
 <div align="center">
 	
 <strong>
-	Runtime.Build() this print app in java file number....
+	Runtime.Build() this print app in java file number....then kotln same if you know 🤣
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
