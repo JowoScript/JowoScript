@@ -9,6 +9,8 @@
 <div align="center">
 	
 <strong>
+	Lulus test belum tentu pintar kerja apa lagi tidak lulus sekolah 
+	<br><br>
 	Runtime.Build() this print app in java file number....then kotln same if you know 🤣
 	<br><br>
 	many people dont know different of deepfake, cgi and Ai the fact in hell and i hate SDM rendah (human low IQ) semakin lama semakin bagus terlihat siapa goblok selama ini
