@@ -11,7 +11,7 @@
 <strong>
 	kalo saingan gue pengangguran biarkan mereka mati sendiri
 	<br>
-	teman gue dekat komplek susah minta tolong gue tau sendiri kaloan di akhir
+	teman gue dekat komplek susah minta tolong gue tau sendiri kalian di akhir gue orangnya ifak pelupa ya
 	<br><br>
 	baby knowledge and sleep time
 	<br><br>
