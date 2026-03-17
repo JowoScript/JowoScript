@@ -9,6 +9,8 @@
 <div align="center">
 	
 <strong>
+	Runtime.Build() this print app in java file number....
+	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>
 	Kalo saingan gue pengangguran biar sampai mati nonton terus. lihat dollar naik terus Rp 17.070 bank saja masih kalah nilai sama asset product gue buat
