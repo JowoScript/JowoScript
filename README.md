@@ -11,19 +11,10 @@
 <strong>
 	Runtime.Build() this print app in java file number....then kotln same if you know 🤣
 	<br><br>
-	baby knowledge 
+	baby knowledge and sleep time
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
-	<br><br>
-	Kalo saingan gue pengangguran biar sampai mati nonton terus. lihat dollar naik terus Rp 17.070 bank saja masih kalah nilai sama asset product gue buat
-	<br><br>
-	Produk jadi kalo hanya jadi partner bisnis doang tidak mau bayar mau gratis an gue hina hina hidupnya
-	<br><br>
-	Sekolah lagi kalian sana ben pinter
-	<br><br>
-	Sesuai judul akan terlihat orang orang bodoh di dunia kerja bisa lulus test belum tentu berkualitas
-	<br><br>
-	tenang saja gue berisik bukan bodoh ya ✍️📚 kita lihat musuh musuh gue pada tumbang semua everyday 🌝 without war. gue paham ekonomi, hukum dan teknologi informasi jadi baik baik
+	<br><br>	
 </strong>
 <br><br>
 <strong>
