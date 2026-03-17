@@ -9,7 +9,8 @@
 <div align="center">
 	
 <strong>
-	Lulus test belum tentu pintar kerja apa lagi tidak lulus sekolah 
+	Lulus test belum tentu pintar kerja apa lagi tidak lulus sekolah
+	<br>kalo donatur hsdil hutang dan korupsi untuk hina hina gue tandanya sampah ketemu sampah 
 	<br><br>
 	Runtime.Build() this print app in java file number....then kotln same if you know 🤣
 	<br><br>
