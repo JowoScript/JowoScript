@@ -13,7 +13,7 @@
 	<br><br>
 	many people dont know different of deepfake, cgi and Ai the fact in hell and i hate SDM rendah (human low IQ) semakin lama semakin bagus terlihat siapa goblok selama ini
 	<br><br>
-biar nomton terus sampai mati dekat rumah.
+biar nomton terus sampai mati dekat rumah beli juga tidak alesan. salah siapa goblok hidupnya persaingan itu berat
 	<br><br>
 	baby knowledge and sleep time
 	<br><br>
