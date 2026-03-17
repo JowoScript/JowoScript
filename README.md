@@ -11,6 +11,8 @@
 <strong>
 	Runtime.Build() this print app in java file number....then kotln same if you know 🤣
 	<br><br>
+	many people dont know different of deepfake, cgi and Ai the fact in hell and i hate SDM rendah	
+	<br><br>
 	baby knowledge and sleep time
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
