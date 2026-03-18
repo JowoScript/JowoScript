@@ -13,7 +13,7 @@
 	<br><br>
 	Sampai 2030 tetap berjalan gue ya biar yang goblok goblok pada mati
 	<br><br>
-	teman gue dekat komplek susah minta tolong gue tau sendiri kalian di akhir gue orangnya tidak pelupa ya (Gue lebih suka kesunyian)
+	(Gue lebih suka kesunyian dalam membuat teknologi)
 	<br><br>
 	baby knowledge and sleep time
 	<br><br>
