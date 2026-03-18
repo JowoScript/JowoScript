@@ -46,7 +46,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
 <div>
-	By 2021 Muhammad Nurcahyo Pratomo created a new programming language for commercial license (NOT FREE PRICE) and make new rules.
+	By 2021 Muhammad Nurcahyo Pratomo (Self) created a new programming language for commercial license (NOT FREE PRICE) and make new rules.
 	<br><br>
 	The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical (different law and syntax code). The implicit fair the law by law and the legal by legal
 </div>
