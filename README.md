@@ -46,7 +46,10 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
 <div>
-	By 2021 Muhammad Nurcahyo Pratomo created a new programming language for commercial license (NOT FREE PRICE) and make new rules
+	By 2021 Muhammad Nurcahyo Pratomo created a new programming language for commercial license (NOT FREE PRICE) and make new rules.
+	<br><br>
+	The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical. The implicit fair the law by law and the legal by legal</li>
+	<li>My new programming language must use end-to-end encryption and privacy security, return to the rules of Muhammad Nurcahyo Pratomo (law by law) and cannot be sued by any party is a permanent legal form
 </div>
 
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) 
