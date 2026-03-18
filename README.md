@@ -15,7 +15,7 @@
 	<br><br>
 	(Gue lebih suka kesunyian dalam membuat teknologi)
 	<br><br>
-	baby knowledge and sleep time (make code)
+	baby knowledge and sleep time (create new code)
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
