@@ -22,6 +22,8 @@
 	Itu kenapa proyek di pemerintahaan kontraknya semua pada hancur. Siapa di butuhkan dan tidak
 	<br>
 	Kalo pengangguran baru lulus sekolah ya sudah end game nonton
+	<br>
+	Suka hina gue selama ini gue diamkan dulu kalo susah minta tolong ke gue jelas habis
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
