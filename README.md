@@ -13,7 +13,7 @@
 	<br><br>
 	Sampai 2030 tetap berjalan gue ya  yang goblok goblok pada mati sendiri
 	<br><br>
-    Mau sodara sendiri saja wajib beli gimana orang lain ya. Syukur kalian
+    Mau sodara sendiri saja wajib beli gimana orang lain ya. Syukur kalian banyak tingkah tidak modal juga
 	<br><br>
 	sengaja gue mahalin harganya karena yang hina gue lewat Facebook music and reels itu akunnya Facebook ID reels random suka muncul di beranda fb sok kaya aslinya miskin mereka gue tau atau gue sebut rakyat  facebook id reels selana ini jadi provokator semua gue simpan di database biar mampus sudah miskin goblok skill coding di bawah gue jahu makan tuh khususnya dekat komplek rumah ya gue tau semuanya.
 	<br><br>
