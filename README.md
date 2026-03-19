@@ -13,6 +13,8 @@
 	<br><br>
 	Sampai 2030 tetap berjalan gue ya  yang goblok goblok pada mati sendiri
 	<br><br>
+	sengaja gue mahalin harganya karena yang hina gue itu sok kaya aslinya miskin
+	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
 </strong>
