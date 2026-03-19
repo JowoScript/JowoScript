@@ -12,6 +12,8 @@
     Tidak punya uang untuk beli ya nonton saja. Mau beli produk asli ya langsung dateng ke gue itu juga kalo punya nyali
 	<br>
 	Produk palsu ya kalian beli selama ini.
+	<br>
+	Gue sudah lebaran hari ini.
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
