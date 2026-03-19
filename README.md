@@ -9,7 +9,9 @@
 <div align="center">
 	
 <strong>
-    Tidak punya uang untuk beli ya nonton saja. Uang di akhir bukan penampilan gue lihat selama ini
+    Tidak punya uang untuk beli ya nonton saja. Mau beli produk asli ya langsung dateng ke gue itu juga kalo punya nyali
+	<br>
+	Produk palsu ya kalian beli selama ini.
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
