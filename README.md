@@ -13,7 +13,7 @@
 	<br><br>
 	Sampai 2030 tetap berjalan gue ya  yang goblok goblok pada mati sendiri
 	<br><br>
-	sengaja gue mahalin harganya karena yang hina gue lewat Facebook music and reels itu akunnya Facebook ID reels random suka muncul di beranda fb sok kaya aslinya miskin mereka gue tau
+	sengaja gue mahalin harganya karena yang hina gue lewat Facebook music and reels itu akunnya Facebook ID reels random suka muncul di beranda fb sok kaya aslinya miskin mereka gue tau atau gue sebut rakyat  facebook id reels selana ini jadi provokator semua gue simpan di database 
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
