@@ -16,6 +16,8 @@
 	Produk palsu kalian beli selama ini. Oleh karena itu kalian tetap jadi koba lab
 	<br>
 	You've been buying counterfeit products all this time. That's why you're still a lab experiment
+	<br>
+	Alesan dakingan itu khusus orang pengecut selama ini sama gue
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
