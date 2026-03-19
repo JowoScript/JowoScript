@@ -113,7 +113,7 @@
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Whether the price goes up or down is Muhammad Nurcahyo Pratomo's personal right, you can afford it but being blacklisted means game over, ask all the company founders if what Muhammad Nurcahyo Pratomo said is true
+#### IDE can be executed in format exe(windows) or app (mac) or run (linux)
 <img src="Kingdom Technology 0.1.50.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
