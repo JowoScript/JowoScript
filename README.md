@@ -11,9 +11,11 @@
 <strong>
     Tidak punya uang untuk beli ya nonton saja. Mau beli produk asli ya langsung dateng ke gue itu juga kalo punya nyali
 	<br>
-	Produk palsu ya kalian beli selama ini. Oleh karena itu kalian tetap jadi koba lab
+	If you don't have the money to buy it, just watch it. If you want to buy the original product, come to me directly, that is, if you have the guts.
+	<br><br>
+	Produk palsu kalian beli selama ini. Oleh karena itu kalian tetap jadi koba lab
 	<br>
-	Drone di medsos perang itu hoax kalian bodoh nitizen
+	You've been buying counterfeit products all this time. That's why you're still a lab experiment
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
