@@ -188,7 +188,7 @@
 <li>SEJAUH YANG DIIZINKAN OLEH HUKUM SETEMPAT, KAMI MENGECUALIKAN JAMINAN TERSIRAT APA PUN, TERMASUK KELAYAKAN UNTUK DIPERDAGANGKAN, KUALITAS YANG MEMUASKAN, KESESUAIAN UNTUK TUJUAN TERTENTU, KECAKAPAN USAHA, DAN KETIADAAN PELANGGARAN.</li>
 </ul>
 
-### Legal Rights of Technology Creators | Basic Regulatory Requirements for Registration and Purchase
+### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase
 <div align="justify">
 <ol>
 	<li>If there is still war, become because provocateur is <b>cryptocurrency and gambling site influencer on social media for money</b>. that's way i blacklist cryptocurrency and gambling</li>
