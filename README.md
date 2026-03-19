@@ -21,7 +21,7 @@
 </div>
 </div>
 
-##### Perusahaan di blacklist di produk saya tetap sama walaupun tidak di publikasikan di sini
+##### Waku terus maju dan persaingan makin berat
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
