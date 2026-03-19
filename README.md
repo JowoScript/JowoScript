@@ -21,7 +21,7 @@
 </div>
 </div>
 
-##### Waku terus maju dan persaingan makin berat
+##### Waku terus maju dan persaingan makin berat. gen milenium saja banyak yang nganggur gimana di atasnya.
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
