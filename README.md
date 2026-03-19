@@ -11,7 +11,7 @@
 <strong>
     Tidak punya uang untuk beli ya nonton saja. Mau beli produk asli ya langsung dateng ke gue itu juga kalo punya nyali
 	<br>
-	Produk palsu ya kalian beli selama ini.
+	Produk palsu ya kalian beli selama ini. Oleh karena itu kalian tetap jadi koba lab
 	<br>
 	Drone di medsos perang itu hoax kalian bodoh nitizen
 	<br><br>
