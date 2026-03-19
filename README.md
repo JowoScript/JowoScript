@@ -9,13 +9,7 @@
 <div align="center">
 	
 <strong>
-	kalo saingan gue pengangguran mereka mati sendiri oleh persaingan apa lagi baru lulus sekolah 
-	<br><br>
-	Sampai 2030 tetap berjalan gue ya  yang goblok goblok pada mati sendiri
-	<br><br>
-    Mau sodara sendiri saja wajib beli gimana orang lain ya. Syukur kalian banyak tingkah tidak modal juga sudah miskin goblok hidup lagi
-	<br><br>
-	sengaja gue mahalin harganya karena yang hina gue lewat Facebook music and reels itu akunnya Facebook ID reels random suka muncul di beranda fb sok kaya aslinya miskin mereka gue tau atau gue sebut rakyat  facebook id reels selana ini jadi provokator semua gue simpan di database biar mampus sudah miskin goblok skill coding di bawah gue jahu makan tuh khususnya dekat komplek rumah ya gue tau semuanya.
+    Tidak punya uang untuk beli ya nonton saja. Uang di akhir bukan penampilan gue lihat selama ini
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
@@ -35,7 +29,6 @@
 	<br><br>
 	The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical  (different law and syntax code). The implicit fair the law by law and the legal by legal
 	<br><br>
-	Mau beli produk gue saja <b>wajib ikutin aturan hukum gue buat dimanapun negaranya atau pemerintah</b>. Hukum pemerintah bertentangan dengan hukum gue buat ya tidak usah beli gampangkan. Tidak suka tidak usah beli. Simple bukan. Siapa yang butuh juga bukan.gue tapi next generasi. Waktu itu terus maju kedepan ya itu hukum realitas waktu. Selama belum beli dan selama gue belum nerima uangnya lihat ekonomi dunia goyang like baby. The checkmate forever 
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
