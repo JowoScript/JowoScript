@@ -9,13 +9,9 @@
 <div align="center">
 	
 <strong>
-	kalo saingan gue pengangguran biarkan mereka mati sendiri
+	kalo saingan gue pengangguran mereka mati sendiri oleh persaingan apa lagi baru lulus sekolah 
 	<br><br>
-	Sampai 2030 tetap berjalan gue ya biar yang goblok goblok pada mati
-	<br><br>
-	(Gue lebih suka kesunyian dalam membuat teknologi)
-	<br><br>
-	baby knowledge and sleep time (create new code)
+	Sampai 2030 tetap berjalan gue ya  yang goblok goblok pada mati sendiri
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
