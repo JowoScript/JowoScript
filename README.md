@@ -14,6 +14,8 @@
 	Produk palsu ya kalian beli selama ini.
 	<br>
 	Gue sudah lebaran hari ini.
+	<br>
+	Drone di medsos perang itu hoax kalian bodoh nitizen
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
