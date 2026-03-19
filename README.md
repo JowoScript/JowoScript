@@ -113,7 +113,7 @@
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### IDE can be executed in format exe(windows) or app (mac) or run (linux)
+#### IDE can be executed in format exe(windows) or app (mac) or run (linux) orang goblok nonton saja terus ya hahaha 
 <img src="Kingdom Technology 0.1.50.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
