@@ -207,7 +207,7 @@
 <div align="justify">
 <ol>
 <li>Will deal with the laws in force in the country where you live or jail the future</li>
-<li>Lawyers and prosecutors will act to prosecute existing violations cannot be contested by any party, either in the future or now</li>
+<li>The license product purchaser may choose an appointed attorney who will act to prosecute any existing violations and may not be sued by any party</li>
 <li>Gambling The minimum fine for violation is the minimum price of the license purchased cannot be contested by any party, either in the future or now</li>
 <li>Case studies on the inability to pay the minimum fine for violations will be submitted to existing laws, both based on the legal basis in force in the country where you live and cannot be challenged by any party</li>
 <li>Payment of fines is made by both parties witnessed by the court and and lawyers or prosecutors or legal entities</li>
