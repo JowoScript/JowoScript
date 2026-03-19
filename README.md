@@ -20,6 +20,8 @@
 	Alesan dakingan itu khusus orang pengecut selama ini sama gue. fakta ya nitizen
 	<br>
 	Itu kenapa proyek di pemerintahaan kontraknya semua pada hancur. Siapa di butuhkan dan tidak
+	<br>
+	Kalo pengangguran baru lulus sekolah ya sudah end game nonton
 	<br><br>
 	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
 	<br><br>	
