@@ -9,7 +9,9 @@
 <div align="center">
 	
 <strong>
-	lulus test psikotes itu teori ya dan yang di butuhkan di lapangan itu praktek untuk kerja bukan teori dan kenapa orang goblok selalu menang di teori
+	lulus test psikotes itu teori ya dan yang di butuhkan di lapangan itu praktek untuk kerja bukan teori dan kenapa orang goblok selalu menang di teori.
+	<br><br>
+	Di dunia kerja di butuhkan praktek bukan teori ya 
 	<br><br>
     Tidak punya uang untuk beli ya nonton saja. Mau beli produk asli ya langsung dateng ke gue itu juga kalo punya nyali
 	<br>
