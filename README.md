@@ -41,10 +41,12 @@
 </div>
 </div>
 
-##### Waku terus maju dan persaingan makin berat. gen milenium saja banyak yang nganggur gimana di atasnya. di lihat data nyata bukan influncer di bayar orang bodoh dan kepentingan. mau niru buat produk gue belum tentu berhasil ya selama belum beli dan semua itu ada audit keuangan jadi akan terlihat siapa maling selama ini
+##### Waku terus maju dan persaingan makin berat. gen milenium saja banyak yang nganggur gimana di atasnya. di lihat data nyata bukan influncer di bayar orang bodoh dan kepentingan. mau niru buat produk gue belum tentu berhasil ya selama belum beli dan semua itu ada audit keuangan jadi akan terlihat siapa maling selama ini. Perusahaan bertanding sama gue dengan hasil lab tidak ada hasilnya termasuk penggelapan uang di perusahaan kalian masing masing.
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
+	
+
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	<br><br>
