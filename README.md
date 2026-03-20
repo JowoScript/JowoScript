@@ -9,6 +9,8 @@
 <div align="center">
 	
 <strong>
+	lulus test psikotes itu teori ya dan yang di butuhkan di lapangan itu praktek untuk kerja bukan teori.
+	<br><br>
     Tidak punya uang untuk beli ya nonton saja. Mau beli produk asli ya langsung dateng ke gue itu juga kalo punya nyali
 	<br>
 	If you don't have the money to buy it, just watch it. If you want to buy the original product, come to me directly, that is, if you have the guts.
