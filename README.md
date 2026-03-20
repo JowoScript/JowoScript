@@ -161,7 +161,7 @@
 <li>SEJAUH YANG DIIZINKAN OLEH HUKUM SETEMPAT, KAMI MENGECUALIKAN JAMINAN TERSIRAT APA PUN, TERMASUK KELAYAKAN UNTUK DIPERDAGANGKAN, KUALITAS YANG MEMUASKAN, KESESUAIAN UNTUK TUJUAN TERTENTU, KECAKAPAN USAHA, DAN KETIADAAN PELANGGARAN.</li>
 </ul>
 
-### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase
+### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch)
 <div align="justify">
 <ol>
 	<li>If there is still war, become because provocateur is <b>cryptocurrency and gambling site influencer on social media for money</b>. that's way i blacklist cryptocurrency and gambling</li>
@@ -204,7 +204,7 @@
 </ol>
 </div>
 
-### Legal Rights of Technology Creators | The regulatory requirements for purchase license tokens
+### Legal Rights of Technology Creators and The regulatory requirements for purchase license tokens (if you buy and if you don't buy, just watch)
 <div align="justify">
 <ol>
 <li>Must follow and obey basic regulatory requirements in registration license agreement</li>
@@ -217,7 +217,7 @@
 </ol>
 </div>
 
-### Legal Rights of Technology Creators | Laws against violators of the Legal Rights of Technology Creators
+### Legal Rights of Technology Creators and Laws against violators of the Legal Rights of Technology Creators (if you buy and if you don't buy, just watch)
 <div align="justify">
 <ol>
 <li>Will deal with the laws in force in the country where you live or jail the future</li>
