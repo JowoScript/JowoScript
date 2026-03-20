@@ -45,8 +45,6 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
-	
-
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	<br><br>
