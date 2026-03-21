@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	The system will up point 1 dollar point Rp 17.000 pluse 
+	The system will up point 1 dollar Rp 17.000 pluse 
 	<br>
 	Pemerintah Indonesia saja belum beli produk gue jadi jangan mau di bohongi ya
 	<br><br>
