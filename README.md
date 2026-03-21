@@ -8,34 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	The system will up point 1 dollar Rp 17.000 pluse 
-	<br>
-	perusahaan tidak berguna di bersihkan saja dari pada buang uang tidak berguna dan tidak ada hasil juga dan perusahaan punya hutang ke pemodal suruh bayar hutang
-	<br><br>
-	Pemerintah dan perusahaan di Indonesia saja belum beli produk gue jadi jangan mau di bohongi ya
-	<br><br>
-	lulus test psikotes itu teori ya dan yang di butuhkan di lapangan itu praktek untuk kerja bukan teori dan kenapa orang goblok selalu menang di teori.
-	<br><br>
-	Di dunia kerja di butuhkan praktek bukan teori ya 
-	<br><br>
-    Tidak punya uang untuk beli ya nonton saja. Mau beli produk asli ya langsung dateng ke gue itu juga kalo punya nyali
-	<br>
-	If you don't have the money to buy it, just watch it. If you want to buy the original product, come to me directly, that is, if you have the guts.
-	<br><br>
-	Produk palsu kalian beli selama ini. Oleh karena itu kalian tetap jadi koba lab
-	<br>
-	You've been buying counterfeit products all this time. That's why you're still a lab experiment
-	<br>
-	Alesan dakingan itu khusus orang pengecut selama ini sama gue. fakta ya nitizen
-	<br>
-	Itu kenapa proyek di pemerintahaan kontraknya semua pada hancur. Siapa di butuhkan dan tidak
-	<br>
-	Kalo pengangguran baru lulus sekolah ya sudah end game nonton
-	<br>
-	Suka hina gue selama ini gue diamkan dulu kalo susah minta tolong ke gue jelas habis
-	<br><br>
-	PT JowoScript Technology Indonesia - Always TOP Forever until end the world
-	<br><br>	
+	Di periksa kelahiran 1980 ke atas masuk kerja lewat orsng dalam di pemerintahan dan swasta kalo punya nyali. Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak
 </strong>
 <br><br>
 <strong>
