@@ -8,7 +8,9 @@
 </div>
 <div align="center">
 <strong>
-	Di periksa kelahiran 1980 ke atas masuk kerja lewat orsng dalam di pemerintahan dan swasta kalo punya nyali. Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak
+	Di periksa kelahiran 1980 ke atas masuk kerja lewat orsng dalam di pemerintahan dan swasta kalo punya nyali ye. 
+	<br><br>
+	Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak
 </strong>
 <br><br>
 <strong>
