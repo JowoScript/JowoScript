@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya HRD pintar dulu test gue.
+	<br><br>
 	Di periksa kelahiran 1980 ke atas masuk kerja lewat orang dalam di pemerintahan dan swasta kalo punya nyali ye. itu kalo punya nyali hahahaha atau jadi ayam selamanya hahahaha 
 	<br><br>
 	Beraninya sama anak didik baru coba kelahiran 1980 ke atas ditest ulang pakai cat komputer dengan anak didik baru dengan ujian cat komputer secara transparan gue jamin mumet endase 🤣 mana berani HRD atau divisi sumber daya manusia di pemerintahan dan BUMN atau BUMD atau swasta 🫣✍️📚 apa arti keadilan tidak ada bukan ini masih level urusan dunia ye gimana di akhirat hahahaha
