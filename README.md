@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Di periksa kelahiran 1980 ke atas masuk kerja lewat orang dalam di pemerintahan dan swasta kalo punya nyali ye. itu kalo punya nyali hahahaha 
+	Di periksa kelahiran 1980 ke atas masuk kerja lewat orang dalam di pemerintahan dan swasta kalo punya nyali ye. itu kalo punya nyali hahahaha atau jadi ayam selamanya hahahaha 
 	<br><br>
 	Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak
 </strong>
