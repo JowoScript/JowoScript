@@ -7,8 +7,9 @@
 </a>
 </div>
 <div align="center">
-	
 <strong>
+	The system will up point 1 dollar point Rp 17.000 pluse 
+	<br>
 	Pemerintah Indonesia saja belum beli produk gue jadi jangan mau di bohongi ya
 	<br><br>
 	lulus test psikotes itu teori ya dan yang di butuhkan di lapangan itu praktek untuk kerja bukan teori dan kenapa orang goblok selalu menang di teori.
