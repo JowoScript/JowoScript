@@ -14,7 +14,7 @@
 	<br><br>
 	Beraninya sama anak didik baru coba kelahiran 1980 ke atas ditest ulang pakai cat komputer dengan anak didik baru dengan ujian cat komputer secara transparan gue jamin mumet endase 🤣 mana berani HRD atau divisi sumber daya manusia di pemerintahan dan BUMN atau BUMD atau swasta 🫣✍️📚 apa arti keadilan tidak ada bukan ini masih level urusan dunia ye gimana di akhirat hahahaha
 	<br><br>
-	Piye kabare HRD or divisi sumber daya manusia siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak jangan beraninya sama gue dulu mainin gue test cemen lu anak ayam sekarang posisi gue owner perusahaan sendiri dan kerja sendiri dan produk buat sendiri dan skill coding top level sendiri dan tidak menerima karyawan juga gue dan perusahaan gue modal sendiri dan produk aslinya gue buat sendiri.
+	Piye kabare HRD or divisi sumber daya manusia siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak jangan beraninya sama gue dulu mainin gue test cemen lu anak ayam sekarang posisi gue owner perusahaan sendiri dan kerja sendiri dan produk buat sendiri dan skill coding top level sendiri dan tidak menerima karyawan juga gue dan perusahaan gue modal sendiri dan produk aslinya gue buat sendiri dan uang bicara kalo beli produk gue ya dan tidak ada jaminan dari gue selama belum beli suka nipu di luar sana
 	<br><br>
 	Siapa jadi anak ayam kalian bukan divisi HRD or divisi sumber daya manusia selama ini tidak berani main adil jadilah ayam selamanya di pemerintahan dan swasta hahahaha 
 </strong>
