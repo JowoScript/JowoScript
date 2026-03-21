@@ -14,7 +14,7 @@
 	<br><br>
 	Piye kabare HRD or divisi sumber daya manusia siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak jangan beraninya sama gue dulu mainin gue test cemen lu anak ayam sekarang posisi gue owner perusahaan sendiri dan kerja sendiri dan produk buat sendiri dan skill coding top level sendiri dan tidak menerima karyawan juga gue dan perusahaan gue modal sendiri. 
 	<br><br>
-	Siapa jadi anak ayam kalian bukan divisi HRD or divisi sumber daya manusia selama ini tidak berani main adil
+	Siapa jadi anak ayam kalian bukan divisi HRD or divisi sumber daya manusia selama ini tidak berani main adil jadilah ayam selamanya
 </strong>
 <br><br>
 <strong>
