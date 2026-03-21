@@ -10,7 +10,7 @@
 <strong>
 	Di periksa kelahiran 1980 ke atas masuk kerja lewat orang dalam di pemerintahan dan swasta kalo punya nyali ye. itu kalo punya nyali hahahaha atau jadi ayam selamanya hahahaha 
 	<br><br>
-	Beraninya sama anak didik baru coba kelahiran 1980 ke atas ditest ulang pakai cat komputer dengan anak didik baru dengan ujian cat komputer secara transparan mana berani HRD atau divisi sumber daya manusia di pemerintahan dan BUMN atau BUMD atau swasta 🫣✍️📚 apa arti keadilan tidak ada bukan ini masih level urusan dunia ye gimana di akhirat hahahaha
+	Beraninya sama anak didik baru coba kelahiran 1980 ke atas ditest ulang pakai cat komputer dengan anak didik baru dengan ujian cat komputer secara transparan gue jamin mumet endase 🤣 mana berani HRD atau divisi sumber daya manusia di pemerintahan dan BUMN atau BUMD atau swasta 🫣✍️📚 apa arti keadilan tidak ada bukan ini masih level urusan dunia ye gimana di akhirat hahahaha
 	<br><br>Harta haram—hasil mencuri, riba, korupsi, nepotisme di dunia kerja atau menipu—membawa dampak kehancuran serius bagi dunia dan akhirat. Bahaya utamanya meliputi terhalangnya doa, hati menjadi gelap dan mati, ibadah tidak diterima, menghilangkan keberkahan hidup, serta mengundang azab Allah
 	<br><br>
 	Piye kabare HRD or divisi sumber daya manusia siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak
