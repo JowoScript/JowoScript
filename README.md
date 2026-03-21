@@ -10,7 +10,7 @@
 <strong>
 	Di periksa kelahiran 1980 ke atas masuk kerja lewat orang dalam di pemerintahan dan swasta kalo punya nyali ye. itu kalo punya nyali hahahaha atau jadi ayam selamanya hahahaha 
 	<br><br>
-	Beraninya sama anak didik baru coba kelahiran 1980 ke atas mana berani HRD atau divisi sumber daya manusia di pemerintahan dan BUMN atau BUMD atau swasta 🫣✍️📚 apa arti keadilan tidak ada bukan ini masih level urusan dunia ye gimana di akhirat hahahaha karena haram dan halal tidak bisa di bedakan apa yang engkau makan selama ini dan beratnya timbangan kalian di hari perhitungan dari haram dan halal
+	Beraninya sama anak didik baru coba kelahiran 1980 ke atas mana berani HRD atau divisi sumber daya manusia di pemerintahan dan BUMN atau BUMD atau swasta 🫣✍️📚 apa arti keadilan tidak ada bukan ini masih level urusan dunia ye gimana di akhirat hahahaha karena haram dan halal tidak bisa di bedakan apa yang engkau makan selama ini dan beratnya timbangan kalian di hari perhitungan dari haram dan halal bekerja 20 tahun dari hasil haram masuknya otomatis keluar nya juga haram
 	<br><br>
 	Piye kabare HRD or divisi sumber daya manusia siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak
 </strong>
