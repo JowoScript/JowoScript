@@ -10,7 +10,7 @@
 <strong>
 	The system will up point 1 dollar Rp 17.000 pluse 
 	<br>
-	perusahaan tidak berguna di bersihkan saja dari pada buang uang tidak berguna dan tidak ada hasil juga
+	perusahaan tidak berguna di bersihkan saja dari pada buang uang tidak berguna dan tidak ada hasil juga dan perusahaan punya hutang ke pemodal suruh bayar hutang
 	<br><br>
 	Pemerintah dan perusahaan di Indonesia saja belum beli produk gue jadi jangan mau di bohongi ya
 	<br><br>
