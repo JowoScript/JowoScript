@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi.
+	<br><br>
 	Small talk The chiken chiken of HRD in government and company how are your everyday ? hahahaha still martial arts 🤣
 	<br><br>
 	you can't talk to me directly because you're still a chicken everyday in the world wide hahahaha 
