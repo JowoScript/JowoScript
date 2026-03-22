@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	produk aslinya gue yang buat jadi santai gue anak IT banyak gaya sama gue jelas masuk blacklist kalian mau buat cms or anything i dont care karena gue juga sudah punya sendiri kalo hanya cms dan ai buat sendiri ya tanpa di danai beda kelas ya karena punya skill bandingkan didanai pemerintah dan invenstor 🤣 di jual belum tentu balik modal 
+	produk aslinya gue yang buat jadi santai gue anak IT banyak gaya sama gue jelas masuk blacklist kalian mau buat cms or anything i dont care karena gue juga sudah punya sendiri kalo hanya cms dan ai buat sendiri ya tanpa di danai beda kelas ya karena punya skill bandingkan didanai pemerintah dan invenstor 🤣 buat aplikasi di jual belum tentu balik modal sampai sekarang 
 	<br><br>
 	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi sama orang lain ya hahaha the chiken chiken akan bermunculan
 	<br><br>
