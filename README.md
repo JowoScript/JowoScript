@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Lulus test Kerja di pemerintahan akan terlihat orang orang goblok di akhir. Kicau kicau mania
+	<br><br>
 	CEO belum tentu owner perusahaan dan komisaris belum tentu owner perusahan ya. kalo owner perusahan berdasarkan akta pendirian perusahaan itu sudah jelas statusnya owner perusahaan di mata hukum
 	<br><br>
 	itu kenapa selevel pejabat notaris hormat sama gue tanpa di setir orang tua gue lebih paham hukum
