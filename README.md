@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	The chiken chiken of HRD how are your everyday ? hahahaha
+	<br><br>
 	Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya HRD pintar dulu test gue.
 	<br><br>
 	Di periksa kelahiran 1980 ke atas masuk kerja lewat orang dalam di pemerintahan dan swasta kalo punya nyali ye. itu kalo punya nyali hahahaha atau jadi ayam selamanya hahahaha di test ulang lewat cat komputer mau dosen, polri, tni dan sejenisnya kalo punya nyali bagian sumber daya manusia atau jadi ayam selamanya hahahaha ngaku singa hrd tapi ayam kelasnya hrd HAHAHHA paham arti ayam beraninya sama lemah dulu fakta
