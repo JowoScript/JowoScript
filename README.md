@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	produk aslinya gue yang buat jadi santai gue anak IT banyak gaya sama gue jelas masuk blacklist 
+	produk aslinya gue yang buat jadi santai gue anak IT banyak gaya sama gue jelas masuk blacklist kalian mau buat cms or anything i dont care
 	<br><br>
 	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi sama orang lain ya hahaha the chiken chiken akan bermunculan
 	<br><br>
