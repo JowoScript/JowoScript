@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Siapa tidak berguna selama ini juga bukan gue ini. Paham sampai sini chiken chiken HRD. Itu resikonya kalo mainan test masuk kerja gue dulu. sekarang terlihat siapa tidak berguna di dunia kerja dan usaha. fakta ya. Hasil hire dari HRD berkualitas apa sampai sekarang 🤣. still chiken HRD
+	Siapa tidak berguna selama ini juga bukan gue ini. Paham sampai sini chiken chiken HRD. Itu resikonya kalo mainan test masuk kerja gue dulu. sekarang terlihat siapa tidak berguna di dunia kerja dan usaha. fakta ya. Hasil hire dari HRD berkualitas apa sampai sekarang 🤣 dan sudah habiskan uang berapa hahahaha. Still chiken HRD
 	<br><br>
 	Dollar naik terus harga minyak naik terus syukur. Bilang tidak ngaruh ekonomi 🤣. bukan kerjaan gue juga urus begituan. katanya pintar hrd hire orang bermutu dan berkualitas 🤣. selamat jadi ayam selamanya hrd hahahhaha
 	<br><br>
