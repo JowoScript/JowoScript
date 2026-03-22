@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Siapa tidak berguna selama ini juga bukan gue ini.
+	<br><br>
 	Dollar naik terus harga minyak naik terus goblok. Bilang tidak ngaruh ekonomi 🤣
 	<br><br>
 	Pembelian minyak mentah (crude oil) secara global umumnya menggunakan mata uang Dolar Amerika Serikat (USD)
