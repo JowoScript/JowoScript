@@ -9,8 +9,8 @@
 <div align="center">
 <strong>
 	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi sama orang lain ya hahaha the chiken chiken akan bermunculan
-	<br>
-	selama ini masih santai politikus 3 tahun lagi mulai panik
+	<br><br>
+	selama ini masih santai politikus 3 tahun lagi mulai panik siapa akan kena potong juga bukan gue ini dan gue tidak nikmati uang pemerintah juga
 	<br><br>
 	Small talk The chiken chiken of HRD in government and company how are your everyday ? hahahaha still martial arts 🤣
 	<br><br>
