@@ -12,7 +12,9 @@
 	<br><br>
 	you can't talk to me directly because you're still a chicken everyday in the world wide hahahaha 
 	<br><br>
-	Gerombolan domba suka ramai ramai seperti itu belum tentu berkualitas seperti perkumpulan ini itu dan partai partai politik kadernya siap di korbankan sembelih setiap ganti kekuasaan 
+	Gerombolan domba suka ramai ramai seperti itu belum tentu berkualitas seperti perkumpulan ini itu dan partai partai politik kadernya siap di korbankan sembelih setiap ganti kekuasaan
+	<br><br>
+	produk dan perusahaan gue buat santai terus tidak goyang ya
 	<br><br>
 	Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya HRD pintar dulu test gue.
 	<br><br>
