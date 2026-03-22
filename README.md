@@ -10,7 +10,7 @@
 <strong>
 	CEO belum tentu owner perusahaan dan komisaris belum tentu owner perusahan ya. kalo owner perusahan berdasarkan akta pendirian perusahaan itu sudah jelas statusnya owner perusahaan di mata hukum
 	<br><br>
-	itu kenapa selevel pejabat notaris hormat sama gue 
+	itu kenapa selevel pejabat notaris hormat sama gue tanpa di setir orang tua gue lebih paham hukum
 	<br><br>
 	Siapa tidak berguna selama ini juga bukan gue ini. Paham sampai sini chiken chiken HRD. Itu resikonya kalo mainan test masuk kerja gue dulu. sekarang terlihat siapa tidak berguna di dunia kerja dan usaha. fakta ya. Hasil hire dari HRD berkualitas apa sampai sekarang 🤣 dan sudah habiskan uang berapa hahahaha dan apa hasilnya. Still chiken HRD
 	<br><br>
