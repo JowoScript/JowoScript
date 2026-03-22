@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	produk aslinya gue yang buat jadi santai gue anak IT banyak gaya sama gue jelas masuk blacklist 
+	<br><br>
 	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi sama orang lain ya hahaha the chiken chiken akan bermunculan
 	<br><br>
 	selama ini masih santai politikus 3 tahun lagi mulai panik siapa akan kena potong juga bukan gue ini dan gue tidak nikmati uang pemerintah juga. Mereka kalo calon kan diri tidak keluarkan uang banyak nantinya hahahaha 
