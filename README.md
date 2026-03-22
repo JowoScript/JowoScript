@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Dollar naik terus harga minyak naik terus goblok. Bilang tidak ngaruh ekonomi 🤣
+	<br><br>
 	produk aslinya gue yang buat jadi santai dan selama gue tidak nerima uangnya juga santai. Anak IT banyak gaya sama gue jelas masuk blacklist kalian mau buat cms or anything i dont care karena gue juga sudah punya sendiri kalo hanya cms dan ai buat sendiri ya tanpa di danai beda kelas ya karena punya skill bandingkan didanai pemerintah dan invenstor 🤣 buat aplikasi di jual belum tentu balik modal sampai sekarang 
 	<br><br>
 	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi sama orang lain ya hahaha the chiken chiken akan bermunculan
