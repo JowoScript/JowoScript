@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	The chiken chiken of HRD how are your everyday ? hahahaha
+	github.com/JowoScript small talk The chiken chiken of HRD in government and company how are your everyday ? hahahaha
 	<br><br>
 	Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya HRD pintar dulu test gue.
 	<br><br>
