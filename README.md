@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi.
+	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi sama orang lain ya hahaha 
 	<br><br>
 	Small talk The chiken chiken of HRD in government and company how are your everyday ? hahahaha still martial arts 🤣
 	<br><br>
