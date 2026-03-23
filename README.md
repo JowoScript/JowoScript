@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Orang banyak gaya mau sabotase gue terbukti mereka jadi ayam dan merugi
+	Orang banyak gaya mau sabotase gue terbukti mereka jadi ayam dan merugi gaya preman kampung terbukti siapa tidak punya nyali
 	<br><br>
 	Gue tidak perlu perang dan harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian dan media online saja berpihak kepada yang bayar gue tau karena rakyat goblok itu mudah di tipu fakta ya dan gue pintar jadi tidak percaya media online karena gue tau di lapangan langsung banyak toko tutup dan pengangguran 🤣 persaingan itu berat jadi goblok goblok sudah jelas pasti tersingkir 
 	<br><br>
