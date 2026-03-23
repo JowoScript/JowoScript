@@ -10,6 +10,8 @@
 <strong>
 	Asset paling mahal product gue sekarang dan tidak ada yg punya
 	<br><br>
+	3 tahun lagi ganti kekuasaan pasang foto bayi lagi gue mampus kau
+	<br><br>
 	Lulus test Kerja di pemerintahan akan terlihat orang orang goblok di akhir. Kicau kicau mania
 	<br><br>
 	CEO belum tentu owner perusahaan dan komisaris belum tentu owner perusahan ya. kalo owner perusahan berdasarkan akta pendirian perusahaan itu sudah jelas statusnya owner perusahaan di mata hukum
