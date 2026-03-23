@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Asset paling mahal product gue sekarang dan tidak ada yg punya
+	Asset paling mahal product gue sekarang dan tidak ada yg punya dan hanya gue bisa kembangan kan
 	<br><br>
 	Siapa pegang kendali produk gue ya Muhammad Nurcahyo Pratomo bukan orang tuanya apa lagi sodara nya. jadi baik baik kalian chiken chiken dan kalo saingan gue pengangguran dan pengusaha biar mereka mati oleh persaingan makin berat
 	<br><br>
