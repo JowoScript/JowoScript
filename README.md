@@ -16,7 +16,7 @@
 	<br><br>
 	CEO belum tentu owner perusahaan dan komisaris belum tentu owner perusahan ya. kalo owner perusahan berdasarkan akta pendirian perusahaan itu sudah jelas statusnya owner perusahaan di mata hukum
 	<br><br>
-	itu kenapa selevel pejabat notaris hormat sama gue tanpa di setir orang tua gue lebih paham hukum
+	itu kenapa selevel pejabat notaris hormat sama gue tanpa di setir orang tua gue lebih paham hukum kalo teman gue goblok goblok mana paham itu notaris dan legalitas 
 	<br><br>
  teman gue banyak gaya tapi bego banyak
 	<br><br>
