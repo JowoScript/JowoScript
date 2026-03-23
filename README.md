@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Gue tidak perlu perang dan harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian
+	Gue tidak perlu perang dan harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian dan media online saja berpihak kepada yang bayar gue tau karena goblok akan mati 
 	<br><br>
 	Pejabat dan anggota partai kaya hasil korupsi masuk penjara sudah banyak, pengusaha cepat kaya hasil nipu masuk penjara juga sudah banyak ya dan assetnya hilang mereka
 	<br><br>
