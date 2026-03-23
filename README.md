@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Dollar Amerika di semua negara khususnya di Indonesia menguat pointnya tandanya amerika sudah mulai serius menunjukkan kekuatan ekonomi nya siapa lemah mereka akan mati dan gue tidak perlu perang harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian
+	Gue tidak perlu perang dan harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian
 	<br><br>
 	Pejabat dan anggota partai kaya hasil korupsi masuk penjara sudah banyak, pengusaha cepat kaya hasil nipu masuk penjara juga sudah banyak ya dan assetnya hilang mereka
 	<br><br>
