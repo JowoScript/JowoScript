@@ -12,6 +12,8 @@
 	<br><br>
 	Tua tua kalo goblok bisa jadi bahan ketawan orang banyak juga dan gue juga pasti tertawa ya. paham sampai sini. kicau kicau mania
 	<br><br>
+	Orang yang hina gue sudah habiskan uang pemerintah berapa dan apa mereka berguna untuk bangsa dan beda dengan gue di hina tidak habiskan uang negara selama ini
+	<br><br>
 	3 tahun lagi ganti kekuasaan pasang foto bayi lagi. Selama gue tidak nerima uang dan belum ada yg beli santai gue dan jika mau beli produk mahal tidak ada lewat online dan produk asli gue yg buat jadi kalo mau nipu kalian sendiri akan rugi. itu kenapa orang goblok selalu banyak gaya jadi bahan ketawan gue
 	<br><br>
 	Lulus test Kerja di pemerintahan akan terlihat orang orang goblok di akhir. Kicau kicau mania
