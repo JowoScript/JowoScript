@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Gue tidak perlu perang dan harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian dan media online saja berpihak kepada yang bayar gue tau karena rakyat goblok itu mudah di tipu fakta ya dan gue pintar jadi tidak percaya media online karena gue tau di lapangan langsung banyak toko tutup dan pengangguran 🤣
+	Gue tidak perlu perang dan harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian dan media online saja berpihak kepada yang bayar gue tau karena rakyat goblok itu mudah di tipu fakta ya dan gue pintar jadi tidak percaya media online karena gue tau di lapangan langsung banyak toko tutup dan pengangguran 🤣 persaingan itu berat jadi goblok goblok sudah jelas pasti tersingkir 
 	<br><br>
 	Pejabat dan anggota partai kaya hasil korupsi masuk penjara sudah banyak, pengusaha cepat kaya hasil nipu masuk penjara juga sudah banyak ya dan assetnya hilang mereka
 	<br><br>
