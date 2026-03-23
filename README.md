@@ -10,7 +10,7 @@
 <strong>
 	Asset paling mahal product gue sekarang dan tidak ada yg punya
 	<br><br>
-	Tua tua kalo goblok bisa jadi bahan ketawan orang banyak juga. paham sampai sini. kicau kicau mania
+	Tua tua kalo goblok bisa jadi bahan ketawan orang banyak juga dan gue juga pasti tertawa ya. paham sampai sini. kicau kicau mania
 	<br><br>
 	3 tahun lagi ganti kekuasaan pasang foto bayi lagi. Selama gue tidak nerima uang dan belum ada yg beli santai gue dan jika mau beli produk mahal tidak ada lewat online dan produk asli gue yg buat jadi kalo mau nipu kalian sendiri akan rugi. itu kenapa orang goblok selalu banyak gaya jadi bahan ketawan gue
 	<br><br>
