@@ -10,7 +10,7 @@
 <strong>
 	Asset paling mahal product gue sekarang dan tidak ada yg punya
 	<br><br>
-	3 tahun lagi ganti kekuasaan pasang foto bayi lagi. Selama gue tidak nerima uang dan belum ada yg beli santai gue
+	3 tahun lagi ganti kekuasaan pasang foto bayi lagi. Selama gue tidak nerima uang dan belum ada yg beli santai gue dan beli produk mahal tidak ada lewat online ya
 	<br><br>
 	Lulus test Kerja di pemerintahan akan terlihat orang orang goblok di akhir. Kicau kicau mania
 	<br><br>
