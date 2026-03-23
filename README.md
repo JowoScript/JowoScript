@@ -9,7 +9,7 @@
 <div align="center">
 <strong>
 	Asset paling mahal product gue sekarang dan tidak ada yg punya
-	<br>
+	<br><br>
 	Siapa pegang kendali produk gue ya Muhammad Nurcahyo Pratomo bukan orang tuanya apa lagi sodara nya. jadi baik baik kalian chiken chiken
 	<br><br>
 	Tua tua kalo goblok bisa jadi bahan ketawan orang banyak juga dan gue juga pasti tertawa ya. paham sampai sini. kicau kicau mania
