@@ -14,7 +14,7 @@
 	<br><br>
 	Asset paling mahal product gue sekarang dan tidak ada yg punya dan hanya gue bisa kembangan kan dan yg goblok akan mati oleh persaingan dan pintar akan hidup that the rules dan di modali berapa pun itu akan habis kepada perusahaan tidak berguna dan perusahaan punya hutang suruh bayar ke investor biar paham yg lemah akan mati
 	<br><br>
-	Siapa pegang kendali produk gue ya Muhammad Nurcahyo Pratomo bukan orang tuanya apa lagi sodara nya. jadi baik baik kalian chiken chiken dan kalo saingan gue pengangguran dan pengusaha biar mereka mati oleh persaingan makin berat
+	Siapa pegang kendali produk gue ya Muhammad Nurcahyo Pratomo bukan orang tuanya apa lagi sodara nya. jadi baik baik kalian chiken chiken dan kalo saingan gue pengangguran dan pengusaha biar mereka mati oleh persaingan makin berat dan kalo saingan gue pegawai pemerintah mereka juga akan mati oleh tekanan kerja
 	<br><br>
 	Tua tua kalo goblok bisa jadi bahan ketawan orang banyak juga dan gue juga pasti tertawa ya. paham sampai sini. kicau kicau mania
 	<br><br>
