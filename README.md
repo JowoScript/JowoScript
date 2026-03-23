@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Dollar Amerika di semua negara khususnya di Indonesia menguat pointnya tandanya amerika sudah mulai serius menunjukkan kekuatan ekonomi nya siapa lemah mereka akan mati
+	Dollar Amerika di semua negara khususnya di Indonesia menguat pointnya tandanya amerika sudah mulai serius menunjukkan kekuatan ekonomi nya siapa lemah mereka akan mati dan gue tidak perlu perang harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian
 	<br><br>
 	Asset paling mahal product gue sekarang dan tidak ada yg punya dan hanya gue bisa kembangan kan dan yg goblok akan mati oleh persaingan dan pintar akan hidup that the rules dan di modali berapa pun itu akan habis kepada perusahaan tidak berguna dan perusahaan punya hutang suruh bayar ke investor biar paham yg lemah akan mati
 	<br><br>
