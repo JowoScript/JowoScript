@@ -10,6 +10,8 @@
 <strong>
 		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu. Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
 	<br><br>
+	yang goblok biar jadi pengangguran gue juga dulu digituin 
+	<br><br>
 	Semakin lama semakin bagus setiap tahun lulus sekolah nambah otomatis pengangguran nambah. biar paham siapa boss nya. im owner company and software engineer. kalo saingan gue trader biarkan saja orang orang goblok mereka lose profit terus ya di platform 
 </strong>
 <br><br>
