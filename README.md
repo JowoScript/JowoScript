@@ -18,7 +18,7 @@
 	<br><br>
 	orang goblok biar jadi pengangguran gue juga dulu digituin. perusahaan IT di Indonesia dan Malaysia mana lagi akan tutup. gue pengalaman mereka gaji pegawai sudah otomatis minus terus. minta modal semua ada jaminan ya siapa goblok tetap kalian. siapa goblok tetap kalian terbukti tidak bisa ikutin apa gue buat. apa lagi masuk kerja lewat orang dalam akan terlihat gobloknya
 	<br><br>
-	Semakin lama semakin bagus setiap tahun lulus sekolah nambah otomatis pengangguran nambah. biar paham siapa boss nya. im owner company and software engineer and software architecture. kalo saingan gue trader biarkan saja orang orang goblok mereka lose profit terus ya di platform dan kalo saingan gue pengangguran + miskin + skill coding biasa biasa saja biar mereka mati sendiri apa lagi tidak modal hanya banyak gaya tapi gpblok hahahaha 
+	Semakin lama semakin bagus setiap tahun lulus sekolah nambah otomatis pengangguran nambah. biar paham siapa boss nya. im owner company and software engineer and software architecture. kalo saingan gue trader biarkan saja orang orang goblok mereka lose profit terus ya di platform dan kalo saingan gue pengangguran + miskin + skill coding biasa biasa saja biar mereka mati sendiri apa lagi tidak modal hanya banyak gaya mau gratisan tapi gpblok hahahaha
 </strong>
 <br><br>
 <strong>
