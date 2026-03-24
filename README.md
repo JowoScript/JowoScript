@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Selama belum beli produk asli gue mana bisa expansion sekala besar besaran makane kalo goblok jangan banyak gaya sama gue
+	<br><br>
 		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu juga bukan kerjaan gue ini karena gue tidak kerja untuk pemerintah dan bukan kerjaan gue juga urus itu ya. 
 	<br><br>
 	Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
