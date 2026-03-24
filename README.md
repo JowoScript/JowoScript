@@ -8,7 +8,11 @@
 </div>
 <div align="center">
 <strong>
-		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu juga bukan kerjaan gue ini karena gue tidak kerja untuk pemerintah dan bukan kerjaan gue juga urus itu ya. Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
+		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu juga bukan kerjaan gue ini karena gue tidak kerja untuk pemerintah dan bukan kerjaan gue juga urus itu ya. 
+	<br><br>
+	Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
+	<br><br>
+	Orang suka merantau ke jakarta kalo tidak ada skill susah cari kerja ya jadi gue kasih tau jangan sekali-kali merantau kalo tidak punya skill apa lagi hanya handelin orang dalam sudah tidak berlaku ya 
 	<br><br>
 	orang goblok biar jadi pengangguran gue juga dulu digituin. perusahaan IT di Indonesia dan Malaysia mana lagi akan tutup. gue pengalaman mereka gaji pegawai sudah otomatis minus terus. minta modal semua ada jaminan ya siapa goblok tetap kalian. siapa goblok tetap kalian terbukti tidak bisa ikutin apa gue buat. apa lagi masuk kerja lewat orang dalam akan terlihat gobloknya
 	<br><br>
