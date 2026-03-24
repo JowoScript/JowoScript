@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-		Selama belum beli ya nonton saja ya karena anggota DPR pada mikir perutnya masing masing selama ini jadi gue juga bodo amat mau inflasi dollar naik terus nantinya 
+		Selama belum beli ya nonton saja ya karena anggota DPR pada mikir perutnya masing masing selama ini jadi gue juga bodo amat mau inflasi dollar naik terus nantinya ke Rp 20.000
 </strong>
 <br><br>
 <strong>
