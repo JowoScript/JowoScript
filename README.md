@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu. Kebijakan tidak menguntungkan DPR pasti kena coret jadi makin lama makin asik gue 
+		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu. Kebijakan tidak menguntungkan DPR pasti kena coret jadi makin lama makin asik gue. Anggota DPR kalo tidak bisa gue tunduk in biar rakyat yg urus anggota DPR 
 	<br><br>
 	Semakin lama semakin bagus setiap tahun lulus sekolah nambah otomatis pengangguran nambah. biar paham siapa boss nya. im owner company and software engineer. kalo saingan gue trader biarkan saja orang orang goblok mereka lose profit terus ya di platform 
 </strong>
