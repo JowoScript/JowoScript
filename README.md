@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Selama belum beli produk asli gue mana bisa expansion sekala besar besaran makane kalo goblok jangan banyak gaya sama gue. syukur yg suka lewat depan rumah kalo susah minta kerjaan ke gue jadi mainan gue. DPR RI saja bisa jadi mainan gue di akhir. Tidak percaya 2029 mereka pada stres sendiri. Di kira modal kampanye itu murah dan belum tentu lolos juga ya
+	Selama belum beli produk asli gue mana bisa expansion sekala besar besaran makane kalo goblok jangan banyak gaya sama gue. syukur yg suka lewat depan rumah kalo susah minta kerjaan ke gue jadi mainan gue. DPR RI saja bisa jadi mainan gue di akhir. Tidak percaya 2029 mereka pada stres sendiri. Di kira modal kampanye itu murah dan belum tentu lolos juga ya. paham sampai sini
 	<br><br>
 		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu juga bukan kerjaan gue ini karena gue tidak kerja untuk pemerintah dan bukan kerjaan gue juga urus itu ya. 
 	<br><br>
