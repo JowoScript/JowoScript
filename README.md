@@ -10,7 +10,7 @@
 <strong>
 		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu. Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
 	<br><br>
-	orang goblok biar jadi pengangguran gue juga dulu digituin. perusahaan IT di Indonesia dan Malaysia mana lagi akan tutup. gue pengalaman mereka gaji pegawai sudah otomatis minus terus
+	orang goblok biar jadi pengangguran gue juga dulu digituin. perusahaan IT di Indonesia dan Malaysia mana lagi akan tutup. gue pengalaman mereka gaji pegawai sudah otomatis minus terus dan produk palsu gue di gunakan mereka sendiri kena 
 	<br><br>
 	Semakin lama semakin bagus setiap tahun lulus sekolah nambah otomatis pengangguran nambah. biar paham siapa boss nya. im owner company and software engineer. kalo saingan gue trader biarkan saja orang orang goblok mereka lose profit terus ya di platform 
 </strong>
