@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Toko saja kalo jualan mahal sudah pasti ganti toko lain pembeli nya kalo hanya satu satunya yg punya beda cerita mau harga mahal itu hak pribadi gue
+	Toko saja kalo jualan mahal sudah pasti ganti toko lain pembeli nya kalo hanya satu satunya yg punya beda cerita mau harga mahal itu hak pribadi gue itu kenapa kalo sok pintar bisnis doang bukan level gue ya
 	<br><br>
 	Selama belum beli produk asli gue mana bisa expansion sekala besar besaran makane kalo goblok jangan banyak gaya sama gue. syukur yg suka lewat depan rumah kalo susah minta kerjaan ke gue jadi mainan gue. DPR RI saja bisa jadi mainan gue di akhir. Tidak percaya 2029 mereka pada stres sendiri. Di kira modal kampanye itu murah dan belum tentu lolos juga ya. paham sampai sini. Selevel di daerah saja habiskan milliaran gimana nasional ya. beli suara lewat goib itu banyak dari dulu dari teman bisa musuhan di partai. pengetahuan gue lebih banyak ya
 	<br><br>
