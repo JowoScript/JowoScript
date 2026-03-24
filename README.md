@@ -9,6 +9,8 @@
 <div align="center">
 <strong>
 		Selama belum beli ya nonton saja ya karena anggota DPR pada mikir perutnya masing masing selama ini jadi gue juga bodo amat mau inflasi dollar naik terus nantinya ke Rp 20.000
+	<br><br>
+	Semakin lama semakin bagus setiap tahun lulus sekolah nambah otomatis pengangguran nambah. biar paham siapa boss nya 
 </strong>
 <br><br>
 <strong>
