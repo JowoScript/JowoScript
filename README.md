@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	sesama profesi dokter saja bersaing di rumah sakit walaupun gue bukan dokter contoh tidak kuat fisik tugas bisa resign karena rumah sakit kasih target juga 🤣👻. my knowledge is powerful then everything
+	<br><br>
 	Bengkel saja kalo tukang goblok dan nipu juga konsumen males datang ya seperti itu bukan jadi pengetahuan gue lebih banyak ya contoh onderdil tidak di ganti tapi harus di ganti itu banyak bengkel begituh jadi bengkel itu kualitas dan kejujuran kalo mau laris dan harga mahal dari bengkel sebelah otomatis konsumen pindah cari yg lebih murah tidak percaya tanya bengkel laris harganya lebih murah dan tukang nya pasti jujur kecuali bengkel dalam radius 20 KM hanya bengkel satu satunya beda cerita. makane goblok jangan di pelihara kalian hahahaha pengetahuan gue lebih banyak walaupun berisik begini dan tidak mungkin bengkel sebelah dengan sebelah sama bosnya sudah pasti beda
 	<br><br>
 	Toko saja kalo jualan mahal sudah pasti ganti toko lain pembeli nya kalo hanya satu satunya yg punya beda cerita mau harga mahal itu hak pribadi gue itu kenapa kalo sok pintar bisnis doang bukan level gue ya di akhir ke siapa mau beli produk ya ke gue juga. tetangga gue hanya level distribusi galon tapi goblok sama pengetahuan gue lebih banyak contoh harga galon dari pabrik naik otomatis naik di distributor jadi jangan lebih pintar dari pengetahuan gue kalo level distributor saja dan tidak mungkin harga distributor lebih murah dari pada harga pabrik dan tidak mungkin level distributor ngatur ngatur harga pabrik yang ada lu di blacklist dari distributor 
