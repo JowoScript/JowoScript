@@ -8,59 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Orang banyak gaya mau sabotase gue terbukti mereka jadi ayam dan merugi gaya preman kampung terbukti siapa tidak punya nyali
-	<br><br>
-	Gue tidak perlu perang dan harga naik terus produk gue buat dan siapa goblok selama ini tetap kalian dan media online saja berpihak kepada yang bayar gue tau karena rakyat goblok itu mudah di tipu fakta ya dan gue pintar jadi tidak percaya media online karena gue tau di lapangan langsung banyak toko tutup dan pengangguran 🤣 persaingan itu berat jadi goblok goblok sudah jelas pasti tersingkir 
-	<br><br>
-	Pejabat dan anggota partai kaya hasil korupsi masuk penjara sudah banyak, pengusaha cepat kaya hasil nipu masuk penjara juga sudah banyak ya dan assetnya hilang mereka
-	<br><br>
-	Asset paling mahal product gue sekarang dan tidak ada yg punya dan hanya gue bisa kembangan kan dan yg goblok akan mati oleh persaingan dan pintar akan hidup that the rules dan di modali berapa pun itu akan habis kepada perusahaan tidak berguna dan perusahaan punya hutang suruh bayar ke investor biar paham yg lemah akan mati
-	<br><br>
-	Siapa pegang kendali produk gue ya Muhammad Nurcahyo Pratomo bukan orang tuanya apa lagi sodara nya. jadi baik baik kalian chiken chiken dan kalo saingan gue pengangguran dan pengusaha biar mereka mati oleh persaingan makin berat dan kalo saingan gue pegawai pemerintah mereka juga akan mati oleh tekanan kerja. makin banyak chicken chicken mania
-	<br><br>
-	Tua tua kalo goblok bisa jadi bahan ketawan orang banyak juga dan gue juga pasti tertawa ya. paham sampai sini. kicau kicau mania
-	<br><br>
-	Orang yang hina gue sudah habiskan uang pemerintah berapa dan apa mereka berguna untuk bangsa dan beda dengan gue di hina tidak habiskan uang negara selama ini
-	<br><br>
-	3 tahun lagi ganti kekuasaan pasang foto bayi lagi. Selama gue tidak nerima uang dan belum ada yg beli santai gue dan jika mau beli produk mahal tidak ada lewat online dan produk asli gue yg buat jadi kalo mau nipu kalian sendiri akan rugi. itu kenapa orang goblok selalu banyak gaya jadi bahan ketawan gue
-	<br><br>
-	Lulus test Kerja di pemerintahan akan terlihat orang orang goblok di akhir. Kicau kicau mania
-	<br><br>
-	CEO belum tentu owner perusahaan dan komisaris belum tentu owner perusahan ya. kalo owner perusahan berdasarkan akta pendirian perusahaan itu sudah jelas statusnya owner perusahaan di mata hukum
-	<br><br>
-	itu kenapa selevel pejabat notaris hormat sama gue tanpa di setir orang tua gue lebih paham hukum kalo teman gue goblok goblok mana paham itu notaris dan legalitas 
-	<br><br>
- teman gue banyak gaya tapi bego banyak
-	<br><br>
-	Siapa tidak berguna selama ini juga bukan gue ini. Paham sampai sini chiken chiken HRD. Itu resikonya kalo mainan test masuk kerja gue dulu. sekarang terlihat siapa tidak berguna di dunia kerja dan usaha. fakta ya. Hasil hire dari HRD berkualitas apa sampai sekarang 🤣 dan sudah habiskan uang berapa hahahaha dan apa hasilnya. Still chiken HRD
-	<br><br>
-	Dollar naik terus harga minyak naik terus syukur. Bilang tidak ngaruh ekonomi 🤣. bukan kerjaan gue juga urus begituan. katanya pintar hrd hire orang bermutu dan berkualitas 🤣. selamat jadi ayam selamanya hrd hahahhaha
-	<br><br>
-	Pembelian minyak mentah (crude oil) secara global umumnya menggunakan mata uang Dolar Amerika Serikat (USD)
-	<br><br>
-	produk aslinya gue yang buat jadi santai dan selama gue tidak nerima uangnya juga santai. Buat aplikasi Content Management System dan ai belum tentu balik modal sampai sekarang dan mereka putar disitu terus paham sampai sini
-	<br><br>
-	Kalo saingan gue pengangguran dan bukan non IT pastinya mudah di bodohi sama orang lain ya hahaha the chiken chiken akan bermunculan
-	<br><br>
-	selama ini masih santai politikus 3 tahun lagi mulai panik siapa akan kena potong juga bukan gue ini dan gue tidak nikmati uang pemerintah juga. Mereka kalo calon kan diri tidak keluarkan uang banyak nantinya hahahaha 
-	<br><br>
-	Small talk The chiken chiken of HRD in government and company how are your everyday ? hahahaha still martial arts 🤣
-	<br><br>
-	you can't talk to me directly because you're still a chicken everyday in the world wide hahahaha 
-	<br><br>
-	Gerombolan domba suka ramai ramai seperti itu belum tentu berkualitas seperti perkumpulan ini itu dan partai partai politik kadernya siap di korbankan sembelih setiap ganti kekuasaan
-	<br><br>
-	produk dan perusahaan gue buat santai terus tidak goyang ya dan selama belum beli nonton saja ya dan siapa makan uang haram selama ini juga bukan gue ini
-	<br><br>
-	Piye kabare HRD siapa di hapus dari dunia ini. HRD or nepotisme. Katanya HRD pintar dulu test gue.
-	<br><br>
-	Di periksa kelahiran 1980 ke atas masuk kerja lewat orang dalam di pemerintahan dan swasta kalo punya nyali ye. itu kalo punya nyali hahahaha atau jadi ayam selamanya hahahaha di test ulang lewat cat komputer mau dosen, polri, tni dan sejenisnya kalo punya nyali bagian sumber daya manusia atau jadi ayam selamanya hahahaha ngaku singa hrd tapi ayam kelasnya hrd HAHAHHA paham arti ayam beraninya sama lemah dulu fakta
-	<br><br>
-	Beraninya sama anak didik baru coba kelahiran 1980 ke atas ditest ulang pakai cat komputer dengan anak didik baru dengan ujian cat komputer secara transparan gue jamin mumet endase 🤣 mana berani HRD atau divisi sumber daya manusia di pemerintahan dan BUMN atau BUMD atau swasta 🫣✍️📚 apa arti keadilan tidak ada bukan ini masih level urusan dunia ye gimana di akhirat hahahaha
-	<br><br>
-	Piye kabare HRD or divisi sumber daya manusia siapa di hapus dari dunia ini. HRD or nepotisme. Katanya pintar HRD gue tangtangin sekarang berani tidak jangan beraninya sama gue dulu mainin gue test cemen lu anak ayam sekarang posisi gue owner perusahaan sendiri dan kerja sendiri dan produk buat sendiri dan skill coding top level sendiri dan tidak menerima karyawan juga gue dan perusahaan gue modal sendiri dan produk aslinya gue buat sendiri dan uang bicara kalo mau beli produk gue ya dan tidak ada jaminan dari gue selama belum beli suka nipu di luar sana
-	<br><br>
-	Siapa jadi anak ayam kalian bukan divisi HRD or divisi sumber daya manusia selama ini tidak berani main adil jadilah ayam selamanya di pemerintahan dan swasta hahahaha 
+		Selama belum beli ya nonton saja ya karena anggota DPR pada mikir perutnya masing masing selama ini jadi gue juga bodo amat mau inflasi dollar naik terus nantinya 
 </strong>
 <br><br>
 <strong>
