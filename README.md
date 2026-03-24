@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu. Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
+		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu juga bukan kerjaan gue ini. Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
 	<br><br>
 	orang goblok biar jadi pengangguran gue juga dulu digituin. perusahaan IT di Indonesia dan Malaysia mana lagi akan tutup. gue pengalaman mereka gaji pegawai sudah otomatis minus terus. minta modal semua ada jaminan ya siapa goblok tetap kalian. siapa goblok tetap kalian terbukti tidak bisa ikutin apa gue buat. apa lagi masuk kerja lewat orang dalam akan terlihat gobloknya
 	<br><br>
