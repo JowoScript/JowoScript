@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Kelahiran 1980 ke atas masuk kerjanya lewat jalur orang dalam piye kabare HRD ? the chicken chicken HRD. Gayanya sok bersih HRD tapi sampah. Apa lagi yang nonton gue banyak dan gue hobi buat status dan jangkuan gue world wide ya
+	Kelahiran 1980 ke atas masuk kerjanya lewat jalur orang dalam piye kabare HRD ? the chicken chicken HRD. Gayanya sok bersih HRD tapi sampah. Apa lagi yang nonton gue banyak dan gue hobi buat status dan jangkuan gue world wide ya dan gue bisa bahasa inggris juga bego bego begini
 	<br><br>
 	sesama profesi dokter saja bersaing di rumah sakit walaupun gue bukan dokter contoh tidak kuat fisik tugas bisa resign karena rumah sakit kasih target juga 🤣👻 apa lagi dokter senior kapapun wajib standby kalo dapat panggilan dari rumah sakit contoh ada pasien kecelakaan darurat butuh operasi atau ada pasien opname butuh tindakan mendadak tidak mungkin kerjain perawat nya ya. my knowledge is powerful then everything
 	<br><br>
