@@ -10,7 +10,7 @@
 <strong>
 	Kelahiran 1980 ke atas masuk kerjanya lewat jalur orang dalam piye kabare HRD ? the chicken chicken HRD. Gayanya sok bersih HRD tapi sampah. Apa lagi yang nonton gue banyak dan gue hobi buat status dan jangkuan gue world wide ya. Siapa malu HRD bukan the chicken. Manusia jadi sampah akan terlihat di dunia kerja paham HRD 
 	<br><br>
-	Kalo ada pengusaha miskin mau beli produk gue tidak punya uang ya gue ketawa dong paham arti miskin bukan ? saldo rekening tidak mencukupi beli produk gue dan orang kaya asli di lihat isi rekening dan asset nya. Bank saja tidak punya asset produk gue tandanya miskin juga
+	Kalo ada pengusaha miskin mau beli produk gue tidak punya uang ya gue ketawa dong paham arti miskin bukan ? saldo rekening tidak mencukupi beli produk gue dan orang kaya asli di lihat isi rekening dan asset nya. Bank saja tidak punya asset produk gue tandanya miskin juga dan Bank kalo bangkrut apa yang di jual untuk bayar hutang ? asset bukan paham sampai sini.
 	<br><br>
 	sesama profesi dokter saja bersaing di rumah sakit walaupun gue bukan dokter contoh tidak kuat fisik tugas bisa resign karena rumah sakit kasih target juga 🤣👻 apa lagi dokter senior kapapun wajib standby kalo dapat panggilan dari rumah sakit contoh ada pasien kecelakaan darurat butuh operasi atau ada pasien opname butuh tindakan mendadak tidak mungkin kerjain perawat nya ya. my knowledge is powerful then everything
 	<br><br>
