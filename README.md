@@ -10,6 +10,8 @@
 <strong>
 	Kelahiran 1980 ke atas masuk kerjanya lewat jalur orang dalam piye kabare HRD ? the chicken chicken HRD. Gayanya sok bersih HRD tapi sampah. Apa lagi yang nonton gue banyak dan gue hobi buat status dan jangkuan gue world wide ya. Siapa malu HRD bukan the chicken. Manusia jadi sampah akan terlihat di dunia kerja paham HRD 
 	<br><br>
+	Kalo ada pengusaha miskin mau beli produk gue tidak punya uang ya gue ketawa dong
+	<br><br>
 	sesama profesi dokter saja bersaing di rumah sakit walaupun gue bukan dokter contoh tidak kuat fisik tugas bisa resign karena rumah sakit kasih target juga 🤣👻 apa lagi dokter senior kapapun wajib standby kalo dapat panggilan dari rumah sakit contoh ada pasien kecelakaan darurat butuh operasi atau ada pasien opname butuh tindakan mendadak tidak mungkin kerjain perawat nya ya. my knowledge is powerful then everything
 	<br><br>
 	Bengkel saja kalo tukang goblok dan nipu juga konsumen males datang ya seperti itu bukan jadi pengetahuan gue lebih banyak ya contoh onderdil tidak di ganti tapi harus di ganti itu banyak bengkel begituh jadi bengkel itu kualitas dan kejujuran kalo mau laris dan harga mahal dari bengkel sebelah otomatis konsumen pindah cari yg lebih murah tidak percaya tanya bengkel laris harganya lebih murah dan tukang nya pasti jujur kecuali bengkel dalam radius 20 KM hanya bengkel satu satunya beda cerita. makane goblok jangan di pelihara kalian hahahaha pengetahuan gue lebih banyak walaupun berisik begini dan tidak mungkin bengkel sebelah dengan sebelah sama bosnya sudah pasti beda
