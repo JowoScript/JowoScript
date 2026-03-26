@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	IKN sudah jadi saja pns tidak ada yang mau pindah.
+	IKN sudah jadi saja pns tidak ada yang mau pindah ke Kalimantan Timur
 	<br><br>
 	Lulus kuliah banyak jadi pengangguran mau itu kedinasan dan bukan mau itu universitas negeri atau swasta hanya status saja ya tidak penting bagi gue ya. Karena persaingan makin berat dan lulusan makin banyak mau di Indonesia dan luar negeri itu sama ya
 	<br><br>
