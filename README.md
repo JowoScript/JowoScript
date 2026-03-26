@@ -12,6 +12,8 @@
 	<br><br>
 	Status pns dan pppk saja satu kementrian sudah ribuan dan menghabiskan uang pemerintah banyak sekali belum tentu ya bagus hasilnya 
 </strong>
+
+	<br><br>
 <strong>
 	Introduction
 </strong>
