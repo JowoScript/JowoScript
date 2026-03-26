@@ -8,29 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Kelahiran 1980 ke atas masuk kerjanya lewat jalur orang dalam piye kabare HRD ? the chicken chicken HRD. Gayanya sok bersih HRD tapi sampah. Apa lagi yang nonton gue banyak dan gue hobi buat status dan jangkuan gue world wide ya. Siapa malu HRD bukan the chicken. Manusia jadi sampah akan terlihat di dunia kerja paham HRD 
-	<br><br>
-	Kalo ada pengusaha miskin mau beli produk gue tidak punya uang ya gue ketawa dong paham arti miskin bukan ? saldo rekening tidak mencukupi beli produk gue dan orang kaya asli di lihat isi rekening dan asset nya. Bank saja tidak punya asset produk gue tandanya miskin juga dan Bank kalo bangkrut apa yang di jual untuk bayar hutang ? asset bukan paham sampai sini. Kenapa Asset produk gue mahal tidak ada yang punya dan bisa di gunakan senjata juga
-	<br><br>
-	sesama profesi dokter saja bersaing di rumah sakit walaupun gue bukan dokter contoh tidak kuat fisik tugas bisa resign karena rumah sakit kasih target juga 🤣👻 apa lagi dokter senior kapapun wajib standby kalo dapat panggilan dari rumah sakit contoh ada pasien kecelakaan darurat butuh operasi atau ada pasien opname butuh tindakan mendadak tidak mungkin kerjain perawat nya ya. my knowledge is powerful then everything
-	<br><br>
-	Bengkel saja kalo tukang goblok dan nipu juga konsumen males datang ya seperti itu bukan jadi pengetahuan gue lebih banyak ya contoh onderdil tidak di ganti tapi harus di ganti itu banyak bengkel begituh jadi bengkel itu kualitas dan kejujuran kalo mau laris dan harga mahal dari bengkel sebelah otomatis konsumen pindah cari yg lebih murah tidak percaya tanya bengkel laris harganya lebih murah dan tukang nya pasti jujur kecuali bengkel dalam radius 20 KM hanya bengkel satu satunya beda cerita. makane goblok jangan di pelihara kalian hahahaha pengetahuan gue lebih banyak walaupun berisik begini dan tidak mungkin bengkel sebelah dengan sebelah sama bosnya sudah pasti beda
-	<br><br>
-	Toko saja kalo jualan mahal sudah pasti ganti toko lain pembeli nya kalo hanya satu satunya yg punya beda cerita mau harga mahal itu hak pribadi gue itu kenapa kalo sok pintar bisnis doang bukan level gue ya di akhir ke siapa mau beli produk ya ke gue juga. tetangga gue hanya level distribusi galon tapi goblok sama pengetahuan gue lebih banyak contoh harga galon dari pabrik naik otomatis naik di distributor jadi jangan lebih pintar dari pengetahuan gue kalo level distributor saja dan tidak mungkin harga distributor lebih murah dari pada harga pabrik dan tidak mungkin level distributor ngatur ngatur harga pabrik yang ada lu di blacklist dari distributor 
-	<br><br>
-	Selama belum beli produk asli gue mana bisa expansion sekala besar besaran makane kalo goblok jangan banyak gaya sama gue. syukur yg suka lewat depan rumah kalo susah minta kerjaan ke gue jadi mainan gue. DPR RI saja bisa jadi mainan gue di akhir. Tidak percaya 2029 mereka pada stres sendiri. Di kira modal kampanye itu murah dan belum tentu lolos juga ya. paham sampai sini. Selevel di daerah saja habiskan milliaran gimana nasional ya. beli suara lewat goib itu banyak dari dulu dari teman bisa musuhan di partai. pengetahuan gue lebih banyak ya
-	<br><br>
-		Selama belum beli ya nonton saja ya. Biar dollar tembus 20 ribu juga bukan kerjaan gue ini karena gue tidak kerja untuk pemerintah dan bukan kerjaan gue juga urus itu ya. 
-	<br><br>
-	Kebijakan tidak menguntungkan DPR pasti kena coret dari dulu begitu jadi makin lama makin asik gue dan siapa tumbang di akhir jelas DPR RI.
-	<br><br>
-	Orang suka merantau ke jakarta kalo tidak ada skill susah cari kerja ya jadi gue kasih tau jangan sekali-kali merantau kalo tidak punya skill apa lagi hanya handelin orang dalam sudah tidak berlaku ya 
-	<br><br>
-	orang goblok biar jadi pengangguran gue juga dulu digituin. perusahaan IT di Indonesia dan Malaysia mana lagi akan tutup. gue pengalaman mereka gaji pegawai sudah otomatis minus terus. minta modal semua ada jaminan ya siapa goblok tetap kalian. siapa goblok tetap kalian terbukti tidak bisa ikutin apa gue buat. apa lagi masuk kerja lewat orang dalam akan terlihat gobloknya
-	<br><br>
-	Semakin lama semakin bagus setiap tahun lulus sekolah nambah otomatis pengangguran nambah. biar paham siapa boss nya. im owner company and software engineer and software architecture. kalo saingan gue trader biarkan saja orang orang goblok mereka lose profit terus ya di platform dan kalo saingan gue pengangguran + miskin + skill coding biasa biasa saja biar mereka mati sendiri apa lagi tidak modal hanya banyak gaya mau gratisan tapi gpblok hahahaha
-</strong>
-<br><br>
+	Lulus kuliah banyak jadi pengangguran mau itu kedinasan dan bukan. Karena persaingan makin berat dan lulusan makin banyak 
 <strong>
 	Introduction
 </strong>
