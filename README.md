@@ -10,6 +10,7 @@
 <strong>
 	Lulus kuliah banyak jadi pengangguran mau itu kedinasan dan bukan mau itu universitas negeri atau swasta hanya status saja ya tidak penting bagi gue ya. Karena persaingan makin berat dan lulusan makin banyak mau di Indonesia dan luar negeri itu sama ya
 	<br><br>
+	Status pns dan pppk saja satu kementrian sudah ribuan dan menghabiskan uang pemerintah banyak sekali belum tentu ya bagus hasilnya 
 </strong>
 <strong>
 	Introduction
