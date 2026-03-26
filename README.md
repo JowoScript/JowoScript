@@ -10,6 +10,8 @@
 <strong>
 	IKN sudah jadi saja pns tidak ada yang mau pindah ke Kalimantan Timur jadi produk gagal IKN ya dan sudah habiskan uang negara berapa triliun selama bangun nya dan maintenance nya
 	<br><br>
+	Kerja di pemerintahan belum tentu hidupnya tenang setiap hari kerja dapat tekanan kerja
+	<br><br>
 	Lulus kuliah banyak jadi pengangguran mau itu kedinasan dan bukan mau itu universitas negeri atau swasta hanya status saja ya tidak penting bagi gue ya. Karena persaingan makin berat dan lulusan makin banyak mau di Indonesia dan luar negeri itu sama ya dan gue tetap santai kalo saingan gue pengangguran dan pengusaha karena mereka belum tentu mampu buat dan gue jamin pasti gagal total mereka buat
 	<br><br>
 	Status pns dan pppk saja satu kementrian sudah ribuan dan menghabiskan uang pemerintah banyak sekali belum tentu ya bagus hasilnya
