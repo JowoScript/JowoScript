@@ -13,7 +13,7 @@
 	Status pns dan pppk saja satu kementrian sudah ribuan dan menghabiskan uang pemerintah banyak sekali belum tentu ya bagus hasilnya 
 </strong>
 
-	<br><br>
+	<Baru 4 tahun berdiri perusahaan gue sendiri>
 <strong>
 	Introduction
 </strong>
