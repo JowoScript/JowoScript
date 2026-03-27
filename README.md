@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri 
+	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga
 	<br><br>
 	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha. 
 	<br><br>
