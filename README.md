@@ -10,7 +10,7 @@
 <strong>
 	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga dan mau di keroyok 1 bumi programmer juga tidak ada yg bisa buat produk gue sekarang 
 	<br><br>
-	Selama ini di hitung saja dulu proyek IKN di Kalimantan Timur sudah habiskan uang negara berapa triliun sampai benar benar jadi semuanya. Terus siap siap saja bola panasnya
+	Selama ini di hitung saja dulu proyek IKN di Kalimantan Timur sudah habiskan uang negara berapa triliun sampai benar benar jadi semuanya. Terus siap siap saja kalo sampai PNS tidak mau nempatin.
 	<br><br>
 	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha. Di pikir secara logika Anak istri atau suami tidak pindah apa kalo salah satu pindah ke Kalimantan Timur. Berapa Kartu Keluarga akan pindah nantinya belum anaknya kalo sekolah apa ikut pindah juga ?
 	<br><br>
