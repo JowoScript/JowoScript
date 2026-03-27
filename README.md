@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	IKN di Kalimantan Timur jika tidak di tempatkan oleh PNS di kementerian akan menjadi aib besar bagi sejarah indonesia di masa depan dan siapa pegagasnya juga termasuk bisa hilang malunya
+	<br><br>
 	IKN sudah jadi saja pns tidak ada yang mau pindah ke Kalimantan Timur jadi produk gagal IKN ya dan sudah habiskan uang negara berapa triliun selama bangun nya dan maintenance nya
 	<br><br>
 	Gue tetap di pulau jawa dan gue bukan pns juga mampus kau banyak gaya sama gue. Syukur PNS di kementerian dan polri pada pindah ke IKN di Kalimantan Timur karena pusat pemerintahan disana. BKN pusat juga pindah ke IKN Kalimantan Timur syukur
