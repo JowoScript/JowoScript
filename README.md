@@ -67,15 +67,14 @@
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-
-#### produk asset mahal bukan untuk orang miskin
+#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
 <img src="Kingdom Technology 0.1.50.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### produk asset mahal bukan untuk orang miskin
+#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
@@ -83,8 +82,7 @@
      height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-
-#### produk asset mahal bukan untuk orang miskin
+#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
 
 #### Only work in my new programing language
 
@@ -101,7 +99,7 @@
      width="100%" height="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### produk asset mahal bukan untuk orang miskin
+#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
