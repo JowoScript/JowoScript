@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen 
+	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha 
 	<br><br>
 	IKN di Kalimantan Timur jika tidak di tempatkan oleh PNS di kementerian akan menjadi aib besar bagi sejarah indonesia di masa depan dan siapa pegagasnya juga termasuk bisa hilang malunya dan siapa wujudkan juga akan hilang malunya. Tidak semua PNS, TNI dan polri, DPR RI mau pindah ke IKN di Kalimantan timur untuk tinggal secara permanen disana. tidak percaya waktu akan bicara sesuai prediksi gue
 	<br><br>
