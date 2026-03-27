@@ -83,6 +83,9 @@
      height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
+
+#### produk asset mahal bukan untuk orang miskin
+
 #### Only work in my new programing language
 
 <img src="this new transform technology product PT JowoScript Technology Indonnesia with license.png" 
