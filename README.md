@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	IKN di Kalimantan Timur jika tidak di tempatkan oleh PNS di kementerian akan menjadi aib besar bagi sejarah indonesia di masa depan dan siapa pegagasnya juga termasuk bisa hilang malunya dan siapa wujudkan juga akan hilang malunya. Tidak semua PNS, TNI dan polri, DPR RI mau pindah ke IKN di Kalimantan timur untuk tinggal secara permanen disana
+	IKN di Kalimantan Timur jika tidak di tempatkan oleh PNS di kementerian akan menjadi aib besar bagi sejarah indonesia di masa depan dan siapa pegagasnya juga termasuk bisa hilang malunya dan siapa wujudkan juga akan hilang malunya. Tidak semua PNS, TNI dan polri, DPR RI mau pindah ke IKN di Kalimantan timur untuk tinggal secara permanen disana. tidak percaya waktu akan bicara sesuai prediksi gue
 	<br><br>
 	IKN sudah jadi saja pns tidak ada yang mau pindah ke Kalimantan Timur jadi produk gagal IKN ya dan sudah habiskan uang negara berapa triliun selama bangun nya dan maintenance nya
 	<br><br>
