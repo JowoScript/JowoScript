@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang
+	<br><br>
 	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha. 
 	<br><br>
 	Baik baik IKN ya Bangunan kota yang sudah jadi tetapi tidak laku (menjadi kota hantu atau mangkrak) umumnya disebabkan oleh lokasi yang sulit dijangkau. Siapa bayar kerugian negara nantinya baik baik ya. Ini akan menjadi senjata politik Pilpres di 2029. The checkmate forever
