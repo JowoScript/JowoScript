@@ -12,6 +12,8 @@
 	<br><br>
 	Selama ini di hitung saja dulu proyek IKN di Kalimantan Timur sudah habiskan uang negara berapa triliun sampai benar benar jadi semuanya. Terus siap siap saja kalo sampai PNS di semua kementrian tidak mau nempatin IKN di Kalimantan Timur.
 	<br><br>
+	Contoh 1 kementrian ada 400 orang pegawai otomatis 400 KK pindah ke Kalimantan Timur ? Mana mau mereka. gue akan tertawa lagi
+	<br><br>
 	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha. Di pikir secara logika Anak istri atau suami tidak pindah apa kalo salah satu pindah ke Kalimantan Timur. Berapa Kartu Keluarga akan pindah nantinya belum anaknya kalo sekolah apa ikut pindah juga ?
 	<br><br>
 	Baik baik IKN ya Bangunan kota yang sudah jadi tetapi tidak laku (menjadi kota hantu atau mangkrak) umumnya disebabkan oleh lokasi yang sulit dijangkau. Siapa bayar kerugian negara nantinya baik baik ya. Ini akan menjadi senjata politik Pilpres di 2029. Di kira gampang pindahin pejabat aktif di semua kementerian pindah ke Kalimantan Timur belum staffnya dan keluarganya. Birokrasi itu tidak semudah bicara saja. The checkmate forever
