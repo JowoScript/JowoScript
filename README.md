@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga dan mau di keroyok 1 bumi programmer juga tidak ada yg bisa buat produk gue sekarang.
+	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga dan mau di keroyok 1 bumi programmer juga tidak ada yg bisa buat produk gue sekarang. Gue tetap santai kambing hitamnya tetap programmer di pemerintahan atau swasta kalo nyerang gue
 	<br><br>
 	Selama ini di hitung saja dulu proyek IKN di Kalimantan Timur sudah habiskan uang negara berapa triliun sampai benar benar jadi semuanya. Terus siap siap saja kalo sampai PNS di semua kementrian tidak mau nempatin IKN di Kalimantan Timur. Siap siap ganti rugi dan ada harus di salahkan di pemerintahan. politik itu mudah bukan Aueo 2028 
 	<br><br>
