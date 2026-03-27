@@ -10,7 +10,7 @@
 <strong>
 	IKN sudah jadi saja pns tidak ada yang mau pindah ke Kalimantan Timur jadi produk gagal IKN ya dan sudah habiskan uang negara berapa triliun selama bangun nya dan maintenance nya
 	<br><br>
-	Gue tetap di pulau jawa. Syukur PNS di kementerian pada pindah ke IKN fi Kalimantan Timur siapa tertawa di akhir itu gue selalu
+	Gue tetap di pulau jawa. Syukur PNS di kementerian pada pindah ke IKN di Kalimantan Timur siapa tertawa di akhir itu gue selalu
 	<br><br>
 	Badan Kepegawaian Negara Indonesia setiap tahun kerjanya apa habis kan uang negara saja bisanya apa yang di bamggakan hasil test dari bkn selama ini tidak ada
 	<br><br>
