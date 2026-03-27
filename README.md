@@ -10,7 +10,7 @@
 <strong>
 	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha. 
 	<br><br>
-	Baik baik IKN ya Bangunan kota yang sudah jadi tetapi tidak laku (menjadi kota hantu atau mangkrak) umumnya disebabkan oleh lokasi yang sulit dijangkau. The checkmate forever
+	Baik baik IKN ya Bangunan kota yang sudah jadi tetapi tidak laku (menjadi kota hantu atau mangkrak) umumnya disebabkan oleh lokasi yang sulit dijangkau. Siapa bayar kerugian negara nantinya baik baik ya. The checkmate forever
 	<br><br>
 	IKN di Kalimantan Timur jika tidak di tempatkan oleh PNS di kementerian akan menjadi aib besar bagi sejarah indonesia di masa depan dan siapa pegagasnya juga termasuk bisa hilang malunya dan siapa wujudkan juga akan hilang malunya. Tidak semua PNS, TNI dan polri, DPR RI mau pindah ke IKN di Kalimantan timur untuk tinggal secara permanen disana. tidak percaya waktu akan bicara sesuai prediksi gue
 	<br><br>
