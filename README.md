@@ -74,7 +74,7 @@
      height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Selama belum di beli akan terlihat siapa yang tidak berguna
+#### produk asset mahal bukan untuk orang miskin
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
@@ -97,7 +97,7 @@
      width="100%" height="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Selama belum di beli akan terlihat siapa yang tidak berguna
+#### produk asset mahal bukan untuk orang miskin
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
