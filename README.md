@@ -10,6 +10,8 @@
 <strong>
 	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga dan mau di keroyok 1 bumi programmer juga tidak ada yg bisa buat produk gue sekarang 
 	<br><br>
+	Selama ini di hitung saja proyek IKN di Kalimantan Timur sudah habiskan uang negara berapa triliun gituh gampang 
+	<br><br>
 	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha. Di pikir secara logika Anak istri atau suami tidak pindah apa kalo salah satu pindah ke Kalimantan Timur. Berapa Kartu Keluarga akan pindah nantinya belum anaknya kalo sekolah apa ikut pindah juga ?
 	<br><br>
 	Baik baik IKN ya Bangunan kota yang sudah jadi tetapi tidak laku (menjadi kota hantu atau mangkrak) umumnya disebabkan oleh lokasi yang sulit dijangkau. Siapa bayar kerugian negara nantinya baik baik ya. Ini akan menjadi senjata politik Pilpres di 2029. Di kira gampang pindahin pejabat aktif di semua kementerian pindah ke Kalimantan Timur. Birokrasi itu tidak semudah bicara saja. The checkmate forever
