@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	2029 PNS, TNI dan POLRI ikut milih pilpres dan cawapres jadi paham ya karena gue suka merajakan (menjadikan raja) orang orang pintar dulu tapi goblok aslinya paham sampai sini ✍️📚🙂😎 sudah habiskan uang negara berapa triliun selama ini IKN di Kalimantan Timur dalam proyek dan siapa mau tinggal netap di Kalimantan Timur ? gue jelas ogah ya kasihan deh lu
+	2029 PNS, TNI dan POLRI ikut milih pilpres dan cawapres jadi paham ya karena gue suka merajakan (menjadikan raja) orang orang pintar dulu tapi goblok aslinya paham sampai sini ✍️📚🙂😎 sudah habiskan uang negara berapa triliun selama ini IKN di Kalimantan Timur dalam proyek dan siapa mau tinggal netap di Kalimantan Timur ? gue jelas ogah ya kasihan deh lu. kalo asn, polri dan tni kalian suruh tinggal di Kalimantan Timur itu bukan urusan gue ya.
 	<br><br>
 	Produk gue buat selama ini tidak menggunakan uang negara dan investor jadi santai 
 	<br><br>
