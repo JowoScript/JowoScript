@@ -10,7 +10,7 @@
 <strong>
 	Musuh gue dan teman bermuka dua merasa penting di dunia kerja ? coba 1 minggu tidak masuk kerja jika perusahaan atau instansi itu masih berjalan tandanya kalian tidak penting ya itu bedanya orang cerdas dan gpblok
 	<br><br>
-	Gue tetap tenang dimana perusahaan, bank, fintech (pinjol), asuransi dan pemerintah pada krisis keuangan karena tidak berguna akan terlihat dan pejabat aktif di pemerintahan juga akan terlihat tidak berguna
+	Gue tetap tenang dimana perusahaan, bank, fintech (pinjol), asuransi dan pemerintah pada krisis keuangan karena tidak berguna akan terlihat dan pejabat aktif di pemerintahan juga akan terlihat tidak berguna di Malaysia juga sama ya jangan bangga dulu warga Malaysia 
 	<br><br>
 	The chicken chicken kerja di kementerian dan lembaga pindah ke IKN di Kalimantan Timur mana mau mereka. Gue tetap di pulau jawa lebih enak. syukur kalian kerja di kementerian, badan dan lembaga selama ini semua akan di pindahkan 
 	<br><br>
