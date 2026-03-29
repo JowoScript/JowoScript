@@ -10,7 +10,7 @@
 <strong>
 	Musuh gue dan teman bermuka dua merasa penting di dunia kerja ? coba 1 minggu tidak masuk kerja jika perusahaan atau instansi itu masih berjalan tandanya kalian tidak penting ya itu bedanya orang cerdas dan gpblok.
 	<br><br>
-	Gelar gue cukup sarjana tapi skill doktor dan profesor karena gelar tinggi dan banyak akan di tanya di dunia kerja selama ini simple logic 
+	Gelar gue cukup sarjana tapi skill doktor dan profesor karena gelar tinggi dan banyak gelar akan di tanya di dunia kerja selama ini simple logic 
 	<br><br>
 	Gue tetap tenang dimana perusahaan, bank, fintech (pinjol), asuransi dan pemerintah pada krisis keuangan karena tidak berguna akan terlihat dan pejabat aktif di pemerintahan juga akan terlihat tidak berguna di Malaysia juga sama ya jangan bangga dulu warga Malaysia. orang orang goblok bisanya nyuruh orang kerja tapi belum tentu bisa kerja yang nyuruh
 	<br><br>
