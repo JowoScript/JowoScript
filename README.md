@@ -1,4 +1,4 @@
-why<div align="center">
+<div align="center">
 <a href="https://github.com/JowoScript" target="_self">
 <img src="Logo PT JowoScript Technology Indonesia 128x128.png" 
      title="PT JowoScript Technology Indonesia"
