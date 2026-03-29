@@ -10,6 +10,8 @@
 <strong>
 	Musuh gue dan teman bermuka dua merasa penting di dunia kerja ? coba 1 minggu tidak masuk kerja jika perusahaan atau instansi itu masih berjalan tandanya kalian tidak penting ya itu bedanya orang cerdas dan gpblok
 	<br><br>
+	Gue tetap tenang dimana perusahaan lain pada krisis keuangan 
+	<br><br>
 	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga dan tidak ada yang bisa kembangkan juga dan mau di keroyok 1 bumi programmer juga tidak ada yg bisa buat produk gue sekarang apa lagi kembangkan ya dan hanya buat produk bisa kembangkan itu aturan basic dari dulu itu kenapa orang goblok mau sabotase gue di akhir mereka mati secara berkelompok tidak sadar skill dan pengalaman dan pengetahuan. Gue tetap santai kambing hitamnya tetap programmer di pemerintahan atau swasta kalo nyerang gue. Siapa tidak berguna juga bukan gue ya
 	<br><br>
 	Selama ini di hitung saja dulu proyek IKN di Kalimantan Timur sudah habiskan uang negara berapa triliun sampai benar benar jadi semuanya. Terus siap siap saja kalo sampai PNS di semua kementrian tidak mau nempatin IKN di Kalimantan Timur. Siap siap ganti rugi dan ada harus di salahkan di pemerintahan. politik itu mudah bukan Aueo 2028 
