@@ -10,6 +10,8 @@
 <strong>
 	Besok sudah hari senin ya cepat bukan waktu libur sekolah 🤣. orang orang goblok akan bermunculan lagi di dunia kerja 🤣. Karena gue senang melihat raja atau ratu orang orang sok pintar tapi goblok aslinya contohnya di video reels random facebook sudah banyak belum reels medsos lainya. Kalo pengangguran biarkan saja selama belum beli nonton saja. biar merasa sok pintar selama ini akan jadi bahan ketawaan gue selama ini karena barang palsu itu untuk pemasaran marketing saja bagi gue selama ini tidak di jual asli nya
 	<br><br>
+	Contoh Suami kerja di kementerian Perhubungan pindah ke Kalimantan Timur dan istri kerja pegawai swasta akan terjadi percekcokan berat otomatis ya di dalam 1 Kartu Keluarga dan hitung saja berapa KK. Jadi jangan salah pilih nanti 2029 salah pilih kalian sendiri akan rugi
+	<br><br>
 	2029 PNS, TNI dan POLRI ikut milih pilpres dan cawapres jadi paham ya karena gue suka merajakan (menjadikan raja) orang orang pintar dulu tapi goblok aslinya paham sampai sini ✍️📚🙂😎 sudah habiskan uang negara berapa triliun selama ini IKN di Kalimantan Timur dalam proyek dan siapa mau tinggal netap di Kalimantan Timur ? gue jelas ogah ya kasihan deh lu. kalo asn, polri dan tni kalian suruh tinggal di Kalimantan Timur itu bukan urusan gue ya. ngapain iri sama orang orang goblok selama ini gue hanya kasih tau dari sekarang saja ✍️🙂😎
 	<br><br>
 	Produk gue buat selama ini tidak menggunakan uang negara dan investor jadi santai 
