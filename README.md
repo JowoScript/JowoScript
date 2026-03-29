@@ -12,7 +12,7 @@
 	<br><br>
 	Gue tetap tenang dimana perusahaan, bank, fintech (pinjol), asuransi dan pemerintah pada krisis keuangan karena tidak berguna akan terlihat 
 	<br><br>
-	The chicken chicken kerja di kementerian dan lembaga pindah ke IKN di Kalimantan Timur mana mau mereka
+	The chicken chicken kerja di kementerian dan lembaga pindah ke IKN di Kalimantan Timur mana mau mereka. Gue tetap di pulau jawa lebih enak. syukur kalian kerja di kementerian dan lembaga selama ini
 	<br><br>
 	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga dan tidak ada yang bisa kembangkan juga dan mau di keroyok 1 bumi programmer juga tidak ada yg bisa buat produk gue sekarang apa lagi kembangkan ya dan hanya buat produk bisa kembangkan itu aturan basic dari dulu itu kenapa orang goblok mau sabotase gue di akhir mereka mati secara berkelompok tidak sadar skill dan pengalaman dan pengetahuan. Gue tetap santai kambing hitamnya tetap programmer di pemerintahan atau swasta kalo nyerang gue. Siapa tidak berguna juga bukan gue ya
 	<br><br>
