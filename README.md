@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	2029 PNS ikut milih pilpres dan cawapres jadi paham ya karena gue suka merajakan orang orang pintar dulu tapi goblok aslinya 
+	<br><br>
 	Musuh gue dan teman bermuka dua merasa penting di dunia kerja ? coba 1 minggu tidak masuk kerja jika perusahaan atau instansi itu masih berjalan tandanya kalian tidak penting ya itu bedanya orang cerdas dan gpblok.
 	<br><br>
 	Gelar gue cukup sarjana tapi skill doktor dan profesor karena gelar tinggi dan banyak gelar akan di tanya di dunia kerja selama ini simple logic. Gimana kesombongan banyak gelar selama ini akan menjadi senjata di dalam diri kalian sendiri filosofi by me Muhammad Nurcahyo Pratomo. Fans gue makin banyak chicken chicken di dunia kerja hahahaha 
