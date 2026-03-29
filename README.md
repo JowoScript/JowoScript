@@ -8,7 +8,7 @@ why<div align="center">
 </div>
 <div align="center">
 <strong>
-	Besok sudah hari senin ya cepat bukan waktu libur sekolah 🤣. orang orang goblok akan bermunculan lagi di dunia kerja 🤣. Karena gue senang menjadikan raja dan ratu orang orang sok pintar tapi goblok aslinya contohnya di video reels random facebook sudah banyak belum reels medsos lainya
+	Besok sudah hari senin ya cepat bukan waktu libur sekolah 🤣. orang orang goblok akan bermunculan lagi di dunia kerja 🤣. Karena gue senang menjadikan raja dan ratu di dalam permainan orang orang sok pintar tapi goblok aslinya contohnya di video reels random facebook sudah banyak belum reels medsos lainya
 	<br><br>
 	2029 PNS, TNI dan POLRI ikut milih pilpres dan cawapres jadi paham ya karena gue suka merajakan (menjadikan raja) orang orang pintar dulu tapi goblok aslinya paham sampai sini ✍️📚🙂😎 sudah habiskan uang negara berapa triliun selama ini IKN di Kalimantan Timur dalam proyek dan siapa mau tinggal netap di Kalimantan Timur ? gue jelas ogah ya kasihan deh lu. kalo asn, polri dan tni kalian suruh tinggal di Kalimantan Timur itu bukan urusan gue ya. ngapain iri sama orang orang goblok selama ini gue hanya kasih tau dari sekarang saja ✍️🙂😎
 	<br><br>
