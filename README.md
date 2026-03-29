@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Orang goblok dan dungu masih bisa di setir beda dengan orang cerdas tidak bisa di setir
+	Orang goblok dan dungu masih bisa di setir dan kerjaan masih minta orang tuanya beda dengan orang cerdas tidak bisa di setir
 	<br><br>	
 	Besok sudah hari senin ya cepat bukan waktu libur sekolah 🤣. orang orang goblok akan bermunculan lagi di dunia kerja 🤣. Karena gue senang melihat raja atau ratu orang orang sok pintar tapi goblok aslinya contohnya di video reels random facebook sudah banyak belum reels medsos lainya. Kalo pengangguran biarkan saja selama belum beli nonton saja. biar merasa sok pintar selama ini akan jadi bahan ketawaan gue selama ini karena barang palsu itu untuk pemasaran marketing saja bagi gue selama ini tidak di jual asli nya
 	<br><br>
