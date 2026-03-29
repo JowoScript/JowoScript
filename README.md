@@ -1,4 +1,4 @@
-<div align="center">
+why<div align="center">
 <a href="https://github.com/JowoScript" target="_self">
 <img src="Logo PT JowoScript Technology Indonesia 128x128.png" 
      title="PT JowoScript Technology Indonesia"
@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Besok sudah hari senin ya cepat bukan waktu libur sekolah 🤣. orang orang goblok akan bermunculan lagi di dunia kerja 🤣. Kungfu Master the chicken chicken in office hahahaha 
+	Besok sudah hari senin ya cepat bukan waktu libur sekolah 🤣. orang orang goblok akan bermunculan lagi di dunia kerja 🤣. Karena gue senang menjadikan raja orang orang sok pintar tapi goblok aslinya 
 	<br><br>
 	2029 PNS, TNI dan POLRI ikut milih pilpres dan cawapres jadi paham ya karena gue suka merajakan (menjadikan raja) orang orang pintar dulu tapi goblok aslinya paham sampai sini ✍️📚🙂😎 sudah habiskan uang negara berapa triliun selama ini IKN di Kalimantan Timur dalam proyek dan siapa mau tinggal netap di Kalimantan Timur ? gue jelas ogah ya kasihan deh lu. kalo asn, polri dan tni kalian suruh tinggal di Kalimantan Timur itu bukan urusan gue ya. ngapain iri sama orang orang goblok selama ini gue hanya kasih tau dari sekarang saja ✍️🙂😎
 	<br><br>
