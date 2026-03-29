@@ -9,46 +9,12 @@
 <div align="center">
 <strong>
 	Orang goblok dan dungu masih bisa di setir dan kerjaan masih minta orang tuanya atau sodaranya atau kerabat nya beda dengan orang cerdas pintar tidak bisa di setir karena pintar ya paham sampai sini itu fakta di dunia kerja terlihat semua ya 
-	<br><br>	
-	Besok sudah hari senin ya cepat bukan waktu libur sekolah 🤣. orang orang goblok akan bermunculan lagi di dunia kerja 🤣. Karena gue senang melihat raja atau ratu orang orang sok pintar tapi goblok aslinya contohnya di video reels random facebook sudah banyak belum reels medsos lainya. Kalo pengangguran biarkan saja selama belum beli nonton saja. biar merasa sok pintar selama ini akan jadi bahan ketawaan gue selama ini karena barang palsu itu untuk pemasaran marketing saja bagi gue selama ini tidak di jual asli nya
-	<br><br>
-	Contoh Suami kerja di kementerian Perhubungan pindah ke Kalimantan Timur dan istri kerja pegawai swasta akan terjadi percekcokan berat otomatis ya di dalam 1 Kartu Keluarga dan hitung saja berapa kartu keluarga dalam setiap kementrian, tni dan polri. Jadi jangan salah pilih nanti 2029 salah pilih kalian sendiri akan rugi. Ada status siap di pindah tempatkan dimanapun itu perjanjian nya kalo salah pilih presiden dan wakil presiden tahun 2029
-	<br><br>
-	2029 PNS, TNI dan POLRI ikut milih pilpres dan cawapres jadi paham ya karena gue suka merajakan (menjadikan raja) orang orang pintar dulu tapi goblok aslinya paham sampai sini ✍️📚🙂😎 sudah habiskan uang negara berapa triliun selama ini IKN di Kalimantan Timur dalam proyek dan siapa mau tinggal netap di Kalimantan Timur ? gue jelas ogah ya kasihan deh lu. kalo asn, polri dan tni kalian suruh tinggal di Kalimantan Timur itu bukan urusan gue ya. ngapain iri sama orang orang goblok selama ini gue hanya kasih tau dari sekarang saja ✍️🙂😎
-	<br><br>
-	Produk gue buat selama ini tidak menggunakan uang negara dan investor jadi santai 
-	<br><br>
-	Musuh gue dan teman bermuka dua merasa penting di dunia kerja ? coba 1 minggu tidak masuk kerja jika perusahaan atau instansi itu masih berjalan tandanya kalian tidak penting ya itu bedanya orang cerdas dan gpblok.
-	<br><br>
-	Gelar gue cukup sarjana tapi skill doktor dan profesor karena gelar tinggi dan banyak gelar akan di tanya di dunia kerja selama ini simple logic. Gimana kesombongan banyak gelar selama ini akan menjadi senjata di dalam diri kalian sendiri filosofi by me Muhammad Nurcahyo Pratomo. Fans gue makin banyak chicken chicken di dunia kerja hahahaha 
-	<br><br>
-	Gue tetap tenang dimana perusahaan, bank, fintech (pinjol), asuransi dan pemerintah pada krisis keuangan karena tidak berguna akan terlihat dan pejabat aktif di pemerintahan juga akan terlihat tidak berguna di Malaysia juga sama ya jangan bangga dulu warga Malaysia. orang orang goblok bisanya nyuruh orang kerja tapi belum tentu bisa kerja yang nyuruh
-	<br><br>
-	The chicken chicken kerja di kementerian dan lembaga pindah ke IKN di Kalimantan Timur mana mau mereka. Gue tetap di pulau jawa lebih enak. syukur kalian kerja di kementerian, badan dan lembaga selama ini semua akan di pindahkan 
-	<br><br>
-	Gue bangun produk tidak menggunakan uang pemerintah atau investor selama ini jadi santai tidak akan tumbang. Asset paling mahal ya tetap diri gue sendiri karena produk gue yg buat sendiri dan tidak ada yg bisa buat juga dan tidak ada yang bisa kembangkan juga dan mau di keroyok 1 bumi programmer juga tidak ada yg bisa buat produk gue sekarang apa lagi kembangkan ya dan hanya buat produk bisa kembangkan itu aturan basic dari dulu itu kenapa orang goblok mau sabotase gue di akhir mereka mati secara berkelompok tidak sadar skill dan pengalaman dan pengetahuan. Gue tetap santai kambing hitamnya tetap programmer di pemerintahan atau swasta kalo nyerang gue. Siapa tidak berguna juga bukan gue ya. Badan Kepegawaian Negara Pusat satu gedung di Jakarta Timur semua staff nya dan pejabat nya suruh pindah duluan ke IKN di Kalimantan Timur suruh menetap disana hidupnya HAHAHHA kasih contoh dulu jangan banyak gaya biar rakyat yang menilai baru menpan rb ikut juga pindah semua kesana terus kementrian pendidikan, terus kementerian perhubungan dan seterusnya 
-	<br><br>
-	Selama ini di hitung saja dulu proyek IKN di Kalimantan Timur sudah habiskan uang negara berapa triliun sampai benar benar jadi semuanya. Seperti itu bukan orang orang berguna selama ini. Terus siap siap saja kalo sampai PNS di semua kementrian tidak mau nempatin IKN di Kalimantan Timur. Siap siap ganti rugi dan ada harus di salahkan di pemerintahan. politik itu mudah bukan Aueo 2028 
-	<br><br>
-	Contoh 1 kementrian ada 400 orang pegawai otomatis 400 Kartu Keluarga (Dalam 1 Kartu Keluarga isinya minimal sudah pasti 3 orang sama anak) pindah ke Kalimantan Timur ? Mana mau mereka itu sudah jelas. gue akan tertawa lagi. SDM rendah mana bisa mikir sampai sini. Makin penuh Pengadilan Agama karena perceraian di akhir karena IKN di Kalimantan Timur
-	<br><br>
-	Proyek IKN di Kalimantan Timur kalo sudah selesai kita lihat apa pada mau pindah nantinya dan netap secara permanen di Kalimantan Timur semua penghuni PNS di kementerian hahahaha. Di pikir secara logika Anak istri atau suami tidak pindah apa kalo salah satu pindah ke Kalimantan Timur. Berapa Kartu Keluarga akan pindah nantinya belum anaknya kalo sekolah apa ikut pindah juga ? SDM rendah mana mikir beginian.
-	<br><br>
-	Baik baik IKN ya Bangunan kota yang sudah jadi tetapi tidak laku (menjadi kota hantu atau mangkrak) umumnya disebabkan oleh lokasi yang sulit dijangkau. Siapa bayar kerugian negara nantinya baik baik ya. Ini akan menjadi senjata politik Pilpres di 2029. Di kira gampang pindahin pejabat aktif di semua kementerian pindah ke Kalimantan Timur belum staffnya dan keluarganya. Birokrasi itu tidak semudah bicara saja. The checkmate forever
-	<br><br>
-	IKN di Kalimantan Timur jika tidak di tempatkan oleh PNS di kementerian akan menjadi aib besar bagi sejarah indonesia di masa depan dan siapa pegagasnya juga termasuk bisa hilang malunya dan siapa wujudkan juga akan hilang malunya. Tidak semua PNS, TNI dan polri, DPR RI mau pindah ke IKN di Kalimantan timur untuk tinggal secara permanen disana. tidak percaya waktu akan bicara sesuai prediksi gue
-	<br><br>
-	IKN sudah jadi saja pns tidak ada yang mau pindah ke Kalimantan Timur jadi produk gagal IKN ya dan sudah habiskan uang negara berapa triliun selama bangun nya dan maintenance nya
-	<br><br>
-	Gue tetap di pulau jawa dan gue bukan pns juga mampus kau banyak gaya sama gue. Syukur PNS di kementerian dan polri pada pindah ke IKN di Kalimantan Timur karena pusat pemerintahan disana. BKN pusat juga pindah ke IKN Kalimantan Timur syukur
 	<br><br>
 	Badan Kepegawaian Negara Indonesia setiap tahun kerjanya apa habis kan uang negara saja bisanya apa yang di bamggakan hasil test dari bkn selama ini tidak ada
 	<br><br>
 	Kerja di pemerintahan belum tentu hidupnya tenang setiap hari kerja dapat tekanan kerja
 	<br><br>
-	Lulus kuliah banyak jadi pengangguran mau itu kedinasan dan bukan mau itu universitas negeri atau swasta hanya status saja ya tidak penting bagi gue ya. Karena persaingan makin berat dan lulusan makin banyak mau di Indonesia dan luar negeri itu sama ya dan gue tetap santai kalo saingan gue pengangguran dan pengusaha karena mereka belum tentu mampu buat dan gue jamin pasti gagal total mereka buat
-	<br><br>
-	Status pns dan pppk saja satu kementrian sudah ribuan dan menghabiskan uang pemerintah banyak sekali belum tentu ya bagus hasilnya
+	
 </strong>
 	<br><br>
 <strong>
