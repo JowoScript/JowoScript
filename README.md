@@ -14,7 +14,7 @@
 	<br><br>
 	Kerja di pemerintahan belum tentu hidupnya tenang setiap hari kerja dapat tekanan kerja
 	<br><br>
-	Melihat orang goblok dan dungu setiap hari kerja itu senang saya tidak ada hasilnya hahaha apa lagi pimpinan nya hahahaha 
+	Melihat orang goblok dan dungu setiap hari kerja itu senang saya tidak ada hasilnya hahaha apa lagi pimpinan nya hahahaha khusus nya kerja di pemerintahan dan swasta 
 </strong>
 	<br><br>
 <strong>
