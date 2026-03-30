@@ -16,7 +16,7 @@
 	<br><br>
 	Melihat orang goblok dan dungu setiap hari kerja itu senang saya tidak ada hasilnya hahaha apa lagi pimpinan nya hahahaha khusus nya kerja di pemerintahan dan swasta 
 	<br><br>
-	Siapa korupsi juga bukan gue ini hahaha selama belum beli itu resiko
+	Siapa korupsi juga bukan gue ini hahaha selama belum beli dan gue tidak nerima uangnya itu resiko
 </strong>
 	<br><br>
 <strong>
