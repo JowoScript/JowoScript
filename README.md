@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Mau investasi di produk gue wajib bertempat tinggal di pulau Jawa khususnya banten dan dki jakarta. di luar itu gue tidak mau ya
+	<br><br>
 	Literasi hukum proyek yang disengaja sering kali menyoroti modus operandi korupsi paham sampai sini IKN di Kalimantan Timur. Gue santai tidak terlibat di proyek IKN ini. Siapa mau cuci tangan di proyek IKN Kaltim ✍️📚🤣😎🙂
 	<br><br>
 	Dalam perjanjian hukum tidak ada jaminan 10000% pegawai pemerintah pusat baik itu asn, polri dan tni wajib pindah tempat tinggal ke IKN di Kalimantan Timur. baik itu tertulis dan lisan. The checkmate forever. Melakukan pemaksaan kehendak untuk pindah tempat tinggal bisa kena pidana Pasal 335 KUHP. The checkmate lagi kalo bego itu sekolah lagi ya
