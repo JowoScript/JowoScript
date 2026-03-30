@@ -8,17 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Orang goblok dan dungu masih bisa di setir dan kerjaan masih minta orang tuanya atau sodaranya atau kerabat nya beda dengan orang cerdas pintar tidak bisa di setir karena pintar ya paham sampai sini itu fakta di dunia kerja terlihat semua ya 
-	<br><br>
-	Badan Kepegawaian Negara Indonesia setiap tahun kerjanya apa habis kan uang negara saja bisanya apa yang di bamggakan hasil test dari bkn selama ini tidak ada
-	<br><br>
-	Kerja di pemerintahan belum tentu hidupnya tenang setiap hari kerja dapat tekanan kerja
-	<br><br>
-	Melihat orang goblok dan dungu setiap hari kerja itu senang saya tidak ada hasilnya hahaha apa lagi pimpinan nya hahahaha khusus nya kerja di pemerintahan dan swasta 
-	<br><br>
-	Proyek mana lagi kena kasus
-	<br><br>
-	Siapa korupsi juga bukan gue ini hahaha selama belum beli dan gue tidak nerima uangnya itu resiko
+	Proyek gagal IKN di Kalimantan Timur walaupun sudah jadi tapi tidak di tempatkan oleh pemerintah pusat dan sudah habiskan uang negara berapa triliun IKN selama ini termasuk kategori kerugian negara karena IKN di bangun tidak menggunakan uang pribadi tapi uang negara beda dengan produk gue buat tidak menggunakan uang negara atau investor.
 </strong>
 	<br><br>
 <strong>
