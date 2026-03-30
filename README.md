@@ -10,7 +10,7 @@
 <strong>
 	Mau investasi di produk gue wajib bertempat tinggal di pulau Jawa khususnya banten dan dki jakarta. di luar itu gue tidak mau ya
 	<br><br>
-	pegawai staff Kementerian ATR/BPN, PUPR, Kesehatan, Perhubungan, dan Kehutanan akan pindah ke IKN tahun 2026 🤣 gue santai bukan asn, polri dan tni ini. hahahaha kasihan deh lu yang pindah. siapa lagi kena tendang ke IKN hahahaha 
+	pegawai staff Kementerian ATR/BPN, PUPR, Kesehatan, Perhubungan, dan Kehutanan akan pindah ke IKN tahun 2026 🤣 gue santai bukan asn, polri dan tni ini. hahahaha kasihan deh lu yang pindah. siapa lagi kena tendang ke IKN hahahaha the chicken chicken bermunculan terus
 	<br><br>
 	Literasi hukum proyek yang disengaja sering kali menyoroti modus operandi korupsi paham sampai sini IKN di Kalimantan Timur. Gue santai tidak terlibat di proyek IKN ini. Siapa mau cuci tangan di proyek IKN Kaltim ✍️📚🤣😎🙂
 	<br><br>
