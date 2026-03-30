@@ -10,7 +10,7 @@
 <strong>
 	Literasi hukum proyek yang disengaja sering kali menyoroti modus operandi korupsi paham sampai sini IKN di Kalimantan Timur. Gue santai tidak terlibat di proyek IKN ini. Siapa mau cuci tangan di proyek IKN Kaltim ✍️📚🤣😎🙂
 	<br><br>
-	Dalam perjanjian hukum tidak ada jaminan 10000% pegawai pemerintah pusat baik itu asn, polri dan tni wajib pindah tempat tinggal ke IKN di Kalimantan Timur. baik itu tertulis dan lisan. The checkmate forever. Melakukan pemaksaan kehendak untuk pindah tempat tinggal bisa kena pidana
+	Dalam perjanjian hukum tidak ada jaminan 10000% pegawai pemerintah pusat baik itu asn, polri dan tni wajib pindah tempat tinggal ke IKN di Kalimantan Timur. baik itu tertulis dan lisan. The checkmate forever. Melakukan pemaksaan kehendak untuk pindah tempat tinggal bisa kena pidana. The checkmate lagi kalo bego itu sekolah lagi ya
 	<br><br>
 	Proyek gagal IKN di Kalimantan Timur walaupun sudah jadi tapi tidak di tempatkan oleh pemerintah pusat dan sudah habiskan uang negara berapa triliun IKN selama ini termasuk kategori kerugian negara korupsi berjamaah proyek di sengaja karena IKN di bangun tidak menggunakan uang pribadi tapi uang negara beda dengan produk gue buat tidak menggunakan uang negara atau investor.
 </strong>
