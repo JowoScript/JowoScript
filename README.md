@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Mau investasi di produk gue wajib bertempat tinggal di pulau Jawa khususnya banten dan dki jakarta. di luar itu gue tidak mau ya
+    Jowo jowo technology hahahaa 
 	<br><br>
 	pegawai staff Kementerian ATR/BPN, PUPR, Kesehatan, Perhubungan, dan Kehutanan akan pindah ke IKN tahun 2026 🤣 gue santai bukan asn, polri dan tni ini. hahahaha kasihan deh lu yang pindah. siapa lagi kena tendang ke IKN hahahaha the chicken chicken bermunculan terus
 	<br><br>
