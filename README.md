@@ -8,8 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	im not iran, American and Israel. your know it and media online still stupid for it. thinking or think why media online still stupid because dont have future and No advertising, no revenue from the company. how many content creator selling products in media etc. die advertising
-	
+	im not iran, American and Israel. your know it and media online still stupid for it. thinking or think why media online still stupid because dont have future and No advertising, no revenue from the company. how many content creator selling products in media etc. die advertising otomatic
 	<br><br>
 	Di lihat saja perusahaan go publik banyak sekarat di Indonesia. Japan saja kasih warning ke perusahaan di Indonesia yang ada hutang belum di bayar dari industri baja ada belum yang lain. bukan urusan gue juga dan bukan perusahaan gue juga ini siapa yg nikmati uangnya selama ini juga bukan gue ya giliran banyak hutang ngemis ngemis ke pemerintah hahahaha dan jangan mgemis ke gue juga ya Hahahhaa karena tidak bisa bersaing bismis
 	<br><br>
