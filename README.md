@@ -10,13 +10,7 @@
 <strong>
     Jowo jowo technology hahahaa menyala terus penonton hahahaha 
 	<br><br>
-	pegawai staff Kementerian ATR/BPN, PUPR, Kesehatan, Perhubungan, dan Kehutanan akan pindah ke IKN tahun 2026 🤣 gue santai bukan asn, polri dan tni ini. hahahaha kasihan deh lu yang pindah. siapa lagi kena tendang ke IKN hahahaha the chicken chicken bermunculan terus
-	<br><br>
-	Literasi hukum proyek yang disengaja sering kali menyoroti modus operandi korupsi paham sampai sini IKN di Kalimantan Timur. Gue santai tidak terlibat di proyek IKN ini. Siapa mau cuci tangan di proyek IKN Kaltim ✍️📚🤣😎🙂
-	<br><br>
-	Dalam perjanjian hukum tidak ada jaminan 10000% pegawai pemerintah pusat baik itu asn, polri dan tni wajib pindah tempat tinggal ke IKN di Kalimantan Timur. baik itu tertulis dan lisan. The checkmate forever. Melakukan pemaksaan kehendak untuk pindah tempat tinggal bisa kena pidana Pasal 335 KUHP. The checkmate lagi kalo bego itu sekolah lagi ya
-	<br><br>
-	Proyek gagal IKN di Kalimantan Timur walaupun sudah jadi tapi tidak di tempatkan oleh pemerintah pusat dan sudah habiskan uang negara berapa triliun IKN selama ini termasuk kategori kerugian negara korupsi berjamaah proyek di sengaja karena IKN di bangun tidak menggunakan uang pribadi tapi uang negara beda dengan produk gue buat tidak menggunakan uang negara atau investor. Mau investasi di produk gue wajib bertempat tinggal di pulau Jawa khususnya banten dan dki jakarta. di luar itu gue tidak mau ya
+	Mana ada gratisan produk gue buat tidak punya uang ya nonton saja. Siapa tidak berguna juga bukan gue
 </strong>
 	<br><br>
 <strong>
