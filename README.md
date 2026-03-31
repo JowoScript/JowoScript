@@ -10,7 +10,7 @@
 <strong>
     Jowo jowo technology hahahaa menyala terus penonton hahahaha 
 	<br><br>
-	Mana ada gratisan produk gue buat tidak punya uang ya nonton saja. Buatnya juga sudah mikir dan tidak mudah dan mikirnya pakai otak bukan pakai dengkul seperti kalian pikir. Siapa tidak berguna juga bukan gue
+	Mana ada gratisan produk gue buat tidak punya uang ya nonton saja. Buatnya juga susah mikir pakai otak dan tidak mudah ya kalo goblok tidak suka mikir pakai otak maunya enaknya doang. Siapa tidak berguna juga bukan gue
 </strong>
 	<br><br>
 <strong>
