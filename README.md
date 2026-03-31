@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Di lihat saja perusahaan go publik banyak sekarat di Indonesia. Japan saja kasih warning ke perusahaan di Indonesia yang ada hutang belum di bayar dari industri baja ada belum yang lainnya
+	<br><br>
     karena yang banci akan terlihat di akhir ya tidak ada hasil kerjanya tapi di danai dan yang banci akan terlihat hanya bicara tapi tidak berani temui gue. paham sampai sini chicken chicken
 	<br><br>
 	Gue saja cari uang halal lu cari masalah sama gue ya habis kau di penjara paham sampai sini 
