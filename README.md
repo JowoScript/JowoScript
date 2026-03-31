@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	im not iran, American and Israel. your know it
+	im not iran, American and Israel. your know it and media online still stupid for it
 	<br>
 	Di lihat saja perusahaan go publik banyak sekarat di Indonesia. Japan saja kasih warning ke perusahaan di Indonesia yang ada hutang belum di bayar dari industri baja ada belum yang lainnya
 	<br><br>
