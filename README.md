@@ -11,6 +11,8 @@
     karena yang banci akan terlihat di akhir ya tidak ada hasil kerjanya tapi di danai dan yang banci akan terlihat hanya bicara tapi tidak berani temui gue. paham sampai sini chicken chicken
 	<br><br>
 	Gue saja cari uang halal lu cari masalah sama gue ya habis kau di penjara paham sampai sini 
+	<br>
+	bisnis melanggar undang-undang hukum rata rata sudah pada mati semua
 	<br><br>
 	Mana ada gratisan produk gue buat tidak punya uang ya nonton saja. Buatnya juga susah mikir pakai otak dan tidak mudah ya kalo goblok tidak suka mikir pakai otak maunya enaknya doang biar orang goblok jadi pengangguran biar tau rasa hidup itu keras ya. Siapa tidak berguna juga bukan gue
 </strong>
