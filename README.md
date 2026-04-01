@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Kalian cari uang terus kapan kayak nya hahahaha ✍️📚 saya tidak mencari uang tapi menciptakan teknologi produk asset mahal
+	Kalian cari uang terus kapan kayak nya hahahaha ✍️📚 saya tidak mencari uang tapi menciptakan teknologi produk asset mahal. Bank, IBM, Google, Microsoft, Meta dan sekolah mana punya produk saya buat selama ini. 
 	<br><br> 
 </strong>
 	<br><br>
