@@ -10,7 +10,7 @@
 <strong>
 	im the real of revamp 🤣✍️📚
 	<br><br>
-	tukang goblok dan pintar akan terlihat terus ya
+	tukang goblok dan pintar akan terlihat terus ya semakin banyak di pecat semakin bagus biar jadi pengusaha sendiri mereka apa lagi goblok 
 	<br><br>
 	kalo saingan gue pengangguran dan punya anak seumuran gue kelahiran 1980 ke atas ya santai gue dan apa lagi goblok dari gue kerja di pemerintahan tetap santai gue apa lagi biaya hidup naik terus hahahaha 
 	<br><br>
