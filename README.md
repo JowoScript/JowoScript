@@ -14,7 +14,7 @@
 <strong>
 	im the real of revamp 🤣✍️📚
 	<br><br>
-	Selama ini gue diamkan dulu siapa mau bermasalah sama gue. Karena di akhir siapa di butuhkan dan siapa mati. paham sampai sini ya karena akun tommy dan Muhammad Nurcahyo Pratomo itu sama milik gue ya hanya sodara gue yg tau nama asli gue. Semakin lama semakin bagus siapa goblok selama ini itu resiko jadi tukang pengangguran dan tukang goblok. 
+	Selama ini gue diamkan dulu siapa mau bermasalah sama gue. Karena di akhir siapa di butuhkan dan siapa mati. paham sampai sini ya karena akun tommy dan Muhammad Nurcahyo Pratomo itu sama milik gue ya hanya sodara gue yg tau nama asli gue. Semakin lama semakin bagus siapa goblok selama ini itu resiko jadi tukang pengangguran dan tukang goblok dan pengusaha goblok
 	<br><br>
 	tukang goblok dan pintar akan terlihat terus ya semakin banyak di pecat semakin bagus biar jadi pengusaha sendiri mereka apa lagi goblok 
 	<br><br>
