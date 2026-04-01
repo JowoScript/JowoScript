@@ -14,7 +14,7 @@
 <strong>
 	im the real of revamp 🤣✍️📚
 	<br><br>
-	Perusahaan punya hutang juga bukan perusahaan milik Muhammad Nurcahyo Pratomo selama ini jadi santai ya dan tidak buka lowongan kerja juga dan tidak main tender juga. jangan investasi selama belum beli dan biar lowongan kerja sepi karena goblok akan mati oleh persaingan. Perusahaan go publik pailit bayar hutang wajib bayar hutang atau sita semua asset perusahaan dan ownernya jika terlibat kecurangan setiap pendirian akta perusahaan semua menggunakan kartu keluarga ya wajib jadi baik baik perusahaan nakal nakal dan di pemerintahan semua ada audit keuangan paham ya siapa korupsi habis karena bersih dan kotor itu akan terlihat paham sampai sini chicken chicken
+	Perusahaan punya hutang juga bukan perusahaan milik Muhammad Nurcahyo Pratomo selama ini jadi santai ya dan tidak buka lowongan kerja juga dan tidak main tender juga. jangan investasi selama belum beli dan biar lowongan kerja sepi karena goblok akan mati oleh persaingan. Perusahaan go publik pailit bayar hutang wajib bayar hutang atau sita semua asset perusahaan dan ownernya jika terlibat kecurangan setiap pendirian akta perusahaan semua menggunakan kartu keluarga ya wajib jadi baik baik perusahaan nakal nakal dan di pemerintahan semua ada audit keuangan paham ya siapa korupsi habis karena bersih dan kotor itu akan terlihat paham sampai sini chicken chicken tidak ada kebal hukum untuk koruptor dan gratifikasi 
 	<br><br>
 	Muhammad Nurcahyo Pratomo santai skill coding selevel kakeknya kakek tukang dan owner perusahaan sendiri. Mana lagi chicken chicken bermunculan 
 	<br><br>
