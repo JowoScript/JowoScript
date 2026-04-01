@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	im the real of revamp 🤣✍️📚
+	<br><br>
 	kalo saingan gue pengangguran dan punya anak seumuran gue kelahiran 1980 ke atas ya santai gue dan apa lagi goblok dari gue kerja di pemerintahan tetap santai gue apa lagi biaya hidup naik terus hahahaha 
 	<br><br>
 	im not iran, American and Israel. your know it and media online still stupid for it. thinking or think why media online still stupid because dont have future and No advertising, no revenue from the company. how many content creator selling products in media etc. what i'm stupid ?  what's your think. 
