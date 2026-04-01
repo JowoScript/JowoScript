@@ -8,7 +8,8 @@
 </div>
 <div align="center">
 <strong>
-	im not iran, American and Israel. your know it and media online still stupid for it. thinking or think why media online still stupid because dont have future and No advertising, no revenue from the company. how many content creator selling products in media etc. what i'm stupid ?  what's your think. Seperti obat farmasi jarang ada iklan karena yang jualan langsung dokter kasih resep obat. BPJS juga ketat siapa tidak bayar iuran otomatis tidak bisa berobat ya dan rumah sakit juga begitu jika bpjs tidak bayar ke rumah sakit ya otomatis putus kontrak atau mitra dan sebaliknya jika pasien bpjs tidak di layani baik ya otomatis rumah sakit kena teguran dari bpjs sesuai perjanjian mitra
+	im not iran, American and Israel. your know it and media online still stupid for it. thinking or think why media online still stupid because dont have future and No advertising, no revenue from the company. how many content creator selling products in media etc. what i'm stupid ?  what's your think. 
+	orang ornag goblok bisnisnya judi online di akhir rungkat bandar bangkrut 🤣. Oknum tidak ada kebal hukum jika melanggar aturan hukum
 	<br><br>
 	Di lihat saja perusahaan go publik banyak sekarat di Indonesia. Japan saja kasih warning ke perusahaan di Indonesia yang ada hutang belum di bayar dari industri baja ada belum yang lain. bukan urusan gue juga dan bukan perusahaan gue juga ini siapa yg nikmati uangnya selama ini juga bukan gue ya giliran banyak hutang ngemis ngemis ke pemerintah hahahaha dan jangan mgemis ke gue juga ya Hahahhaa karena tidak bisa bersaing bismis. Pemerintah Indonesia juga belum beli produk gue jadi santai gue biar paham siapa bossnya tetap gue di akhir pemerintahan mintanya
 	<br><br>
