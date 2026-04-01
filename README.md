@@ -10,7 +10,7 @@
 <strong>
 	im not iran, American and Israel. your know it and media online still stupid for it. thinking or think why media online still stupid because dont have future and No advertising, no revenue from the company. how many content creator selling products in media etc. what i'm stupid ?  what's your think. 
 	<br><br>
-	bisnis gue tidak melanggar hukum kalo miskin jangan beli itu aturannya mudah banget bukan dan produk palsu gratisan dari gue lu beli ya goblok dan produk aslinya langsung berhadapan dengan gue kalo mau beli pasti kan jangan miskin saldo ya dan pasti kan jangan nipu gue bisa jadi mainan gue di akhir
+	bisnis gue tidak melanggar hukum kalo miskin jangan beli itu aturannya mudah banget bukan dan produk palsu gratisan dari gue lu beli ya goblok dan produk aslinya langsung berhadapan dengan gue kalo mau beli pasti kan jangan miskin saldo ya dan pasti kan jangan nipu gue bisa jadi mainan gue di akhir paham ya karena gue lebih suka orang jujur
 	<br><br>
 	orang orang goblok bisnisnya judi online di akhir rungkat bandar bangkrut 🤣. Oknum siapa mau backingin bisnis judi online melanggar hukum ya rugi kena pecat oknum nya jadi pengangguran iya masuk penjara iya dan kekayaan di sita negara iya karena oknum tidak ada kebal hukum jika melanggar aturan hukum
 	<br><br>
