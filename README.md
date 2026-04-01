@@ -12,35 +12,8 @@
 
 <div align="center">
 <strong>
-	im the real of revamp 🤣✍️📚
-	<br><br>
-	Perusahaan punya hutang juga bukan perusahaan milik Muhammad Nurcahyo Pratomo selama ini jadi santai ya dan tidak buka lowongan kerja juga dan tidak main tender juga. jangan investasi selama belum beli dan biar lowongan kerja sepi karena goblok akan mati oleh persaingan. Perusahaan go publik pailit bayar hutang wajib bayar hutang atau sita semua asset perusahaan dan ownernya jika terlibat kecurangan setiap pendirian akta perusahaan semua menggunakan kartu keluarga ya wajib jadi baik baik perusahaan nakal nakal dan di pemerintahan semua ada audit keuangan paham ya siapa korupsi habis karena bersih dan kotor itu akan terlihat paham sampai sini chicken chicken tidak ada kebal hukum untuk koruptor dan gratifikasi mau selevel presiden juga sama ya.waktu akan bicara 
-	<br><br>
-	Muhammad Nurcahyo Pratomo santai skill coding selevel kakeknya kakek tukang dan owner perusahaan sendiri. Mana lagi chicken chicken bermunculan 
-	<br><br>
-	tukang goblok dan pintar akan terlihat terus ya semakin banyak di pecat semakin bagus biar jadi pengusaha sendiri mereka apa lagi goblok 
-	<br><br>
-	kalo saingan gue pengangguran dan punya anak seumuran gue kelahiran 1980 ke atas ya santai gue dan apa lagi goblok dari gue kerja di pemerintahan tetap santai gue apa lagi biaya hidup naik terus hahahaha 
-	<br><br>
-	im not iran, American and Israel. your know it and media online still stupid for it. thinking or think why media online still stupid because dont have future and No advertising, no revenue from the company. how many content creator selling products in media etc. what i'm stupid ?  what's your think. 
-	<br><br>
-	bisnis gue tidak melanggar hukum kalo miskin jangan beli itu aturannya mudah banget bukan dan produk palsu gratisan dari gue lu beli ya goblok dan produk aslinya langsung berhadapan dengan gue kalo mau beli pasti kan jangan miskin saldo ya dan pasti kan jangan nipu gue bisa jadi mainan gue di akhir paham ya karena gue lebih suka orang jujur
-	<br><br>
-	orang orang goblok bisnisnya judi online di akhir rungkat bandar bangkrut 🤣. Oknum siapa mau backingin bisnis judi online melanggar hukum ya rugi kena pecat oknum nya jadi pengangguran iya masuk penjara iya dan kekayaan di sita negara iya karena oknum tidak ada kebal hukum jika melanggar aturan hukum
-	<br><br>
-	Di lihat saja perusahaan go publik banyak sekarat di Indonesia. Japan saja kasih warning ke perusahaan di Indonesia yang ada hutang belum di bayar dari industri baja ada belum yang lain. bukan urusan gue juga dan bukan perusahaan gue juga ini siapa yg nikmati uangnya selama ini juga bukan gue ya giliran banyak hutang ngemis ngemis ke pemerintah hahahaha dan jangan mgemis ke gue juga ya Hahahhaa karena tidak bisa bersaing bismis. Pemerintah Indonesia juga belum beli produk gue jadi santai gue biar paham siapa bossnya tetap gue di akhir pemerintahan mintanya
-	<br><br>
-	Dulu yang persulit gue test lamar kerja piye kabare sekarang ? hasil lulus test dari BKN ada jaminan pintar tidak
-	<br><br>
-    karena yang banci akan terlihat di akhir ya tidak ada hasil kerjanya tapi di danai dan yang banci akan terlihat hanya bicara tapi tidak berani temui gue. paham sampai sini chicken chicken
-	<br><br>
-	Gue saja cari uang halal lu cari masalah sama gue ya habis kau di penjara paham sampai sini 
-	<br>
-	bisnis melanggar undang-undang hukum rata rata sudah pada mati semua siapa mau backingin rugi kena pecat oknum nya jadi pengangguran yang ada mau itu pejabat atau anggota politik juga sama mana ada kebal hukum
-	<br><br>
-	Mana ada gratisan produk gue buat tidak punya uang ya nonton saja. Buatnya juga susah mikir pakai otak dan tidak mudah ya kalo goblok tidak suka mikir pakai otak maunya enaknya doang biar orang goblok jadi pengangguran biar tau rasa hidup itu keras ya suruh saja jadi pengusaha sendiri biar paham jadi pengusaha piye rasane selebew pokokne hahahaha 
-	<br><br>
-	perusahaan di danai pemerintah juga sudah pasti otomatis kena buang yang tidak berguna 
+	Kalian cari uang terus kapan kayak nya ✍️📚
+	<br><br> 
 </strong>
 	<br><br>
 <strong>
