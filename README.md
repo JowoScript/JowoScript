@@ -6,7 +6,9 @@
      height="150px" width="150px"></img>
 </a>
 </div>
+
 <img src="FB_IMG_1775032753464.jpg" title="Build from zero" height="150px" width="100%">
+<img src="FB_IMG_1775032759198.jpg" title="Build from zero" height="150px" width="100%">
 
 <div align="center">
 <strong>
