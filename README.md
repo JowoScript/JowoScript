@@ -14,7 +14,7 @@
 <strong>
 	im the real of revamp 🤣✍️📚
 	<br><br>
-	Perusahaan punya hutang juga bukan perusahaan milik Muhammad Nurcahyo Pratomo selama ini jadi biar pada mati orang orang goblok banyak gaya
+	Perusahaan punya hutang juga bukan perusahaan milik Muhammad Nurcahyo Pratomo selama ini jadi santai ya dan tidak buka lowongan kerja juga dan tidak main tender juga. jangan investasi selama belum beli dan biar lowongan kerja sepi karena goblok akan mati oleh persaingan 
 	<br><br>
 	Muhammad Nurcahyo Pratomo santai skill coding selevel kakeknya kakek tukang dan owner perusahaan sendiri. Mana lagi chicken chicken bermunculan 
 	<br><br>
