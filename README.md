@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Kalian cari uang terus kapan kayak nya ✍️📚 saya tidak mencari uang tapi mencetak asset mahal
+	Kalian cari uang terus kapan kayak nya ✍️📚 saya tidak mencari uang tapi menciptakan teknologi asset mahal
 	<br><br> 
 </strong>
 	<br><br>
