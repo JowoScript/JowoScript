@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	PT JowoScript Technology Indonesia tidak akan pailit ya tidak menggunakan uang investor dan pemerintah selama ini buat produk asset mahal
+	<br><br>
 	perusahaan pailit di tahun 2026 siapa lagi ya 
 	<br><br>
 	seperti itu dulu gue bukan kalo goblok tidak di terima kerja sekarang gantian siapa bossnya dan siapa goblok dan sampah ye
