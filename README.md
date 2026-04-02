@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	seperti iu dulu gue bukan kalo goblok tidak di terima kerja sekarang gantian siapa bossnya dan siapa goblok
+	<br><br>
 	Kalian cari uang terus kapan kayak nya hahahaha ✍️📚 saya tidak mencari uang tapi menciptakan teknologi produk asset mahal. Bank, IBM, Google, Microsoft, Meta dan sekolah mana punya produk saya buat selama ini. Apa lagi pemerintah ya mana punya produk gue buat selama ini.
 	<br><br> 
 	Orang goblok beli asset yang murah selama ini tanah, mobil, gedung dan emas ✍️📚
