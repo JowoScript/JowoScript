@@ -10,7 +10,7 @@
 <strong>
 	seperti itu dulu gue bukan kalo goblok tidak di terima kerja sekarang gantian siapa bossnya dan siapa goblok dan sampah ye
 	<br>
-	Kalo saingan gue kelahiran 1980 keatas pengangguran dan goblok dari gue ya santai apa lagi sudah punya anak ya dan buat bahasa pemrograman itu harus pintar ya dan paham level gue kalo sendiri mampu
+	Kalo saingan gue kelahiran 1980 keatas pengangguran dan goblok dari gue ya santai apa lagi sudah punya anak ya dan buat bahasa pemrograman itu harus pintar ya dan paham level gue kalo sendiri mampu karena orsng gpblok selalu tidak mengakui nya itu fakta
 	<br><br>
 	Kalian cari uang terus kapan kayak nya hahahaha ✍️📚 saya tidak mencari uang tapi menciptakan teknologi produk asset mahal. Bank, IBM, Google, Microsoft, Meta dan sekolah mana punya produk saya buat selama ini. Apa lagi pemerintah ya mana punya produk gue buat selama ini.
 	<br><br> 
