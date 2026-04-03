@@ -11,7 +11,7 @@
 	buat Ai apa yang susah selama ini hanya get data dari rest api sudah ada. ada skill coding dewa banget perhitungan susah apa buat Ai ? hahahaha siapa goblok sebenarnya selama ini hahahaha orang goblok lu bohongi masih bisa beda sama gue jadi mainan gue yang ada kalo bohongin gue
 	Buat Ai banyak gaya.
 	<br><br>
-	ambil S2 dan S3 keren banyak sekarang mahasiswa tapi hasil rest api 🤣 ambil gelar hasil lulusan copy and paste hahahaha di kantor biar terlihat pintar hahahaha badut badut banyak tidak tau malu selama ini karena takut terlihat gobloknya hahaha 
+	ambil S2 dan S3 keren banyak sekarang mahasiswa tapi hasil rest api 🤣 ambil gelar hasil lulusan copy and paste hahahaha di kantor biar terlihat pintar hahahaha badut badut banyak tidak tau malu selama ini karena takut terlihat gobloknya hahaha yang penting jabatan di kantor aman hahahaha 
 	<br><br>
 	Orang goblok selalu banyak alesan di lapangan itu fakta. di luar negeri juga sama begitu. politik 2028 akan saling menjatuhkan di akhir karena rakyat lagi seleksi selama ini siapa jadi penjilat dan bukan ya termasuk influencer di medsos karena benalu benalu selalu jadi influencer di medsos hahaha untuk tuanya 🤣. gue ngomong apa adanya beda seperti gue punya pendirian kokoh tidak terikat sama siapapun ya. Gue direktur di perusahaan PT JowoScript Technology Indonesia dan ownernya gue juga jadi siapa banyak gaya sama gue tapi goblok mau beli produk asli otomatis berhadapan sama gue jelas ya jadi banyak gaya sama gue ya. selevel president atau perdana menteri saja kalo butuh produk gue otomatis datangnya ke gue dan tidak mungkin pakai perantara kalo di bohongi bawahaannya repot pasti nya
 	<br><br>
