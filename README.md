@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Orang goblok selalu banyak alesan di lapangan itu fakta. di luar negeri juga sama begitu. politik 2028 akan saling menjatuhkan di akhir karena rakyat lagi seleksi selama ini siapa jadi penjilat dan bukan ya termasuk influencer di medsos karena benalu benalu selalu jadi influencer di medsos hahaha untuk tuanya 🤣. gue ngomong apa adanya beda seperti gue punya pendirian kokoh tidak terikat sama siapapun ya. Gue direktur di perusahaan PT JowoScript Technology Indonesia dan ownernya gue juga jadi siapa banyak gaya sama gue tapi goblok
+	Orang goblok selalu banyak alesan di lapangan itu fakta. di luar negeri juga sama begitu. politik 2028 akan saling menjatuhkan di akhir karena rakyat lagi seleksi selama ini siapa jadi penjilat dan bukan ya termasuk influencer di medsos karena benalu benalu selalu jadi influencer di medsos hahaha untuk tuanya 🤣. gue ngomong apa adanya beda seperti gue punya pendirian kokoh tidak terikat sama siapapun ya. Gue direktur di perusahaan PT JowoScript Technology Indonesia dan ownernya gue juga jadi siapa banyak gaya sama gue tapi goblok mau beli produk asli otomatis berhadapan sama gue jelas ya jadi banyak gaya sama gue ya
 	<br><br>
 	PT JowoScript Technology Indonesia tidak akan pailit ya tidak menggunakan uang investor dan pemerintah selama ini buat produk asset mahal dan selama belum beli ya mana bisa gunakan produk itu aturanya dan juga belum masuk program pemerintah Indonesia selama ini
 	<br><br>
