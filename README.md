@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Orang cerdas seperti saya mana mau gaji kecil minimal permintaan gaji gue harga produk sudah jelas sendiri saja mampu buat produk ya dan perusahaan milik sendiri dan hanya gue sendiri mampu kembangkan kingdom technology dan bahasa pemrograman baru gue kembangkan 
+	Orang goblok selalu banyak alesan di lapangan itu fakta.
 	<br><br>
 	PT JowoScript Technology Indonesia tidak akan pailit ya tidak menggunakan uang investor dan pemerintah selama ini buat produk asset mahal dan selama belum beli ya mana bisa gunakan produk itu aturanya dan juga belum masuk program pemerintah Indonesia selama ini
 	<br><br>
