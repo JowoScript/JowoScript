@@ -10,7 +10,7 @@
 <strong>
 	PT JowoScript Technology Indonesia tidak akan pailit ya tidak menggunakan uang investor dan pemerintah selama ini buat produk asset mahal dan selama belum beli ya mana bisa gunakan produk itu aturanya dan juga belum masuk program pemerintah Indonesia selama ini
 	<br><br>
-	Cara bersih bersih pengusaha penipu dan korupsi cukup ikannya gue
+	Cara bersih bersih pengusaha penipu dan korupsi cukup ikannya produk gue ya
 	<br><br>
 	perusahaan pailit di tahun 2026 siapa lagi ya 
 	<br><br>
