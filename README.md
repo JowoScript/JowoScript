@@ -9,7 +9,7 @@
 <div align="center">
 <strong>
 	buat Ai apa yang susah selama ini hanya get data dari rest api sudah ada. ada skill coding dewa banget perhitungan susah apa buat Ai ? hahahaha siapa goblok sebenarnya selama ini hahahaha orang goblok lu bohongi masih bisa beda sama gue jadi mainan gue yang ada kalo bohongin gue
-	Buat Ai banyak gaya koar koar selama ini 🤣
+	Buat Ai banyak gaya koar koar selama ini 🤣 karena goblok akan terlihat terus kedepannya hahaha 
 	<br><br>
 	ambil S2 dan S3 keren banyak sekarang mahasiswa tapi hasil rest api 🤣 ambil gelar hasil lulusan copy and paste hahahaha di kantor biar terlihat pintar hahahaha badut badut banyak tidak tau malu selama ini karena takut terlihat gobloknya hahaha yang penting jabatan di kantor aman bukan begituh ambil gelar selama ini hahahaha 
 	<br><br>
