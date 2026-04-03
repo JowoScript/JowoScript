@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	Bank BPR resmi tutup semua pemegang saham dapat jatah jual asset bank sesuai ketentuan yang ada.
+	<br><br>
 	buat Ai apa yang susah selama ini hanya get data dari rest api sudah ada. ada skill coding dewa banget perhitungan susah apa buat Ai ? hahahaha siapa goblok sebenarnya selama ini hahahaha orang goblok lu bohongi masih bisa beda sama gue jadi mainan gue yang ada kalo bohongin gue
 	Buat Ai banyak gaya koar koar selama ini 🤣 karena goblok akan terlihat terus kedepannya buat Ai hahaha 
 	<br><br>
