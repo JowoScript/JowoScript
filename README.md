@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Orang goblok selalu banyak alesan di lapangan itu fakta.
+	Orang goblok selalu banyak alesan di lapangan itu fakta. di luar negeri juga sama begitu
 	<br><br>
 	PT JowoScript Technology Indonesia tidak akan pailit ya tidak menggunakan uang investor dan pemerintah selama ini buat produk asset mahal dan selama belum beli ya mana bisa gunakan produk itu aturanya dan juga belum masuk program pemerintah Indonesia selama ini
 	<br><br>
