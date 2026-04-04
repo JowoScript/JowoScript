@@ -8,30 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	lulus sekolah jadi pengangguran banyak jadi gue santai dan sudah nikah jadi pengangguran juga ada jadi santai gue dan bank saja tidak bisa bersaing di dunia bisnis juga pasti bangkrut dan perusahaan juga sama tidak bisa bersaing di dunia bisnis juga pasti bangkrut. biaya hidup naik terus yang mati juga bukan gue tapi yang lebih goblok dari gue selama ini dan perusahaan besar juga tidak akan nerima orang goblok dalam dunia kerja ya rugi dong pastinya 
-	<br><br>
-	OJK akan menindak keras bank jika ada fraud case internal bank dan manajemen tidak benar di internal bank dan pegawai bank atau pejabat bank di cabang or pusat. paham sampai sini. OJK tindak tegas jika ada oknum pegawai bank ingin main curang jika merugikan nasabah. syarat mendirikan bank sesuai perjanjian di baca goblok. melindungi keuangan nasabah itu jelas ada. Mahkamah Agung juga akan melakukan tindakan tegas juga di pengadilan bagi melanggar hukum paham sampai sini komisaris bank, kepala cabang bank dan seterusnya. jika bank swasta tidak bisa melakukan perputaran kredit bisnis (kredit konsumtif, produktif dan investasi) dengan baik maka beli produk aslinya sama Muhammad Nurcahyo Pratomo jika bank punya uang hahaha dan musuh musuh Muhammad Nurcahyo Pratomo Suka hina gue selama ini kerja dan cari uang terus kapan kayanya hahaha
-	<br><br>
-	buat Ai apa yang susah selama ini hanya get data dari rest api sudah ada. ada skill coding dewa banget perhitungan susah apa buat Ai ? hahahaha siapa goblok sebenarnya selama ini hahahaha orang goblok lu bohongi masih bisa beda sama gue jadi mainan gue yang ada kalo bohongin gue
-	Buat Ai banyak gaya koar koar selama ini 🤣 karena goblok akan terlihat terus kedepannya buat Ai hahaha 
-	<br><br>
-	ambil S2 dan S3 keren banyak sekarang mahasiswa tapi hasil rest api 🤣 ambil gelar hasil lulusan copy and paste hahahaha di kantor biar terlihat pintar hahahaha badut badut banyak tidak tau malu selama ini karena takut terlihat gobloknya hahaha yang penting jabatan di kantor aman bukan begituh ambil gelar selama ini hahahaha 
-	<br><br>
-	Orang goblok selalu banyak alesan di lapangan itu fakta. di luar negeri juga sama begitu. politik 2028 akan saling menjatuhkan di akhir karena rakyat lagi seleksi selama ini siapa jadi penjilat dan bukan ya termasuk influencer di medsos karena benalu benalu selalu jadi influencer di medsos hahaha untuk tuanya 🤣. gue ngomong apa adanya beda seperti gue punya pendirian kokoh tidak terikat sama siapapun ya. Gue direktur di perusahaan PT JowoScript Technology Indonesia dan ownernya gue juga jadi siapa banyak gaya sama gue tapi goblok mau beli produk asli otomatis berhadapan sama gue jelas ya jadi banyak gaya sama gue ya. selevel president atau perdana menteri saja kalo butuh produk gue otomatis datangnya ke gue dan tidak mungkin pakai perantara kalo di bohongi bawahaannya repot pasti nya
-	<br><br>
-	PT JowoScript Technology Indonesia tidak akan pailit ya tidak menggunakan uang investor dan pemerintah selama ini buat produk asset mahal dan selama belum beli ya mana bisa gunakan produk itu aturanya dan juga belum masuk program pemerintah Indonesia selama ini
-	<br><br>
-	Cara bersih bersih pengusaha penipu dan korupsi cukup ikannya produk gue ya
-	<br><br>
-	perusahaan pailit di tahun 2026 siapa lagi ya 
-	<br><br>
-	seperti itu dulu gue bukan kalo goblok tidak di terima kerja sekarang gantian siapa bossnya dan siapa goblok dan sampah ye
-	<br><br>
-	Kalo saingan gue kelahiran 1980 keatas pengangguran dan goblok dari gue ya santai apa lagi sudah punya anak ya dan buat bahasa pemrograman itu harus pintar ya dan paham level gue kalo sendiri mampu karena orang goblok + dungu selalu tidak mengakui nya itu fakta dan terbukti yang bertanding buat produk mau niru selama ini goblok + dungu bukan tidak ada hasilnya
-	<br><br>
-	Kalian cari uang terus kapan kayak nya hahahaha ✍️📚 saya tidak mencari uang tapi menciptakan teknologi produk asset mahal. Bank, IBM, Google, Microsoft, Meta dan sekolah mana punya produk saya buat selama ini. Apa lagi pemerintah ya mana punya produk gue buat selama ini.
-	<br><br> 
-	Orang goblok beli asset yang murah selama ini tanah, mobil, gedung dan emas ✍️📚
+	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue
 </strong>
 	<br><br>
 <strong>
