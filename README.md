@@ -10,7 +10,7 @@
 <strong>
 	hujan terus kapan musim panasnya hahaha gue mau benarin genteng  masalahnya kalo hujan males dong abang ganteng naik atap benerin genteng 
 	<br><br>
-	OJK akan menindak keras bank jika ada fraud case internal bank dan manajemen tidak benar di internal bank dan pegawai bank atau pejabat bank di cabang or pusat. paham sampai sini. OJK tidak tegas jika ada oknum pegawai bank ingin main curang 
+	OJK akan menindak keras bank jika ada fraud case internal bank dan manajemen tidak benar di internal bank dan pegawai bank atau pejabat bank di cabang or pusat. paham sampai sini. OJK tindak tegas jika ada oknum pegawai bank ingin main curang 
 	<br><br>
 	buat Ai apa yang susah selama ini hanya get data dari rest api sudah ada. ada skill coding dewa banget perhitungan susah apa buat Ai ? hahahaha siapa goblok sebenarnya selama ini hahahaha orang goblok lu bohongi masih bisa beda sama gue jadi mainan gue yang ada kalo bohongin gue
 	Buat Ai banyak gaya koar koar selama ini 🤣 karena goblok akan terlihat terus kedepannya buat Ai hahaha 
