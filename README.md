@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	lulus sekolah jadi pengangguran banyak jadi gue santai dan sudah nikah jadi pengangguran juga ada jadi santai gue dan bank saja tidak bisa bersaing di dunia bisnis juga pasti bangkrut dan perusahaan juga sama tidak bisa bersaing di dunia bisnis juga pasti bangkrut. biaya hidup naik terus yang mati juga bukan gue tapi yang lebih goblok dari gue selama ini
+	lulus sekolah jadi pengangguran banyak jadi gue santai dan sudah nikah jadi pengangguran juga ada jadi santai gue dan bank saja tidak bisa bersaing di dunia bisnis juga pasti bangkrut dan perusahaan juga sama tidak bisa bersaing di dunia bisnis juga pasti bangkrut. biaya hidup naik terus yang mati juga bukan gue tapi yang lebih goblok dari gue selama ini dan perusahaan besar juga tidak akan nerima orang goblok dalam dunia kerja ya rugi dong pastinya 
 	<br><br>
 	OJK akan menindak keras bank jika ada fraud case internal bank dan manajemen tidak benar di internal bank dan pegawai bank atau pejabat bank di cabang or pusat. paham sampai sini. OJK tindak tegas jika ada oknum pegawai bank ingin main curang jika merugikan nasabah. syarat mendirikan bank sesuai perjanjian di baca goblok. melindungi keuangan nasabah itu jelas ada. Mahkamah Agung juga akan melakukan tindakan tegas juga di pengadilan bagi melanggar hukum paham sampai sini komisaris bank, kepala cabang bank dan seterusnya. jika bank swasta tidak bisa melakukan perputaran kredit bisnis (kredit konsumtif, produktif dan investasi) dengan baik maka beli produk aslinya sama Muhammad Nurcahyo Pratomo jika bank punya uang hahaha dan musuh musuh Muhammad Nurcahyo Pratomo Suka hina gue selama ini kerja dan cari uang terus kapan kayanya hahaha
 	<br><br>
