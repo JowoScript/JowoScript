@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Bank BPR resmi tutup di jakarta semua pemegang saham dapat jatah jual asset bank dan nasabah juga wajib di jamin oleh bank di kembalikan uang nasabah sesuai ketentuan hukum yang ada. Kurangin gaya hidup kalian pegawai bank swasta yang lain jangan banyak gaya kalo bangkrut kalian juga kena pecat hahaha gaji tidak seberapa gaya elit hahahaha
+	Bank BPR resmi tutup di jakarta semua pemegang saham dapat jatah jual asset bank dan nasabah juga wajib di jamin oleh bank di kembalikan uang nasabah sesuai ketentuan hukum yang ada di utama kan balik uang nasabah baru pemegang saham itu yang benar. Kurangin gaya hidup kalian pegawai bank swasta yang lain jangan banyak gaya kalo bangkrut kalian juga kena pecat hahaha gaji tidak seberapa gaya elit hahahaha
 	<br><br>
 	buat Ai apa yang susah selama ini hanya get data dari rest api sudah ada. ada skill coding dewa banget perhitungan susah apa buat Ai ? hahahaha siapa goblok sebenarnya selama ini hahahaha orang goblok lu bohongi masih bisa beda sama gue jadi mainan gue yang ada kalo bohongin gue
 	Buat Ai banyak gaya koar koar selama ini 🤣 karena goblok akan terlihat terus kedepannya buat Ai hahaha 
