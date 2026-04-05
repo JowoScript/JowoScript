@@ -10,7 +10,7 @@
 <strong>
 	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. 
 	<br><br>
-	perusahaan buat aplikasi di pemerintahan kalo sudah tidak di danai lagi dan tidak di perpanjang kontrak bisa apa mereka ya essy talk siapa jadi benalu di pemerintahan terlihat terus di akhir. selama belum beli produk gue biarkan saja setiap tahun nambah lulus sekolah jadi pengangguran terus
+	perusahaan buat aplikasi di pemerintahan kalo sudah tidak di danai lagi dan tidak di perpanjang kontrak bisa apa mereka ya essy talk siapa jadi benalu di pemerintahan terlihat terus di akhir. selama belum beli produk gue biarkan saja siapa goblok akan terlihat terus di dunia kerja dan bisnis
 	<br><br>
 	Gue di hina miskin sama orang miskin tidak punya uang untuk beli produk gue hahaha 
 	<br><br>
