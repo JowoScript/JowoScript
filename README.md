@@ -10,7 +10,7 @@
 <strong>
 	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. 
 	<br><br>
-	rumah susun bangun masih laku sampai sekarang ? sepi banyak
+	bangun rumah susun masih laku sampai sekarang ? sepi banyak ya sudah habis berapa bangun dan tidak laku hahahaha 
 	<br><br>
 	Gue di hina miskin sama orang miskin tidak punya uang untuk beli produk gue hahaha 
 	<br><br>
