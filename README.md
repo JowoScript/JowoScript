@@ -10,6 +10,8 @@
 <strong>
 	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue
 	<br><br>
+	Gue di hina miskin sama orang miskin tidak punya uang untuk beli produk gue hahaha 
+	<br><br>
 	Mau sodara saja wajib beli gimana orang lain ya karena perusahaan milik sendiri dan kerja sendiri selama ini buat produk. ngapain gue bohong jelas nama gue semua di produk 
 </strong>
 	<br><br>
