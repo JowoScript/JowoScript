@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. pengusaha punya hutang kepada investor biar pada mati dan pemerintah punya hutang juga pada end game di tagih oleh pemilik modal oleh pemerintah lain. contoh negara a punya hutang kepada negara b otomatis di tagih hutangnya suruh bayar
+	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. pengusaha punya hutang kepada investor biar pada mati dan pemerintah punya hutang juga pada end game di tagih oleh pemilik modal oleh pemerintah lain. contoh negara a punya hutang kepada negara b otomatis di tagih hutangnya suruh bayar dan perusahaan punya hutang kepada investor juga pasti di tagih
 	<br><br>
 	Gue di hina miskin sama orang miskin tidak punya uang untuk beli produk gue hahaha 
 	<br><br>
