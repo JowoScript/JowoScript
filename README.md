@@ -9,6 +9,8 @@
 <div align="center">
 <strong>
 	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue
+	<br><br>
+	Mau sodara saja wajib beli gimana orang lain ya
 </strong>
 	<br><br>
 <strong>
