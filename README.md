@@ -10,7 +10,7 @@
 <strong>
 	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. pengusaha punya hutang kepada investor biar pada mati dan pemerintah punya hutang juga pada end game di tagih oleh pemilik modal oleh pemerintah lain. contoh negara a punya hutang kepada negara b otomatis di tagih hutangnya suruh bayar dan perusahaan punya hutang kepada investor juga pasti di tagih. syarat mau beli produk gue paham ya bermasalah sama gue dan teman bermuka dua must die first dengan bukti nyata tanpa editan video atau gambar ya paham. orang yg netral dan pro gue aman posisinya 
 	<br><br>
-	buat aplikasi di pemerintahan kalo sudah tidak di danai lagi dan tidak di perpanjang kontrak bisa apa mereka ya essy talk siapa jadi benalu di pemerintahan terlihat terus di akhir
+	perusahaan buat aplikasi di pemerintahan kalo sudah tidak di danai lagi dan tidak di perpanjang kontrak bisa apa mereka ya essy talk siapa jadi benalu di pemerintahan terlihat terus di akhir
 	<br><br>
 	Gue di hina miskin sama orang miskin tidak punya uang untuk beli produk gue hahaha 
 	<br><br>
