@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Besok sudah hari Senin ya 🤣✍️📚
+	Besok sudah hari Senin ya 🤣✍️📚. Kalo sudah jadi pengangguran kalian bisa apa gue tanya hahhaha 
 	<br><br>
 	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. 
 	<br><br>
