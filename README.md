@@ -9,6 +9,8 @@
 <div align="center">
 <strong>
 	Kalo saingan gue pengusaha biarkan saja mereka akan mati sendiri di akhir Karena yang ramai ramai belum tentu pintar. fakta ya
+	<br>
+	anak zaman now pengangguran banyak gaya tapi goblok itu banyak berhadapan sama gue mana berani mereka
 	<br><br>
 	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. 
 	<br><br>
