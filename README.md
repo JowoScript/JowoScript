@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Kalo saingan gue pengusaha biarkan saja mereka akan mati sendiri di akhir Karena yang ramai ramai belum tentu pintar. fakta ya selama gue tidak nerima uang nya santai gue
+	Kalo saingan gue pengusaha biarkan saja mereka akan mati sendiri di akhir Karena yang ramai ramai belum tentu pintar. fakta ya selama ini gue tidak nerima uang nya jadi santai gue
 	<br><br>
 	software engineer bertanding sama gue tapi tidak ada hasilnya pidanakan saja semua ada timelinenya ya jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya.
 <br><br>
