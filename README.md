@@ -12,7 +12,7 @@
 	<br><br>
 	software engineer bertanding sama gue tapi tidak ada hasilnya pidanakan saja semua ada BATAS timelinenya dari mulai tanggal berapa sampai selesai tanggal berapa ya jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya.
 	<br><br>
-	gue santai pengalaman proyek paham timeline proyek juga dan perusahaan milik sendiri dan software engineer gue sendiri dan software architecture juga gue sendiri. gue malah buat IDE sendiri dan bahasa pemrograman sendiri untuk buka new project banyak. 
+	gue santai pengalaman proyek paham timeline proyek juga dan perusahaan milik sendiri dan software engineer gue sendiri dan software architecture juga gue sendiri. gue malah buat IDE sendiri dan bahasa pemrograman sendiri untuk buka new project banyak. pemerintah Indonesia mana punya produk gue buat
 <br><br>
 	perusahaan informasi teknologi minta di danai duluan tapi tidak ada hasilnya juga sama pidanakan saja jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya. 
 	<br><br>
