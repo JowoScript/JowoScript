@@ -8,23 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Kalo saingan gue pengusaha biarkan saja mereka akan mati sendiri di akhir Karena yang ramai ramai belum tentu pintar. fakta ya selama ini gue tidak nerima uang nya jadi santai gue. sewa jasa tukang pukul gue juga bisa kalo ada yang usik gue
-	<br><br>
-	software engineer bertanding sama gue tapi tidak ada hasilnya pidanakan saja semua ada BATAS timelinenya dari mulai tanggal berapa sampai selesai tanggal berapa ya jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya.
-	<br><br>
-	gue santai pengalaman proyek paham timeline proyek juga dan perusahaan milik sendiri dan software engineer gue sendiri dan software architecture juga gue sendiri. gue malah buat IDE sendiri dan bahasa pemrograman sendiri untuk buka new project banyak. pemerintah Indonesia mana punya produk gue buat
-<br><br>
-	perusahaan informasi teknologi minta di danai duluan tapi tidak ada hasilnya juga sama pidanakan saja jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya. 
-	<br><br>
-	anak zaman now pengangguran banyak gaya tapi goblok itu banyak berhadapan sama gue mana berani mereka terlihat siapa pengecut 
-	<br><br>
-	biar goblok goblok di dunia kerja pada kena pecat jadi pengangguran. dulu saja gue di persulit test lamar kerja dan kerjanya. sekarang gue jadi pengusaha sendiri siapa hancur bukan gue jelas lebih goblok dari gue. gue pengalaman semakin lama produk gue buat semakin berkembang terus gue buat produk dan yang goblok sudah pasti jadi pengangguran dan tidak produktif apa lagi pengusaha mau bertanding tapi miskin belum tentu bisa buat produk gue dan mereka gaji pegawai otomatis minus terus. 
-	<br><br>
-	bangun rumah susun masih laku sampai sekarang ? sepi banyak ya sudah habis berapa bangun dan tidak laku hahahaha 
-	<br><br>
-	Gue di hina miskin sama orang miskin tidak punya uang untuk beli produk gue hahaha 
-	<br><br>
-	Mau sodara saja wajib beli gimana orang lain ya karena perusahaan milik sendiri dan kerja sendiri selama ini buat produk. ngapain gue bohong jelas nama gue semua di produk 
+	Tetap santai gue dimana orang goblok lama kerja belum tentu pintar di dunia kerja
 </strong>
 	<br><br>
 <strong>
