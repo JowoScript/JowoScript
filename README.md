@@ -10,9 +10,9 @@
 <strong>
 	Kalo saingan gue pengusaha biarkan saja mereka akan mati sendiri di akhir Karena yang ramai ramai belum tentu pintar. fakta ya
 	<br><br>
-	software engineer bertanding sama gue tapi tidak ada hasilnya pidanakan saja semua ada timelinenya ya jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus
+	software engineer bertanding sama gue tapi tidak ada hasilnya pidanakan saja semua ada timelinenya ya jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya.
 <br><br>
-	perusahaan informasi teknologi minta di danai duluan tapi tidak ada hasilnya juga sama pidanakan saja jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus
+	perusahaan informasi teknologi minta di danai duluan tapi tidak ada hasilnya juga sama pidanakan saja jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya. 
 	<br><br>
 	anak zaman now pengangguran banyak gaya tapi goblok itu banyak berhadapan sama gue mana berani mereka terlihat siapa pengecut 
 	<br><br>
