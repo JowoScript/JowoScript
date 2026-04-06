@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Tetap santai gue dimana orang goblok lama kerja belum tentu pintar di dunia kerja
+	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja
 </strong>
 	<br><br>
 <strong>
