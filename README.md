@@ -10,7 +10,7 @@
 <strong>
 	Kalo saingan gue pengusaha biarkan saja mereka akan mati sendiri di akhir Karena yang ramai ramai belum tentu pintar. fakta ya
 	<br><br>
-	software engineer bertanding sama gue tapi tidak ada hasilnya pidankan saja
+	software engineer bertanding sama gue tapi tidak ada hasilnya pidankan saja semua ada timelinenya ya
 	<br><br>
 	anak zaman now pengangguran banyak gaya tapi goblok itu banyak berhadapan sama gue mana berani mereka terlihat siapa pengecut 
 	<br><br>
