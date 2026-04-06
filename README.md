@@ -10,7 +10,7 @@
 <strong>
 	Kalo saingan gue pengusaha biarkan saja mereka akan mati sendiri di akhir Karena yang ramai ramai belum tentu pintar. fakta ya selama ini gue tidak nerima uang nya jadi santai gue. sewa jasa tukang pukul gue juga bisa kalo ada yang usik gue
 	<br><br>
-	software engineer bertanding sama gue tapi tidak ada hasilnya pidanakan saja semua ada BATAS timelinenya ya jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya.
+	software engineer bertanding sama gue tapi tidak ada hasilnya pidanakan saja semua ada BATAS timelinenya dari tangfal berapa sampai selesai tanggal berapa ya jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya.
 <br><br>
 	perusahaan informasi teknologi minta di danai duluan tapi tidak ada hasilnya juga sama pidanakan saja jalur hukum dulu baru jalur otot pancal endase di penjara biar mampus. sewa jasa tukang pukul itu banyak jadi paham ya. 
 	<br><br>
