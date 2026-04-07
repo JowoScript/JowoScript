@@ -16,7 +16,7 @@
 	<br><br>
 	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
 	<br><br>
-	gue berisik tetap setiap hari produk gue buat berkembang terus termasuk kingdom technology IDE kalian saja bego selama ini sstu hari bisa nambah new version kalo gue mau. malam mingguan tetap bangun produk mahal gue coy judulnya saja bales dendam tidak ada gratisan produk gue buat dan perusahaan gue tidak ada hutang ya modal sendiri 101 rupiah hahaha dan perusahaan sendiri juga
+	gue berisik tetap setiap hari produk gue buat berkembang terus termasuk kingdom technology IDE kalian saja bego selama ini sstu hari bisa nambah new version kalo gue mau. malam mingguan tetap bangun produk mahal gue coy judulnya saja bales dendam tidak ada gratisan produk gue buat dan perusahaan gue tidak ada hutang ya modal sendiri 101 rupiah hahaha dan perusahaan sendiri juga dan tidak pakai uang pemerintah atau investor juga gue buat produk sendiri 
 </strong>
 	<br><br>
 <strong>
