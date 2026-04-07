@@ -12,7 +12,7 @@
 	<br><br>
 	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
 	<br><br>
-	gue berisik tetap setiap hari produk gue buat berkembang terus kalian saja bego selama ini sstu hari bisa nambah new version kalo gue mau 
+	gue berisik tetap setiap hari produk gue buat berkembang terus termasuk kingdom technology IDE kalian saja bego selama ini sstu hari bisa nambah new version kalo gue mau 
 </strong>
 	<br><br>
 <strong>
