@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	perusahaan mana lagi bangkrut (tidak ada hutang tapi tidak bisa jalankan operasional) dan pailit (milik hutang kepada pemodal)
+	perusahaan mana lagi bangkrut (tidak ada hutang tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
 	<br><br>
 	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, networking, software developer dan software engineer karena merasa jadi pilot selama ini tetap goblok hidupnya ✍️📚 tanpa mesin bisa apa pilot
 	<br><br>
