@@ -9,6 +9,8 @@
 <div align="center">
 <strong>
 	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, networking, software developer dan software engineer karena merasa jadi pilot selama ini tetap goblok hidupnya ✍️📚 tanpa mesin bisa apa pilot
+	<br><br>
+	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
 </strong>
 	<br><br>
 <strong>
