@@ -10,6 +10,8 @@
 <strong>
 	perusahaan mana lagi bangkrut (tidak ada hutang tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
 	<br><br>
+	tidak lulus test kerja begini gue paham hukum gue baik baik kalian
+	<br><br>
 	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, networking, software developer dan software engineer karena merasa jadi pilot selama ini tetap goblok hidupnya ✍️📚 tanpa mesin bisa apa pilot
 	<br><br>
 	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
