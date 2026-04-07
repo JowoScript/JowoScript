@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, software developer dan software engineer 
+	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, networking, software developer dan software engineer 
 </strong>
 	<br><br>
 <strong>
