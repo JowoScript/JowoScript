@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, networking, software developer dan software engineer karena merasa jadi pilot selama ini tetap goblok hidupnya 🤣 tanpa mesin bisa apa pilot
+	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, networking, software developer dan software engineer karena merasa jadi pilot selama ini tetap goblok hidupnya ✍️📚 tanpa mesin bisa apa pilot
 </strong>
 	<br><br>
 <strong>
