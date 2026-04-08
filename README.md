@@ -16,6 +16,8 @@
 	<br><br>
 	IDE Kingdom technology environment tidak gratisan juga gue buat bisa di kunci juga jadi santai gue semua akan terlihat siapa goblok di dunia kerja
 	<br><br>
+	permintaan gaji gue juga otomatis mahal 1000x dari harga lisensi oreng cerdas mana mau gaji kecil
+	<br><br>
 	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
 </strong>
 	<br><br>
