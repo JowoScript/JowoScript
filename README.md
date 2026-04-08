@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	IDE Kingdom Technology environment juga tidak gratisan. Mau sodara saja wajib beli gimana orang lain tidak ada kontribusi nya mau gratisan mau numpang hahaha kebanyakan manusia begitu bukan
+	<br><br>
 	jika ada orang ngaku beli tapi gue tidak Nerima uangnya siapa mati yang nipu itu sudah jelas ya jadi jangan pernah nipu gue ya. paham sampai sini yang banyak gaya tapi goblok. hobinya suka nipu gue sudah pasti mati duluan biar paham siapa goblok dan pintar 
 	<br><br>
 	algojo Muhammad Nurcahyo Pratomo sudah jelas mahkamah agung kalo ada masalah pasti nanyanya ke gue dan tidak mungkin nanya ke orang lain simple logic. semua hakim di pengadilan sudah pasti setuju. pasti di tanya kalian beli apa tidak ke Muhammad Nurcahyo Pratomo kalo tidak beli ya kalian salah kalo buat onar ya dan Facebook gue akan penuh hakim agung kalo pemerintah yang beli di akhir kalo belum beli ya nonton saja siapa mau buat masalah 
