@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	jika ada orang ngaku beli tapi gue tidak Nerima uangnya siapa mati yang nipu itu sudah jelas ya jadi jangan pernah nipu gue ya
+	jika ada orang ngaku beli tapi gue tidak Nerima uangnya siapa mati yang nipu itu sudah jelas ya jadi jangan pernah nipu gue ya. paham sampai sini yang banyak gaya tapi goblok
 	<br><br>
 	Perusahaan di danai pemerintah atau investor kuat tidak pondasinya kalo tidak di danai lagi
 	<br><br>
