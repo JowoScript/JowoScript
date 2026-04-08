@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	bertanding sama gue tapi tidak ada hasilnya terlihat siapa bego selama ini
+	<br><br>
 	perusahaan mana lagi bangkrut (tidak ada hutang kepada pemodal tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
 	<br><br>
 	tidak lulus test kerja begini gue paham hukum gue baik baik kalian
