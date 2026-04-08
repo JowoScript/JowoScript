@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	IDE Kingdom Technology environment juga tidak gratisan. Mau sodara saja wajib beli gimana orang lain tidak ada kontribusi nya mau gratisan mau numpang hahaha kebanyakan manusia begitu bukan
+	IDE Kingdom Technology environment juga tidak gratisan. Mau sodara saja wajib beli gimana orang lain tidak ada kontribusi nya mau gratisan mau numpang hahaha kebanyakan manusia begitu bukan biar paham jadi pengusaha gimana ya beda biasa di manja di kantor seperti pejabat kalo sudah pensiun juga akan mikir kallian anak cucu ya
 	<br><br>
 	jika ada orang ngaku beli tapi gue tidak Nerima uangnya siapa mati yang nipu itu sudah jelas ya jadi jangan pernah nipu gue ya. paham sampai sini yang banyak gaya tapi goblok. hobinya suka nipu gue sudah pasti mati duluan biar paham siapa goblok dan pintar 
 	<br><br>
