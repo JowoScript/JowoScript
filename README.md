@@ -16,6 +16,8 @@
 	<br><br>
 	IDE Kingdom technology environment tidak gratisan juga gue buat bisa di kunci juga jadi santai gue semua akan terlihat siapa goblok di dunia kerja
 	<br><br>
+	Buat aplikasi e-commerce itu mudah di tiru jadi santai gue ya pengalaman anak bayi duluan belum tentu hebat bagi gue 
+	<br><br>
 	permintaan gaji gue juga otomatis mahal 1000x dari harga lisensi orang cerdas mana mau gaji kecil
 	<br><br>
 	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
