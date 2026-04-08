@@ -14,6 +14,8 @@
 	<br><br>
 	perusahaan asuransi kesehatan macet bayarnya juga banyak di akhir tutup juga perusahaan asuransi swasta kalo konsumen nya tidak pakai asuransi kesehatan lagi ganti bpjs yang murah
 	<br><br>
+	pemilik yayasan sekolah mau tau sekuat apa mereka cari murid di akhir semua larinya ke gue
+	<br><br>
 	pengusaha banyak hutang tagihin saja kalo sudah jatuh tempo.
 	<br><br>
 	perusahaan mana lagi bangkrut (tidak ada hutang kepada pemodal tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
