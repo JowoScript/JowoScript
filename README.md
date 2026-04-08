@@ -10,6 +10,8 @@
 <strong>
 	jika ada orang ngaku beli tapi gue tidak Nerima uangnya siapa mati yang nipu itu sudah jelas ya jadi jangan pernah nipu gue ya. paham sampai sini yang banyak gaya tapi goblok. hobinya suka nipu gue sudah pasti mati duluan biar paham siapa goblok dan pintar 
 	<br><br>
+	algojo gue sudah jelas mahkamah agung kalo ada masalah pasti nanyanya ke gue
+	<br><br>
 	Perusahaan di danai pemerintah atau investor kuat tidak pondasinya kalo tidak di danai lagi
 	<br><br>
 	bangun apartemen dan rumah susun apa laku sampai sekarang ? sudah habiskan uang berapa untuk pemodal dan hutang berapa kepada pemodal. banyak apartemen sepi di sewa sampai sekarang dan rumah susun sepi di sewa sampai sekarang 
