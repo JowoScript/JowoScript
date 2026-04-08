@@ -95,7 +95,7 @@
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
+#### There is no guarantee from Muhammad Nurcahyo Pratomo if purchased through a third party or intermediary
 #### Purchases of licensed products must be paid in full without debt or credit
 <img src="Kingdom Technology 0.1.50.png" 
      title="PT JowoScript Technology Indonesia"
