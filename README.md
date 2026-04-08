@@ -9,7 +9,7 @@
 <div align="center">
 <strong>
 	in english if i translation
-	<br><<br>
+	<br><br>
 	The IDE Kingdom Technology environment isn't free either. Even if you want to be a member, you have to buy it, so how can other people who don't contribute can't anything get it for free hahaha.
 	<br><br>
 	the translation error in indonesia ? so i translate alone hahahaha 
