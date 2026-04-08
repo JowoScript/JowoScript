@@ -10,7 +10,7 @@
 <strong>
 	Perusahaan di danai pemerintah atau investor kuat tidak pondasinya kalo tidak di danai lagi
 	<br><br>
-	bangun apartemen dan rumah susun apa laku sampai sekarang ? sudah habiskan uang berapa untuk pemodal dan hutang berapa kepada pemodal
+	bangun apartemen dan rumah susun apa laku sampai sekarang ? sudah habiskan uang berapa untuk pemodal dan hutang berapa kepada pemodal. banyak apartemen sepi di sewa sampai sekarang dan rumah susun sepi di sewa sampai sekarang 
 	<br><br>
 	pengusaha banyak hutang tagihin saja kalo sudah jatuh tempo.
 	<br><br>
