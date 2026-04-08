@@ -14,11 +14,9 @@
 	<br><br>
 	tidak lulus test kerja begini gue paham hukum gue baik baik kalian
 	<br><br>
-	Tetap santai gue dimana orang goblok sudah lama kerja belum tentu pintar di dunia kerja khususnya developer IT, IT support, networking, software developer dan software engineer karena merasa jadi pilot selama ini tetap goblok hidupnya ✍️📚 tanpa mesin bisa apa pilot
+	IDE Kingdom technology environment tidak gratisan juga gue buat bisa di kunci juga jadi santai gue semua akan terlihat siapa goblok di dunia kerja
 	<br><br>
 	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
-	<br><br>
-	gue berisik tetap setiap hari produk gue buat berkembang terus termasuk kingdom technology IDE kalian saja bego selama ini sstu hari bisa nambah new version kalo gue mau. malam mingguan tetap bangun produk mahal gue coy judulnya saja bales dendam tidak ada gratisan produk gue buat dan perusahaan gue tidak ada hutang ya modal sendiri 101 rupiah hahaha dan perusahaan sendiri juga dan tidak pakai uang pemerintah atau investor juga gue buat produk sendiri dan tidak gratisan juga produk gue buat ya adil bukan dan pemerintah minta gratisan tidak akan gue izinkan enak benar buat nya susah minta gratisan beli juga tidak dan gue tidak nerima uangnya juga selama ini jadi santai gue
 </strong>
 	<br><br>
 <strong>
