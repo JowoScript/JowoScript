@@ -14,7 +14,7 @@
 	<br><br>
 	perusahaan asuransi kesehatan macet bayarnya juga banyak di akhir tutup juga perusahaan asuransi swasta kalo konsumen nya tidak pakai asuransi kesehatan lagi ganti bpjs yang murah
 	<br><br>
-	Mahasiswa protes sama yayasan sekolah saja ya jangan ke gue mereka yayasan sekolah dan universitas juga bukan donatur gue juga selama ini. paham sampai sini mahasiswa 
+	Mahasiswa protes sama yayasan sekolah saja ya jangan ke gue mereka yayasan sekolah dan universitas juga bukan donatur gue juga selama ini. paham sampai sini mahasiswa. anak pemilik yayasan kalo tidak sopan sama gue ya paham yayasannya gue blacklist di produk gue buat
 	<br><br>
 	pengusaha banyak hutang tagihin saja kalo sudah jatuh tempo.
 	<br><br>
