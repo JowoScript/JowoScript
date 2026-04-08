@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	perusahaan punya hutang untuk modal perusahaan ke bank juga jangan lupa bayar hutang 
+	perusahaan punya hutang untuk modal perusahaan ke bank juga jangan lupa bayar hutang. PT JowoScript Technology Indonesia modal usaha habya 101 rupiah jadi santai
 	<br><br>
 	perusahaan mana lagi bangkrut (tidak ada hutang kepada pemodal tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
 	<br><br>
