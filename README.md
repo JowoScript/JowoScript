@@ -10,7 +10,7 @@
 <strong>
 	The IDE Kingdom Technology environment isn't free either. Even if you want to be a member, you have to buy it, so how can other people who don't contribute can't anything get it for free hahaha.
 	<br><br>
-	the translation error in indonesia ? hahahaha 
+	the translation error in indonesia ? so i translate alone hahahaha 
 	<br><br>
 	IDE Kingdom Technology environment juga tidak gratisan. Mau sodara saja wajib beli gimana orang lain tidak ada kontribusi nya mau gratisan mau numpang hahaha kebanyakan manusia begitu bukan biar paham jadi pengusaha gimana ya beda biasa di manja di kantor seperti pejabat kalo sudah pensiun juga akan mikir kallian anak cucu ya
 	<br><br>
