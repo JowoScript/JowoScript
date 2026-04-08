@@ -10,6 +10,8 @@
 <strong>
 	in english if i translation
 	<br><br>
+	Beli lisensi produk wajib cash bayarnya tidak pakai hutang atau kredit ya. mampus siapa tidak berguna bukan gue
+	<br><br>
 	The IDE Kingdom Technology environment isn't free either. Even if you want to be a member, you have to buy it, so how can other people who don't contribute can't anything get it for free hahaha. indonesia government dont buy my product until now. dont trust politic in Indonesia if your know to many talk talk hahahaha. i dont want teaching more okay
 	<br><br>
 	the translation error in indonesia ? so i translate alone hahahaha 
