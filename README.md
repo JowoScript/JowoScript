@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	bertanding sama gue tapi tidak ada hasilnya terlihat siapa bego selama ini dan ramai ramai keroyokan ke gue saja masih bego gimana sendirian karena orang pengecut biasanya ramai ramai kalo di keroyok balik nangis nanti
+	perusahaan punya hutang unuk modal perusahaan ke bank juga jangan lupa bayar hutang 
 	<br><br>
 	perusahaan mana lagi bangkrut (tidak ada hutang kepada pemodal tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
 	<br><br>
