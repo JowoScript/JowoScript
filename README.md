@@ -98,6 +98,7 @@
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
+	 <img src="FB_IMG_1775684487367.jpg" height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 #### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
