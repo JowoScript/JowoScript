@@ -10,6 +10,8 @@
 <strong>
 	Perusahaan di danai pemerintah atau investor kuat tidak pondasinya kalo tidak di danai lagi
 	<br><br>
+	bangun apartemen dan rumah susun apa laku sampai sekarang ? sudah habiskan uang berapa untuk pemodal dan hutang berapa kepada pemodal
+	<br><br>
 	pengusaha banyak hutang tagihin saja kalo sudah jatuh tempo.
 	<br><br>
 	perusahaan mana lagi bangkrut (tidak ada hutang kepada pemodal tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
