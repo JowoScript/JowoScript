@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri buat compiler sendiri belum yang lainnya dan tidak butuh beban ya orang orang pengangguran mau gratisan buat juga tidak bisa apa lagi kembangkan produk gue dan kontribusinya selama ini juga tidak ada ke gue malah nyerang gue maki maki sudah miskin hidup goblok lagi yg maki maki gue sisipkan lewat music jeduk jeduk ya dulu mending mati saja manusia begituh beli produk gue juga tidak fakta ya. kalian pengangguran rusuhin gue juga percuma tidak bisa buat juga apa lagi kembangkan dan hanya gue yang bisa mengajarkan bahasa pemrograman baru gue buat jkm, jon jss, js3, jml dan seterusnya.  
+	bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri buat compiler sendiri belum yang lainnya dan tidak butuh beban ya orang orang pengangguran mau gratisan buat juga tidak bisa apa lagi kembangkan produk gue dan kontribusinya selama ini juga tidak ada ke gue malah nyerang gue maki maki sudah miskin hidup goblok lagi yg maki maki gue sisipkan lewat music jeduk jeduk ya dulu mending mati saja manusia begituh beli produk gue juga tidak fakta ya. kalian pengangguran rusuhin gue juga percuma tidak bisa buat juga apa lagi kembangkan dan hanya gue yang bisa mengajarkan bahasa pemrograman baru gue buat jkm, jon jss, js3, jml dan seterusnya. Selama ini kalian taunya jowoscript doang makane goblok jangan di pelihara 
 </strong>
 	<br><br>
 <strong>
