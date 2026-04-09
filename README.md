@@ -8,41 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	in english if i translation
-	<br><br>
-	Beli lisensi produk wajib cash bayarnya tidak pakai hutang atau kredit ya. mampus siapa tidak berguna bukan gue
-	<br><br>
-	The IDE Kingdom Technology environment isn't free either. Even if you want to be a member, you have to buy it, so how can other people who don't contribute can't anything get it for free hahaha. indonesia government dont buy my product until now. dont trust politic in Indonesia if your know to many talk talk hahahaha. i dont want teaching more okay
-	<br><br>
-	the translation error in indonesia ? so i translate alone hahahaha 
-	<br><br>
-	IDE Kingdom Technology environment juga tidak gratisan. Mau sodara saja wajib beli gimana orang lain tidak ada kontribusi nya mau gratisan mau numpang hahaha kebanyakan manusia begitu bukan biar paham jadi pengusaha gimana ya beda biasa di manja di kantor seperti pejabat kalo sudah pensiun juga akan mikir kallian anak cucu ya
-	<br><br>
-	jika ada orang ngaku beli tapi gue tidak Nerima uangnya siapa mati yang nipu itu sudah jelas ya jadi jangan pernah nipu gue ya. paham sampai sini yang banyak gaya tapi goblok. hobinya suka nipu gue sudah pasti mati duluan biar paham siapa goblok dan pintar 
-	<br><br>
-	algojo Muhammad Nurcahyo Pratomo sudah jelas mahkamah agung kalo ada masalah pasti nanyanya ke gue dan tidak mungkin nanya ke orang lain simple logic. semua hakim di pengadilan sudah pasti setuju. pasti di tanya kalian beli apa tidak ke Muhammad Nurcahyo Pratomo kalo tidak beli ya kalian salah kalo buat onar ya dan Facebook gue akan penuh hakim agung kalo pemerintah yang beli di akhir kalo belum beli ya nonton saja siapa mau buat masalah 
-	<br><br>
-	Perusahaan di danai pemerintah atau investor kuat tidak pondasinya kalo tidak di danai lagi
-	<br><br>
-	bangun apartemen dan rumah susun apa laku sampai sekarang ? sudah habiskan uang berapa untuk pemodal dan hutang berapa kepada pemodal. banyak apartemen sepi di sewa sampai sekarang dan rumah susun sepi di sewa sampai sekarang 
-	<br><br>
-	perusahaan asuransi kesehatan macet bayarnya juga banyak di akhir tutup juga perusahaan asuransi swasta kalo konsumen nya tidak pakai asuransi kesehatan lagi ganti bpjs yang murah
-	<br><br>
-	Mahasiswa protes sama yayasan sekolah saja ya jangan ke gue mereka yayasan sekolah dan universitas juga bukan donatur gue juga selama ini. paham sampai sini mahasiswa. anak pemilik yayasan kalo tidak sopan sama gue ya paham yayasannya gue blacklist di produk gue buat paham sampai sini satu sekolah bisa gelap masa depanya kalo banyak tingkah sama gue
-	<br><br>
-	pengusaha banyak hutang tagihin saja kalo sudah jatuh tempo.
-	<br><br>
-	perusahaan mana lagi bangkrut (tidak ada hutang kepada pemodal tapi tidak bisa jalankan operasional dan tidak butuh proses hukum) atau pailit (milik hutang kepada pemodal dan butuh proses hukum)
-	<br><br>
-	tidak lulus test kerja begini gue paham hukum gue baik baik kalian
-	<br><br>
-	IDE Kingdom technology environment tidak gratisan juga gue buat bisa di kunci juga jadi santai gue semua akan terlihat siapa goblok di dunia kerja
-	<br><br>
-	Buat aplikasi e-commerce itu mudah di tiru jadi santai gue ya duluan belum tentu hebat bagi gue 
-	<br><br>
-	permintaan gaji gue juga otomatis mahal 1000x dari harga lisensi orang cerdas mana mau gaji kecil
-	<br><br>
-	kalo saingan gue pengangguran dan pengusaha tetap santai gue skill coding copy and paste dan bukan itu beda level
+	bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya
 </strong>
 	<br><br>
 <strong>
