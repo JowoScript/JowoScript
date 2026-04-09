@@ -18,7 +18,7 @@
 </div>
 </div>
 
-##### Waku terus maju dan persaingan makin berat. gen milenium saja banyak yang nganggur gimana di atasnya. di lihat data nyata bukan influncer di bayar orang bodoh dan kepentingan. mau niru buat produk gue belum tentu berhasil ya selama belum beli dan semua itu ada audit keuangan jadi akan terlihat siapa maling selama ini. Perusahaan bertanding sama gue dengan hasil pengembangan tidak ada hasilnya termasuk penggelapan atau pencurian uang investor di perusahaan kalian masing masing. Semakin lama semakin asik ya. Biar goblok goblok pada mati. Produk palsu dan asli itu beda ya. Polisi salah tangkap saja bisa masuk penjara polisi sendiri. Siapa habiskan anggaran keuangan pemerintah selama ini juga bukan gue jadi santai gue jadi baik baik kalian kerja di pemerintahaan kapapun kalian akan butuh gue di akhir. Bermasalah sama gue sudah gue tandai semuanya termasuk maki maki gue lewat music ya dan tidak semua orang suka di maki maki ya apa lagi perusahaan milik sendiri gue baik baik kalian
+##### bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri dan tidak butuh beban ya orang orang pengangguran mau gratisan buat juga tidak bisa apa lagi kembangkan produk gue.
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
