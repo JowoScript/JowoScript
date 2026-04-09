@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri dan tidak butuh beban ya orang orang pengangguran mau gratisan 
+	bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri dan tidak butuh beban ya orang orang pengangguran mau gratisan buat juga tidak bisa apa lagi kembangkan produk gue.
 </strong>
 	<br><br>
 <strong>
