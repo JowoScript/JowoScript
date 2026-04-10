@@ -12,7 +12,7 @@
 	<br><br>
 	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua, sodara dan tidak di sponsori orang tua juga ya kalian banyak gaya tapi goblok hidupnya apa kabarnya kerjaan minta orang tuanya banyak dan modal usaha minta orang tuanya juga banyak anak zaman now
 	<br><br>
-	Siapa nyuruh gue kerja pasti masih jadi benalu di dunia kerja atau pembisnis pengusaha banyak hutang hahaha
+	Siapa nyuruh gue kerja pasti masih jadi benalu di dunia kerja atau pembisnis pengusaha banyak hutang hahaha dan orang cerdas + pintar mana mau gaji dan tunjangan kecil ya seperti gue terlihat siapa yang goblok di dunia kerja bermunculan terus
 	<br><br>
 	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
 	<br><br>
