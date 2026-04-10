@@ -10,7 +10,7 @@
 <strong>
 	Semua sudah gue prediksi biar pada mati orang orang goblok sama Ai biar makin susah cari kerja dan bisnis. Gue tetap santai karena orang goblok akan bermunculan terus di dunia kerja dan pembisnis goblok akan mati oleh persaingan makin berat
 	<br><br>
-	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua, sodara dan tidak di sponsori orang tua juga ya kalian banyak gaya tapi goblok hidupnya apa kabarnya kerjaan minta orang tuanya banyak dan modal usaha minta orang tuanya juga banyak anak zaman now
+	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua atau sodara buat produk selama ini dan tidak di sponsori orang tua atau sodara juga buat produk selama ini ya kalian banyak gaya tapi goblok hidupnya apa kabarnya kerjaan minta orang tuanya banyak dan modal usaha minta orang tuanya juga banyak anak zaman now
 	<br><br>
 	Siapa nyuruh gue kerja pasti masih jadi benalu di dunia kerja atau pembisnis pengusaha banyak hutang hahaha. Gue mana mau gaji dan tunjangan kecil minimal permintaan 100 triliun perbulan siapa yang goblok di dunia kerja juga bukan gue terbukti bermunculan terus bego bego dan pembisnis pengusaha goblok akan mati karena persaingan makin berat
 	<br><br>
