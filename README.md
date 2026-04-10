@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Semua sudah gue prediksi biar pada mati orang orang goblok sama Ai biar makin susah cari kerja dan bisnis. Gue tetap santai karena orang goblok akan bermunculan terus di dunia kerja 
+	Semua sudah gue prediksi biar pada mati orang orang goblok sama Ai biar makin susah cari kerja dan bisnis. Gue tetap santai karena orang goblok akan bermunculan terus di dunia kerja dan pembisnis goblok akan mati oleh persaingan makin berat
 	<br><br>
 	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua, sodara dan tidak di sponsori orang tua juga ya kalian banyak gaya tapi goblok hidupnya apa kabarnya kerjaan minta orang tuanya banyak dan modal usaha minta orang tuanya juga banyak anak zaman now
 	<br><br>
