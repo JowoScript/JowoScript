@@ -10,6 +10,8 @@
 <strong>
 	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
 	<br><br>
+	Kalo saingan gue pengangguran bocil bocil banyak gaya biarkan saja biar mereka cari uang susah pasti mati sendiri di akhir bocil bocil banyak gaya
+	<br><br>
 	Gue Muhammad Nurcahyo Pratomo bukan pegawai ASN, polri dan TNI ini jadi santai ya
 	<br><br>
 	Kata siapa pegawai asn, polri dan TNI tidak bisa kena pecat secara hormat atau tidak hormat ya. Kasih sangsi 2 kali berturut turut juga bisa kena pecat atau melanggar hukum mau di negara manapun juga sama ya tidak jahu beda
