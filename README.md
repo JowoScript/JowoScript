@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	kebanyakan minum alkohol bisa menyebabkan Hepatitis. uluh hati kena kalo kebanyakan minum alkohol 
+	kebanyakan minum alkohol bisa menyebabkan Hepatitis. uluh hati kena kalo kebanyakan minum alkohol. obatnya gak ada goblok kalo sudah parah
 	<br><br>
 	gue kasih gratisan ya rugi jelas gue tidak bisa bales dendam sama yang remehkan gue dulu waktu test lamar kerja dan di dunia kerja ya
 	<br><br>
