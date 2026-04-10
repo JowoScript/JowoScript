@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	kenapa gue minum sehari 4 liter supaya kencing terus dan racun di tubuh bisa keluar ya dan batu ginjal masih kecil bisa keluar sendiri dan ginjal kerja terlalu keras apa itu baik ? emang ginjal sama jantung apa bedanya setiap hari kerja pompa air. jantung pompa darah dan ginjal pompa air buangan. tidur saja jantung dan ginjal bekerja terus kalo berhenti ya mati setiap manusia yang hidup itu jelas
+	kebanyakan minum alkohol bisa menyebabkan Hepatitis A.
 	<br><br>
 	gue kasih gratisan ya rugi jelas gue tidak bisa bales dendam sama yang remehkan gue dulu waktu test lamar kerja dan di dunia kerja ya
 	<br><br>
