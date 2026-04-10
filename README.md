@@ -12,7 +12,7 @@
 	<br><br>
 	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua, sodara dan tidak di sponsori orang tua juga ya kalian banyak gaya tapi goblok hidupnya apa kabarnya kerjaan minta orang tuanya banyak dan modal usaha minta orang tuanya juga banyak anak zaman now
 	<br><br>
-	Siapa nyuruh gue kerja pasti masih jadi benalu di dunia kerja atau pembisnis pengusaha banyak hutang hahaha dan orang cerdas + pintar mana mau gaji dan tunjangan kecil ya seperti gue terlihat siapa yang goblok di dunia kerja bermunculan terus
+	Siapa nyuruh gue kerja pasti masih jadi benalu di dunia kerja atau pembisnis pengusaha banyak hutang hahaha. Gue mana mau gaji dan tunjangan kecil minimal permintaan 100 triliun perbulan siapa yang goblok di dunia kerja bermunculan terus dan pembisnis pengusaha goblok akan mati karena persaingan makin berat
 	<br><br>
 	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
 	<br><br>
