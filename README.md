@@ -12,6 +12,8 @@
 	<br><br>
 	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua, sodara dan tidak di sponsori orang tua juga ya kalian banyak gaya tapi goblok hidupnya apa kabarnya kerjaan minta orang tuanya banyak dan modal usaha minta orang tuanya juga banyak anak zaman now
 	<br><br>
+	Siapa nyuruh gue kerja pasti masih jadi benalu di dunia kerja atau pembisnis pengusaha banyak hutang hahaha
+	<br><br>
 	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
 	<br><br>
     Minta di danai duluan pengusaha kalo tidak berhasil buat produk ya bayar hutang itu aturannya kepada pemodal tinggal jalur hukum kelar masalah jika anak IT mau debat kusir sama gue sini siapa habis di penjara bukan gue tapi pengusaha dan anak IT sok preman sama gue masuk penjara jadi ayam di akhir karena di penjara lebih mudah ngantemi orang pancal endasemu mudah bagi gue paham pengalaman gue lebih banyak dari kalian
