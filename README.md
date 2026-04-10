@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	hidup saya sehari makan 2x secukupnya dan minum air putih 4 litter pasti dan tidur minimal 8 jam sehari
+	hidup saya sehari makan 2x secukupnya dan minum air putih 4 litter pasti dan tidur minimal 8 jam sehari jadi badan tidak overload 
 	<br><br>
 	gue kasih gratisan ya rugi jelas gue tidak bisa bales dendam sama yang remehkan gue dulu waktu test lamar kerja dan di dunia kerja ya
 	<br><br>
