@@ -8,6 +8,8 @@
 </div>
 <div align="center">
 <strong>
+	hidup saya sehari makan 2x secukupnya dan minum air putih 4 litter pasti dan tidur minimal 8 jam sehari
+	<br><br>
 	gue kasih gratisan ya rugi jelas gue tidak bisa bales dendam sama yang remehkan gue dulu waktu test lamar kerja dan di dunia kerja ya
 	<br><br>
 	Semua sudah gue prediksi biar pada mati orang orang goblok sama Ai biar makin susah cari kerja dan bisnis. Gue tetap santai karena orang goblok akan bermunculan terus di dunia kerja dan pembisnis goblok akan mati oleh persaingan makin berat
