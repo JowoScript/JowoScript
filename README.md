@@ -10,7 +10,7 @@
 <strong>
 	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
 	<br><br>
-    Minta di danai duluan kalo tidak berhasil ya bayar hutang itu aturannya pengusaha tinggal jalur hukum kelar masalah
+    Minta di danai duluan kalo tidak berhasil ya bayar hutang itu aturannya pengusaha tinggal jalur hukum kelar masalah jika anak IT mau debat kusir sama gue sini
 	<br><br>
 	Jowo script baru satu produk gue buat sudah ada bukti gue mampu buat produk sendiri. Belum kingdom technology, jowo kingdom machine, jowo object notation, jowo text markup language
 	<br><br>
