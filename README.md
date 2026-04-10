@@ -12,7 +12,7 @@
 	<br><br>
 	Gue Muhammad Nurcahyo Pratomo bukan pegawai ASN, polri dan TNI ini jadi santai ya
 	<br><br>
-	Kata siapa pegawai asn, polri dan TNI tidak bisa kena pecat secara hormat atau tidak hormat ya. Kasih sangsi berturut turut juga bisa kena pecat atau melanggar hukum 
+	Kata siapa pegawai asn, polri dan TNI tidak bisa kena pecat secara hormat atau tidak hormat ya. Kasih sangsi berturut turut juga bisa kena pecat atau melanggar hukum mau di negara manapun juga sama ya tidak jahu beda
 	<br><br>
 	bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri buat compiler sendiri belum yang lainnya dan tidak butuh beban ya orang orang pengangguran mau gratisan buat juga tidak bisa apa lagi kembangkan produk gue dan kontribusinya selama ini juga tidak ada ke gue malah nyerang gue maki maki sudah miskin hidup goblok lagi yg maki maki gue sisipkan lewat music jeduk jeduk ya dulu mending mati saja manusia begituh beli produk gue juga tidak fakta ya. kalian pengangguran rusuhin gue juga percuma tidak bisa buat juga apa lagi kembangkan dan hanya gue yang bisa mengajarkan bahasa pemrograman baru gue buat jkm, jon jss, js3, jml dan seterusnya. Selama ini kalian taunya jowoscript doang makane goblok jangan di pelihara kalian ya. kalian lulus sekolah saja saingannya sudah sama Ai otomatis cari kerja makin susah banyak gaya sama gue kalian sudah goblok hidup lagi fakta ya 
 </strong>
