@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	kenapa gue minum sehari 4 liter supaya kencing terus dan racun di tubuh bisa keluar ya
+	kenapa gue minum sehari 4 liter supaya kencing terus dan racun di tubuh bisa keluar ya dan batu ginjal masih kecil bisa keluar sendiri 
 	<br><br>
 	gue kasih gratisan ya rugi jelas gue tidak bisa bales dendam sama yang remehkan gue dulu waktu test lamar kerja dan di dunia kerja ya
 	<br><br>
