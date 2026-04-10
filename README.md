@@ -92,7 +92,7 @@
      height="100%" width="100%"></img>
 	 
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
-#### Dibaca modal perusahaan gue 101 rupiah karena skill gue di atas rata rata mampu buat sendiri produk. Siapapun wajib beli kalo mau beli produk gue buat, Siapa jadi benalu di dunia kerja tidak ada kerja sama dan join perusahaan gue dulu saja di persulit soal test kerja. Bales dendam gue itu nyata
+#### Dibaca modal perusahaan gue 101 rupiah karena skill gue di atas rata rata mampu buat sendiri produk. Siapapun wajib beli kalo mau beli produk gue buat, Siapa jadi benalu di dunia kerja selama ini bukan gue dan tidak ada kerja sama juga gue dan tidak ada join perusahaan gue juga ya dan dulu saja di persulit soal test kerja. Bales dendam gue itu nyata
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
