@@ -10,7 +10,7 @@
 <strong>
 	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
 	<br><br>
-	Kalo saingan gue pengangguran bocil bocil banyak gaya biarkan saja biar mereka cari uang susah pasti mati sendiri di akhir bocil bocil banyak gaya
+	Kalo saingan gue pengangguran bocil bocil banyak gaya biarkan saja biar mereka cari uang susah pasti mati sendiri di akhir bocil bocil banyak gaya dan apa lagi seumuran gue banyak gaya juga sama nasibnya di akhir
 	<br><br>
 	Gue Muhammad Nurcahyo Pratomo bukan pegawai ASN, polri dan TNI ini jadi santai ya
 	<br><br>
