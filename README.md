@@ -8,7 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua dan tidak di sponsori orang tua juga ya kalian banyak gaya tapi goblok hidupnya apa kabarnya 
+	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua, sodara dan tidak di sponsori orang tua juga ya kalian banyak gaya tapi goblok hidupnya apa kabarnya 
 	<br><br>
 	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
 	<br><br>
