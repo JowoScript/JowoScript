@@ -8,27 +8,7 @@
 </div>
 <div align="center">
 <strong>
-	Semua sudah gue prediksi biar pada mati orang orang goblok sama Ai biar makin susah cari kerja dan bisnis. Gue tetap santai karena orang goblok akan bermunculan terus di dunia kerja dan pembisnis goblok akan mati oleh persaingan makin berat
-	<br><br>
-	gue modal sendiri pakai uang sendiri buat produk tidak di modali orang tua atau sodara buat produk selama ini dan tidak di sponsori orang tua atau sodara juga buat produk selama ini ya kalian banyak gaya tapi goblok hidupnya apa kabarnya kerjaan minta orang tuanya banyak dan modal usaha minta orang tuanya juga banyak anak zaman now
-	<br><br>
-	Siapa nyuruh gue kerja pasti masih jadi benalu di dunia kerja atau pembisnis pengusaha banyak hutang hahaha. Gue mana mau gaji dan tunjangan kecil minimal permintaan 100 triliun perbulan siapa yang goblok di dunia kerja juga bukan gue terbukti bermunculan terus bego bego dan pembisnis pengusaha goblok akan mati karena persaingan makin berat
-	<br><br>
-	Kalian terima gaji dan tunjangan bulanan selama ini hasil kerjanya apa kalo mau debat kusir sama gue ya kalo mau hitung hitungan kalo mau minta gratis an product gue buat.
-	<br><br>
-    Minta di danai duluan pengusaha kalo tidak berhasil buat produk ya bayar hutang itu aturannya kepada pemodal tinggal jalur hukum kelar masalah jika anak IT mau debat kusir sama gue sini siapa habis di penjara bukan gue tapi pengusaha dan anak IT sok preman sama gue masuk penjara jadi ayam di akhir karena di penjara lebih mudah ngantemi orang pancal endasemu mudah bagi gue paham pengalaman gue lebih banyak dari kalian
-	<br><br>
-	Jowo script baru satu produk gue buat sudah ada bukti gue mampu buat produk sendiri. Belum kingdom technology, jowo kingdom machine, jowo object notation, jowo text markup language
-	<br><br>
-	merasa anak konglomerat tapi hasil hutang dari investor masih banyak bergaya di media soial
-	<br><br>
-	Kalo saingan gue pengangguran bocil bocil banyak gaya biarkan saja biar mereka cari uang susah pasti mati sendiri di akhir bocil bocil banyak gaya dan apa lagi seumuran gue banyak gaya juga sama nasibnya di akhir
-	<br><br>
-	Gue Muhammad Nurcahyo Pratomo bukan pegawai ASN, polri dan TNI ini jadi santai ya
-	<br><br>
-	Kata siapa pegawai asn, polri dan TNI tidak bisa kena pecat secara hormat atau tidak hormat ya. Kasih sangsi 2 kali berturut turut juga bisa kena pecat atau melanggar hukum mau di negara manapun juga sama ya tidak jahu beda
-	<br><br>
-	bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri buat compiler sendiri belum yang lainnya dan tidak butuh beban ya orang orang pengangguran mau gratisan buat juga tidak bisa apa lagi kembangkan produk gue dan kontribusinya selama ini juga tidak ada ke gue malah nyerang gue maki maki sudah miskin hidup goblok lagi yg maki maki gue sisipkan lewat music jeduk jeduk ya dulu mending mati saja manusia begituh beli produk gue juga tidak fakta ya. kalian pengangguran rusuhin gue juga percuma tidak bisa buat juga apa lagi kembangkan dan hanya gue yang bisa mengajarkan bahasa pemrograman baru gue buat jkm, jon jss, js3, jml dan seterusnya. Selama ini kalian taunya jowoscript doang makane goblok jangan di pelihara kalian ya. kalian lulus sekolah saja saingannya sudah sama Ai otomatis cari kerja makin susah banyak gaya sama gue kalian sudah goblok hidup lagi fakta ya 
+	
 </strong>
 	<br><br>
 <strong>
@@ -38,7 +18,7 @@
 </div>
 </div>
 
-##### bertanding buat produk gue tapi tidak ada hasilnya sampai sekarang di patenin wae orangnya dari pada bebanin hidup gue doang beli juga tidak ya. beban gue sudah berat buat produk beginian sendiri buat compiler sendiri belum yang lainnya dan tidak butuh beban ya orang orang pengangguran mau gratisan buat juga tidak bisa apa lagi kembangkan produk gue dan kontribusinya selama ini juga tidak ada ke gue malah nyerang gue maki maki sudah miskin hidup goblok lagi yg maki maki gue sisipkan lewat music jeduk jeduk ya dulu mending mati saja manusia begituh beli produk gue juga tidak fakta ya. kalian pengangguran rusuhin gue juga percuma tidak bisa buat juga apa lagi kembangkan dan hanya gue yang bisa mengajarkan bahasa pemrograman baru gue buat jkm, jon jss, js3, jml dan seterusnya 
+##### Jangan ada investasi dulu selama belum beli
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
@@ -90,7 +70,7 @@
 	 <img src="FB_IMG_1775684487367.jpg" height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
+#### Jangan ada investasi dulu selama belum beli
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
@@ -98,7 +78,7 @@
      height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
+#### Jangan ada investasi dulu selama belum beli
 
 #### Only work in my new programing language
 
@@ -115,7 +95,7 @@
      width="100%" height="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### produk asset mahal bukan untuk orang miskin dan khusus yang mampu beli lisensi saja boleh punya ini produk 
+#### Jangan ada investasi dulu selama belum beli
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
