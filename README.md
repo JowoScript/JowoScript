@@ -16,7 +16,7 @@
 </div>
 </div>
 
-##### Don't invest anything to company or government until buy first because I haven't received any money at all and kingdom technology environment not free too everything under my development until now
+##### Don't invest anything to company or government until buy first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
