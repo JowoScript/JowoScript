@@ -7,10 +7,8 @@
 </a>
 </div>
 <div align="center">
-<strong>
-	
+<strong>	
 </strong>
-	<br><br>
 <strong>
 	PT JowoScript Technology Indonesia
 	Introduction
@@ -18,7 +16,7 @@
 </div>
 </div>
 
-##### Jangan ada investasi dulu selama belum beli
+##### Don't invest until buy first because I haven't received any money at all
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
