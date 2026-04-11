@@ -16,7 +16,7 @@
 </div>
 </div>
 
-##### Don't invest until buy first because I haven't received any money at all
+##### Don't invest until buy first because I haven't received any money at all and kingdom technology environment not free too everything under my development until now
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
