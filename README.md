@@ -71,7 +71,7 @@
 	 <img src="FB_IMG_1775684487367.jpg" height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Jangan ada investasi dulu selama belum beli
+#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
@@ -97,7 +97,7 @@
      width="100%" height="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Jangan ada investasi dulu selama belum beli
+#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
