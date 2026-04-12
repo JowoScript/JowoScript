@@ -79,7 +79,8 @@
      height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Jangan ada investasi dulu selama belum beli
+
+#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 
 #### Only work in my new programing language
 
@@ -89,7 +90,7 @@
      height="100%" width="100%"></img>
 	 
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
-#### Dibaca modal perusahaan gue 101 rupiah karena skill gue di atas rata rata mampu buat sendiri produk. Siapapun wajib beli kalo mau beli produk gue buat, Siapa jadi benalu di dunia kerja selama ini bukan gue dan tidak ada kerja sama juga gue dan tidak ada join perusahaan gue juga ya dan dulu saja di persulit soal test kerja. Bales dendam gue itu nyata
+#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
