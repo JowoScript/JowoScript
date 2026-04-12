@@ -16,7 +16,7 @@
 </div>
 </div>
 
-##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now
+##### Don't invest anything to others company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 
 #### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
