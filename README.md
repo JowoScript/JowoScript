@@ -18,7 +18,7 @@
 
 ##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now
 
-#### Wich company went bankrupt and debts
+#### Which company went bankrupt and having debts. sure not my company
 
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
