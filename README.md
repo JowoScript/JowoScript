@@ -18,7 +18,7 @@
 
 ##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now
 
-#### Which company went bankrupt and having debts. sure not my company
+#### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed and having debts before
 
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
