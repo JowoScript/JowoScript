@@ -18,7 +18,7 @@
 
 ##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 
-#### Mampus pengusaha banyak gaya sama gue sekarang, Pengusaha mana lagi gagal bayar hutang, mulai besok trader atau pengusaha banyak jadi gembel hahahaha. Kalo saingan gue pengangguran dan punya anak tetap santai gue selama belum beli dan gue selama ini tidak nerima uangnya juga siapa tumbang karena prediksi gue tepat semua makin kedepan banyak phk karena Ai dan efisien anggaran dan penerimaan pegawai pemerintah makin sedikit karena makan duluan bukan haknya belum tentu selamat ya di dunia dan akhirat hahahaha 
+#### Mampus pengusaha banyak gaya sama gue sekarang, Pengusaha mana lagi gagal bayar hutang, mulai besok seterusnya trader atau pengusaha banyak jadi gembel hahahaha. Kalo saingan gue pengangguran dan punya anak tetap santai gue selama belum beli dan gue selama ini tidak nerima uangnya juga siapa tumbang karena prediksi gue tepat semua makin kedepan banyak phk karena Ai dan efisien anggaran dan penerimaan pegawai pemerintah makin sedikit karena makan duluan bukan haknya belum tentu selamat ya di dunia dan akhirat hahahaha 
 
 #### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
