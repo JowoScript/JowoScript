@@ -18,7 +18,7 @@
 
 ##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 
-#### Kalo saingan gue pengangguran dan punya anak tetap santai gue selama belum beli dan tidak nerima uangnya juga siapa tumbang karena prediksi gue tepat semua 
+#### Kalo saingan gue pengangguran dan punya anak tetap santai gue selama belum beli dan gue selama ini tidak nerima uangnya juga siapa tumbang karena prediksi gue tepat semua 
 
 #### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
