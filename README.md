@@ -186,7 +186,7 @@
 </ol>
 </div>
 
-### Legal Rights of Technology Creators and The regulatory requirements for purchase license tokens (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different)
+### Legal Rights of Technology Creators and The regulatory requirements for purchase license tokens
 <div align="justify">
 <ol>
 <li>Must follow and obey basic regulatory requirements in registration license agreement</li>
@@ -199,7 +199,7 @@
 </ol>
 </div>
 
-### Legal Rights of Technology Creators and Laws against violators of the Legal Rights of Technology Creators (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different)
+### Legal Rights of Technology Creators and Laws against violators of the Legal Rights of Technology Creators
 <div align="justify">
 <ol>
 <li>Will deal with the laws in force in the country where you live or jail the future</li>
@@ -231,7 +231,6 @@
 <li>JowoScript Technology and JowoStyle Technology undefined technology the mean is cannot be detected by third-party technology or the like because the source code of JowoScript Technology is end-to-end encryption, meaning that it is not easily read by bad hackers or cybercriminals.</li>
 <li>Very easy to install on multiplatform servers to deploy because it is a native technology with javascript technology standard</li>
 <li>Responsive mode user interface (Meaning i.e. when your design is in tablet mode, mobile or phone mode, television mode, LCD(Liquid Crystal Display) mode and laptop mode)</li>
-<li>Native platform (For example, a cross-platform application may run on Microsoft Mobile, Microsoft Windows, Android, z/OS, Linux OS, Unix OS, iOS and macOS)</li>
 <li>Smart automatic detection error in javascript engine with license business jowoscript programing language</li>
 <li>Smart automatic detection error in jowoscript engine with license business jowoscript programing language</li>
 <li>Handling array of objects and decided multiple of attributes and pseudo with license business jowoscript programing language</li>	
