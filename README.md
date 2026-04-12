@@ -28,7 +28,7 @@
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	<br><br>
-	The free programing language don't have fundamental of law and easy to be hacking like a phishing (website bank) or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical  (different law and syntax code). The implicit fair the law by law and the legal by legal
+	The free programing language don't have fundamental of law and easy to be hacking like a phishing (developer cloning website without owner permision) or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical  (different law and syntax code). The implicit fair the law by law and the legal by legal
 	<br><br>
 </div>
 
