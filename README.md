@@ -18,7 +18,7 @@
 
 ##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 
-#### Orang punya hutang sama gue hidupnya tidak akan tenang gue jamin di dunia dan akhirat
+#### Orang punya hutang sama gue hidupnya tidak akan tenang gue jamin di dunia dan akhirat dan tidak akan gue izinkan masuk surga juga
 
 #### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
