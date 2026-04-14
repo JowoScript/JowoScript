@@ -22,6 +22,8 @@
 
 #### Orang punya hutang sama gue tak sumpahin cepat mati wae lama bayarnya sudah 5 tahun ya
 
+#### Produk aslinya saja di gue kalian jual produk palsu kalian sendiri bego
+
 #### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
 
