@@ -20,7 +20,7 @@
 
 #### Orang punya hutang sama gue hidupnya tidak akan tenang gue jamin di dunia dan akhirat dan tidak akan gue izinkan masuk surga juga
 
-#### Orang punya hutang sama gue tak sumpahin cepat mati wae lama bayarnya sudah 4 tahun ya
+#### Orang punya hutang sama gue tak sumpahin cepat mati wae lama bayarnya sudah 5 tahun ya
 
 #### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
