@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Orang iri dan goblok itu banyak ya di Wikipedia saja ada yg iri jadi males update di Wikipedia 
+#### Orang iri dan goblok itu banyak ya di Wikipedia saja ada yg iri jadi males update di Wikipedia karena goblok dan iri akan hancur mereka di akhir ya
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
