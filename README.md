@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### my profile has be view more 1 billions mampus yang makin iri dan goblok. I'm update my article profie and my article own company in Wikipedia then someone reports 🤣 my profile and own company hahaha
+#### my profile has be view more 1 billions mampus yang makin iri dan goblok. I'm update my article profile and own company name in Wikipedia then someone reports 🤣 hahahaha 
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
