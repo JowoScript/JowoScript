@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Orang iri dan goblok itu banyak ya di Wikipedia saja ada yg iri jadi males update di Wikipedia karena goblok dan iri akan hancur mereka di akhir ya bukan gue yg urus tapi Allah SWT biar malaikat maut yg urus di akhir tetap saja gue berkembang produk gue buat jadi santai gue karena orang pengecut tidak berani hadapai gue langsung bertanding tidak bisa buat lebih akan terlihat karena goblok akan terlihat terus karena gue suka kumpul kan musuh musuh gue dulu untuk di bantai di akhir karena gue juga bisa ramai ramai paham sampai sini 
+#### Orang iri dan goblok itu banyak ya di Wikipedia saja ada yg iri jadi males update di Wikipedia karena goblok dan iri akan hancur mereka di akhir ya bukan gue yg urus tapi Allah SWT biar malaikat maut yg urus di akhir tetap saja gue berkembang produk gue buat jadi santai gue karena orang pengecut tidak berani hadapai gue langsung bertanding tidak bisa buat lebih akan terlihat karena goblok akan terlihat terus karena gue suka kumpul kan musuh musuh gue dulu untuk di bantai di akhir karena gue juga bisa ramai ramai paham sampai sini karena yg berkepentingan akan ikut gue di akhir
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
