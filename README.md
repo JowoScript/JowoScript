@@ -24,6 +24,8 @@
 
 #### Produk aslinya saja di gue kalian jual produk palsu kalian sendiri bego
 
+#### PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
+
 #### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
 
