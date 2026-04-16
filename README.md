@@ -54,7 +54,7 @@
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) 
 <div align="justify">
 <ol>
-	<li>Wikipedia delete my name article so i can blacklist too wikipedia in my product. this fair right then my product blacklist domain name server permanent for Wikipedia and no matter how expensive Wikipedia domain name thats be zero by me too thats website running in php i know</li>
+	<li>Wikipedia delete my name article so i can blacklist too wikipedia in my product. this fair right then my product blacklist domain name server permanent for Wikipedia and no matter how expensive Wikipedia domain name thats be zero by me too thats website running in php i know. kenapa gue harus takut sama orang lebih goblok dari gue ya kalian bisa apa gue tanya persaingan makin berat kedepannya</li>
 	<li>Cryptocurrency</li>
 	<li>Holywings Group</li>
 	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja pada tahun 2017 di Surabaya) Must die too siapa bullying gue dulu waktu kerja di surabaya. Pak Amir suruh buka suara sana saksi hidup dan chat wa group</li>
