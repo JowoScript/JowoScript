@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Musuh musuh gue hobinya ngarang cerita sudah pasti mati di akhir
+#### Musuh musuh gue hobinya ngarang cerita sudah pasti mati di akhir itu lah fungsinya gue ciptakan blacklist 
 
 #### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini dan belum tentu berhasil di pasaran atau laku ya contoh sudah banyak ya produk gagal di danai tidak laku di pasaran dan tidak balik modal dari pinjol, perumahan, apartemen dan banyak lagi. Muhammad Nurcahyo Pratomo dan PT JowoScript Technology Indonesia stay cool dan paling kece sedunia hahahaha 
 
