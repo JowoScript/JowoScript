@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini
+#### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini dan belum tentu berhasil di pasaran atau laku ya
 
 #### Orang goblok akan terlihat terus di akhir besok update wikipedia lagi siapa lagi report 🤣🤣🤣🤣 mancing itu mudah dan report saja publikasikan dirinya sendiri 🤣🤣🤣 low IQ hahahaha dan masuk kerjanya pasti lewat orang dalam 🤣🤣🤣🤣 hasil titipan 🤣🤣🤣🤣
 
