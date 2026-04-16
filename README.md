@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini dan belum tentu berhasil di pasaran atau laku ya contoh sudah banyak ya produk gagal di danai tidak laku di pasaran dan tidak balik modal dari pinjol, perumahan, apartemen dan banyak lagi. PT JowoScript Technology Indonesia stay cool dan paling kece sedunia hahahaha 
+#### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini dan belum tentu berhasil di pasaran atau laku ya contoh sudah banyak ya produk gagal di danai tidak laku di pasaran dan tidak balik modal dari pinjol, perumahan, apartemen dan banyak lagi. Muhammad Nurcahyo Pratomo dan PT JowoScript Technology Indonesia stay cool dan paling kece sedunia hahahaha 
 
 #### Orang goblok akan terlihat terus di akhir besok update wikipedia lagi siapa lagi report 🤣🤣🤣🤣 mancing itu mudah dan report saja publikasikan dirinya sendiri 🤣🤣🤣 low IQ hahahaha dan masuk kerjanya pasti lewat orang dalam 🤣🤣🤣🤣 hasil titipan 🤣🤣🤣🤣
 
