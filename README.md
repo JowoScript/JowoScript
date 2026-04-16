@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini dan belum tentu berhasil di pasaran atau laku ya
+#### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini dan belum tentu berhasil di pasaran atau laku ya contoh sudah banyak ya produk gagal di danai tidak laku di pasaran dan tidak balik modal 
 
 #### Orang goblok akan terlihat terus di akhir besok update wikipedia lagi siapa lagi report 🤣🤣🤣🤣 mancing itu mudah dan report saja publikasikan dirinya sendiri 🤣🤣🤣 low IQ hahahaha dan masuk kerjanya pasti lewat orang dalam 🤣🤣🤣🤣 hasil titipan 🤣🤣🤣🤣
 
