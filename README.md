@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃 bisa di baca di bawah ya harga produk gue berapa triliun tidak setara sama asset lu punya. Perusahaan di danai mana punya produk gue buat. Mobil mewah lu kalo isi rekening lu sedikit bikin malu gue saja dan jangan banyak gaya kalo hasil minjam dan hutang 🤣 data bank dan pinjol itu gagal bayar banyak paham 
+#### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃 bisa di baca di bawah ya harga produk gue berapa triliun tidak setara sama asset lu punya. Perusahaan di danai pemerintah atau investor mana punya produk gue buat. Mobil mewah lu kalo isi rekening lu sedikit bikin malu gue saja dan jangan banyak gaya kalo hasil minjam dan hutang 🤣 data bank dan pinjol itu gagal bayar banyak paham 
 
 #### perusahaan gue PT JowoScript Technology Indonesia tidak butuh karyawan sampai kapanpun karena  cukup gue sendiri mampu buat produk dan tidak ada gabungan perusahaan syukur yang mau enaknya doang mampus kau dan kalo saingan gue pengusaha atau pengangguran siapa yg tumbang juga bukan gue karena yg goblok akan mati oleh persaingan makin berat bisa di lihat bank pailit dari kecil dulu awalnya nanti ke besar
 
