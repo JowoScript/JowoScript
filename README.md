@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### admin Wikipedia reals criminals hahahahaha and another pages political delete too for delete my name  Muhammad Nurcahyo Pratomo article (proof archive internet). In the end, he was dishonorably discharged from the company where he worked and his admin's name was blacklisted at that company. In the end, the admin became unemployed. The company simple think find new employee for replace old admin employee. Kalo jadi di pecat bisa apa gue tanya itu admin ? masih bisa delete halaman suka hati ?
+#### admin Wikipedia reals criminals hahahahaha and another pages political delete too hahahaha for delete my name  Muhammad Nurcahyo Pratomo article (proof archive internet). In the end, he was dishonorably discharged from the company where he worked and his admin's name was blacklisted at that company. In the end, the admin became unemployed. The company simple think find new employee for replace old admin employee. Kalo jadi di pecat bisa apa gue tanya itu admin ? masih bisa delete halaman suka hati ?
 
 #### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃 bisa di baca di bawah ya harga produk gue berapa triliun tidak level sama asset lu punya seperti gedung, mobil, aplikasi erp, aplikasi sap dan seterusnya terbukti kalian putar disitu saja inovasi nya seperti orang goblok. Perusahaan di danai pemerintah atau investor mana punya produk gue buat sampai sekarang.
 
