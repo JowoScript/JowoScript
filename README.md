@@ -18,7 +18,7 @@
 
 #### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃. Mobil mewah lu kalo isi rekening lu sedikit bikin malu gue saja dan jangan banyak gaya kalo hasil minjam dan hutang 🤣 data bank dan pinjol itu gagal bayar banyak paham 
 
-#### perusahaan gue PT JowoScript Technology Indonesia tidak butuh karyawan sampai kapanpun karena  cukup gue sendiri mampu buat produk 
+#### perusahaan gue PT JowoScript Technology Indonesia tidak butuh karyawan sampai kapanpun karena  cukup gue sendiri mampu buat produk dan tidak ada gabungan perusahaan syukur yang mau enaknya doang mampus kau
 
 #### orang punya hutang sama gue belum bayar gue sumpahin cepat mati hidupnya dan keturunannya 
 
