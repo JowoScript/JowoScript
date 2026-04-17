@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### admin Wikipedia criminals hahahahaha 
+
 #### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃 bisa di baca di bawah ya harga produk gue berapa triliun tidak level sama asset lu punya seperti gedung, mobil, aplikasi erp, aplikasi sap dan seterusnya terbukti kalian putar disitu saja inovasi nya seperti orang goblok. Perusahaan di danai pemerintah atau investor mana punya produk gue buat sampai sekarang.
 
 #### Mobil mewah lu kalo isi rekening lu sedikit bikin malu gue saja dan jangan banyak gaya kalo hasil minjam dan hutang 🤣 data bank dan pinjol itu gagal bayar banyak paham 
