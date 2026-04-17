@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### admin Wikipedia criminals hahahahaha for delete my name article (proof archive internet) 
+#### admin Wikipedia criminals hahahahaha for delete my name  Muhammad Nurcahyo Pratomo article (proof archive internet) 
 
 #### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃 bisa di baca di bawah ya harga produk gue berapa triliun tidak level sama asset lu punya seperti gedung, mobil, aplikasi erp, aplikasi sap dan seterusnya terbukti kalian putar disitu saja inovasi nya seperti orang goblok. Perusahaan di danai pemerintah atau investor mana punya produk gue buat sampai sekarang.
 
@@ -66,7 +66,7 @@
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) 
 <div align="justify">
 <ol>
-	<li>Wikipedia delete my name article (proof archive internet) because i write my name article for biography history alone so i can blacklist too wikipedia in my product. this fair right then my product blacklist domain name server permanent for Wikipedia and no matter how expensive Wikipedia domain name thats be zero by me too thats website running in php i know. kenapa gue harus takut sama orang lebih goblok dari gue ya kalian bisa apa gue tanya persaingan makin berat kedepannya. Gimana produk komersial lainnya perusahaan komersial lainnya menampilkan di Wikipedia tidak di hapus ya</li>
+	<li>Wikipedia delete my name  Muhammad Nurcahyo Pratomo article (proof archive internet) because i write my name article for biography history alone so i can blacklist too wikipedia in my product. this fair right then my product blacklist domain name server permanent for Wikipedia and no matter how expensive Wikipedia domain name thats be zero by me too thats website running in php i know. kenapa gue harus takut sama orang lebih goblok dari gue ya kalian bisa apa gue tanya persaingan makin berat kedepannya. Gimana produk komersial lainnya perusahaan komersial lainnya menampilkan di Wikipedia tidak di hapus ya</li>
 	<li>Cryptocurrency</li>
 	<li>Holywings Group</li>
 	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja pada tahun 2017 di Surabaya) siapa bullying gue dulu waktu kerja di surabaya sampai ngancam gue tembak mati di group wa siapa calon mayat di akhir bukan gue ya dan kenapa gue harus takut sama orang lebih goblok dari gue ya di wa group dulu. Pak Amir suruh buka suara sana saksi hidup dan chat wa group</li>
