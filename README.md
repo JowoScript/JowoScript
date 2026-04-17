@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### admin Wikipedia criminals hahahahaha for delete my name  Muhammad Nurcahyo Pratomo article (proof archive internet). di akhir paling kena pecat dari perusahaan tempaat kerjanya jadi pengangguran mampus
+#### admin Wikipedia criminals hahahahaha for delete my name  Muhammad Nurcahyo Pratomo article (proof archive internet). di akhir paling kena pecat secara tidak hormat dari perusahaan tempaat kerjanya itu admin jadi pengangguran mampus
 
 #### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃 bisa di baca di bawah ya harga produk gue berapa triliun tidak level sama asset lu punya seperti gedung, mobil, aplikasi erp, aplikasi sap dan seterusnya terbukti kalian putar disitu saja inovasi nya seperti orang goblok. Perusahaan di danai pemerintah atau investor mana punya produk gue buat sampai sekarang.
 
