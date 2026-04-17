@@ -18,6 +18,8 @@
 
 #### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃. Mobil mewah lu kalo isi rekening lu sedikit bikin malu gue saja dan jangan banyak gaya kalo hasil minjam dan hutang 🤣 data bank dan pinjol itu gagal bayar banyak paham 
 
+#### perusahaan gue PT JowoScript Technology Indonesia tidak butuh karyawan sampai kapanpun karena  cukup gue sendiri mampu buat produk 
+
 #### orang punya hutang sama gue belum bayar gue sumpahin cepat mati hidupnya dan keturunannya 
 
 #### Musuh musuh gue hobinya ngarang cerita sudah pasti mati di akhir itu lah fungsinya gue ciptakan blacklist 
