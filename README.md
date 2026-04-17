@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### orang keroyok gue saja masih terima gaji dan tunjangan dari pemerintah apa tidak malu hidupnya orang seperti itu coba sendiri mana mampu ya buat hahahaha karena yang pintar dan goblok akan terlihat selalu 
+#### orang keroyok gue saja masih terima gaji dan tunjangan dari pemerintah apa tidak malu hidupnya orang seperti itu coba sendiri mana mampu ya buat hahahaha karena yang pintar dan goblok akan terlihat selalu bukan banyaknya jumlah tapi kualitas skill seorang di tentukan 
 
 #### admin Wikipedia reals criminals hahahaha for delete my name  Muhammad Nurcahyo Pratomo article and my company article and my products article (proof archive internet). In the end, he was dishonorably discharged from the company where he worked and his admin's name was blacklisted at that company. In the end, the admin became unemployed. The company simple think find new employee for replace old admin employee. Kalo jadi di pecat bisa apa gue tanya itu admin ? masih bisa delete halaman suka hati ?
 
