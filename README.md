@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃. Mobil mewah lu kalo isi rekening lu sedikit bikin malu saja
+#### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃. Mobil mewah lu kalo isi rekening lu sedikit bikin malu gue saja dan jangan banyak gaya kalo hasil minjam dan hutang 🤣 data bank dan pinjol itu gagal bayar banyak paham 
 
 #### orang punya hutang sama gue belum bayar gue sumpahin cepat mati hidupnya dan keturunannya 
 
