@@ -16,53 +16,11 @@
 </div>
 </div>
 
-#### biar jadi pengangguran dan tidak produktif juga mereka biar merasakan seperti gue dulu dan siapa goblok selama ini juga kalian bukan gue dan siapa tidak berguna juga bukan selama ini ya bisa ngaca sendiri kalian kontribusi mu apa selama ini ke gue ya tidak ada ya paham dan yang makan uang anggaran pemerintah atau investor juga bukan gue selama ini ya jadi paham tidak gratisan produk gue sesuai harga lisensi siapa goblok akan terlihat terus di dunia kerja
-
-#### Tidak punya kontribusi ke gue mau enaknya doang hasil bagi bagi lu siapa selama ini gue kerja sendiri di rumah buat produk setiap hari gak ada libur lu mau enaknya doang, mampus yg suka santai santai dan main main selama ini. pengusaha banyak gaya suruh bayar hutang saja mereka selama ini juga tidak beli produk gue. karena goblok akan terlihat terus
-
-#### Anak informatika kere kere taunya apache, Linux dan azura coba pakai yg mahal berbayar mental mereka ini fakta realistis ya
-
-#### Jowo Kingdom Machine, JowoScript dan banyak lagi hanya bisa di gunakan di Kingdom Technology Environment. mampus kau yg merasa lebih pintar dari gue 
-
-#### Semakin lama semakin bagus gue berkembang terus buat produk dan yg goblok akan mati jadi pengangguran tidak produktif mampus kau banyak gaya kalian gaji pegawai selama ini mampus juga mau di pemerintahan atau swasta karena goblok akan terlihat terus di pemerintahan atau swasta 
-
-#### IBM Rational Application Developer (RAD) for WebSphere Software is a commercial not free, Eclipse-based IDE designed to design, develop, test, and deploy Java, Java EE, SOA, and Web 2.0 applications, particularly for IBM WebSphere environments. It offers advanced tools for visual editing, code analysis, and high-quality web services development. 
-
-#### Apa server bank pakai linux gratisan ? tidak ada ya semua pakai IBM server bank makane kalo goblok dan miskin itu jangan banyak gaya sama gue yg sudah pernah terjun di proyek
-
-#### Do you never use Rational Application Develeoper IBM product ? Your think free all software IBM nope. Kingdom technology environment PT JowoScript Technology Indonesia product like thats too. Eclipse version free but the real products is RAD IBM need license not free
-
-#### Anak informatika yang miskin biasanya suka gratisan belum pernah pakai Rational Application Developer milik IBM yang bayar ya ? Tau nya eclipse doang gratisan hahahaha. Kingdom Technology Environment seperti itu kalo lu miskin ya nonton saja. Apa ada produk software IBM itu murah ? mana ada tanya itu bank bank yg menggunakan nya. Itu kenapa orang goblok dan miskin selalu banyak gaya tapi otaknya gak ada taunya gratis an doang 
-
-#### Kalian developer ANAK INFORMATIKA dan perusahaan miskin tidak punya uang belum pernah gunakan Rational Application Developer milik IBM yang bayar karena goblok akan terlihat di akhir biasanya gratisan seperti itu kingdom technology environment
-
-#### orang keroyok gue saja masih terima gaji dan tunjangan dari pemerintah apa tidak malu hidupnya orang seperti itu coba sendiri mana mampu ya buat hahahaha karena yang pintar dan goblok akan terlihat selalu bukan banyaknya jumlah orang tapi kualitas skill seorang di tentukan untuk bekerja
-
-#### admin Wikipedia reals criminals hahahaha for delete my name  Muhammad Nurcahyo Pratomo article and my company article and my products article (proof archive internet). In the end, he was dishonorably discharged from the company where he worked and his admin's name was blacklisted at that company. In the end, the admin became unemployed. The company simple think find new employee for replace old admin employee. Kalo jadi di pecat bisa apa gue tanya itu admin ? masih bisa delete halaman suka hati ?
-
-#### Kalo miskin jangan beli produk gue sadar diri isi rekening kalian ya 😃 bisa di baca di bawah ya harga produk gue berapa triliun tidak level sama asset lu punya seperti gedung, mobil, aplikasi erp, aplikasi sap dan seterusnya terbukti kalian putar disitu saja inovasi nya seperti orang goblok. Perusahaan di danai pemerintah atau investor mana punya produk gue buat sampai sekarang.
-
-#### Mobil mewah lu kalo isi rekening lu sedikit bikin malu gue saja dan jangan banyak gaya kalo hasil minjam dan hutang 🤣 data bank dan pinjol itu gagal bayar banyak paham 
-
-#### perusahaan gue PT JowoScript Technology Indonesia tidak butuh karyawan sampai kapanpun karena  cukup gue sendiri mampu buat produk dan tidak ada gabungan perusahaan syukur yang mau enaknya doang mampus kau dan kalo saingan gue pengusaha atau pengangguran siapa yg tumbang juga bukan gue karena yg goblok akan mati oleh persaingan makin berat bisa di lihat bank pailit dari kecil dulu awalnya nanti ke besar
-
-#### orang punya hutang sama gue belum bayar gue sumpahin cepat mati hidupnya dan keturunannya 
-
-#### Musuh musuh gue hobinya ngarang cerita sudah pasti mati di akhir itu lah fungsinya gue ciptakan blacklist 
-
-#### Karena minta di danai duluan belum tentu hebat buat produk paham sampai sini dan belum tentu berhasil di pasaran atau laku ya contoh sudah banyak ya produk gagal di danai tidak laku di pasaran dan tidak balik modal dari pinjol, perumahan, apartemen dan banyak lagi. Muhammad Nurcahyo Pratomo dan PT JowoScript Technology Indonesia stay cool dan paling kece sedunia hahahaha 
-
-#### Orang goblok akan terlihat terus di akhir besok update wikipedia lagi siapa lagi report 🤣🤣🤣🤣 mancing itu mudah dan report saja publikasikan dirinya sendiri 🤣🤣🤣 low IQ hahahaha dan masuk kerjanya pasti lewat orang dalam 🤣🤣🤣🤣 hasil titipan 🤣🤣🤣🤣
+#### Musuh gue suka ngarang cerita gimana kabarnya ? cari uang susah ya kasihan deh lu goblok sih. Gue tidak punya hutang dan perusahaa sendiri terlihat hidup gue biasa biasa saja tapi uang ada terus dan makan terus
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
 ##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
-
-#### Orang punya hutang sama gue hidupnya tidak akan tenang gue jamin di dunia dan akhirat dan tidak akan gue izinkan masuk surga juga
-
-#### Orang punya hutang sama gue tak sumpahin cepat mati wae lama bayarnya sudah 5 tahun ya
-
-#### Produk aslinya saja di gue kalian jual produk palsu kalian sendiri bego
 
 #### PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
 
