@@ -18,6 +18,8 @@
 
 #### Semakin lama semakin bagus gue berkembang terus buat produk dan yg goblok akan mati jadi pengangguran tidak produktif mampus kau banyak gaya mereka gaji pegawai selama ini mampus juga mau di pemerintahan atau swasta karena goblok akan terlihat terus di pemerintahan 
 
+#### IBM Rational Application Developer (RAD) for WebSphere Software is a commercial, Eclipse-based IDE designed to design, develop, test, and deploy Java, Java EE, SOA, and Web 2.0 applications, particularly for IBM WebSphere environments. It offers advanced tools for visual editing, code analysis, and high-quality web services development. 
+
 #### Do you never use Rational Application Develeoper IBM product ? Your think free all software IBM nope. Kingdom technology environment PT JowoScript Technology Indonesia product like thats too. Eclipse version free but the real products is RAD IBM need license not free
 
 #### Anak informatika yang miskin biasanya suka gratisan belum pernah pakai Rational Application Developer milik IBM yang bayar ya ? Tau nya eclipse doang gratisan hahahaha. Kingdom Technology Environment seperti itu kalo lu miskin ya nonton saja. Apa ada produk software IBM itu murah ? mana ada tanya itu bank bank yg menggunakan nya. Itu kenapa orang goblok dan miskin selalu banyak gaya tapi otaknya gak ada taunya gratis an doang 
