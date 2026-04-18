@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Tidak punya kontribusi ke gue mau enaknya doang hasil bagi bagi lu siapa
+
 #### Anak informatika kere kere taunya apache, Linux dan azura coba pakai yg mahal berbayar mental mereka ini fakta realistis ya
 
 #### Jowo Kingdom Machine, JowoScript dan banyak lagi hanya bisa di gunakan di Kingdom Technology Environment. mampus kau yg merasa lebih pintar dari gue 
