@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### ngapain gue takut sama orang goblok ya dan lihat saja banyak toko tutup gulung tikar karena persaingan makin berat ya jualan online belum yang lainnya mampus yang goblok goblok banyak gaya kena mental 😃
+#### ngapain gue takut sama orang goblok ya dan lihat saja banyak toko tutup gulung tikar karena persaingan makin berat ya jualan online belum yang lainnya mampus yang goblok goblok banyak gaya kena mental 😃. Di dunia usaha saja berat gimana di dunia kerja ya goblok
 
 #### Musuh gue suka ngarang cerita gimana kabarnya ? cari uang susah ya kasihan deh lu goblok sih. Gue tidak punya hutang dan perusahaa sendiri terlihat hidup gue biasa biasa saja tapi uang ada terus dan makan terus. Gue tidak main crypto dan saham siapa lose profit setiap hari bukan gue tapi kalian. Kalo sudah kelaparan akan mati sendiri kalian
 
