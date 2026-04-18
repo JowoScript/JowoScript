@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Jowo Kingdom Machine, JowoScript dan banyak lagi hanya bisa di gunakan di Kingdom Technology Environment. mampus kau yg merasa lebih pintar dari gue 
+
 #### Semakin lama semakin bagus gue berkembang terus buat produk dan yg goblok akan mati jadi pengangguran tidak produktif mampus kau banyak gaya kalian gaji pegawai selama ini mampus juga mau di pemerintahan atau swasta karena goblok akan terlihat terus di pemerintahan atau swasta 
 
 #### IBM Rational Application Developer (RAD) for WebSphere Software is a commercial not free, Eclipse-based IDE designed to design, develop, test, and deploy Java, Java EE, SOA, and Web 2.0 applications, particularly for IBM WebSphere environments. It offers advanced tools for visual editing, code analysis, and high-quality web services development. 
