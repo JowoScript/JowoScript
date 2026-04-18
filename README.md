@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Semakin lama semakin bagus gue berkembang terus buat produk dan yg goblok akan mati
+
 #### Do you never use Rational Application Develeoper IBM product ? Your think free all software IBM nope. Kingdom technology environment PT JowoScript Technology Indonesia product like thats too. Eclipse version free but the real products is RAD IBM need license not free
 
 #### Anak informatika yang miskin biasanya suka gratisan belum pernah pakai Rational Application Developer milik IBM yang bayar ya ? Tau nya eclipse doang gratisan hahahaha. Kingdom Technology Environment seperti itu kalo lu miskin ya nonton saja. Apa ada produk software IBM itu murah ? mana ada tanya itu bank bank yg menggunakan nya. Itu kenapa orang goblok dan miskin selalu banyak gaya tapi otaknya gak ada taunya gratis an doang 
