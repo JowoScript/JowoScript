@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### ngapain gue takut sama orang goblok ya dan lihat saja banyak toko tutup gulung tikar karena persaingan makin berat ya jualan online belum yang lainnya mampus yang goblok goblok banyak gaya kena mental 😃. Di dunia usaha saja berat gimana di dunia kerja ya goblok
+#### Nanti akan terlihat kerja di pemerintahan atau swasta yg goblok goblok selama ini.
 
 #### sesuai kata kata gue orang orang goblok akan terlihat terus di dunia kerja apa lagi hasil titipan pada ngumpet semua di akhir takut terlihat gobloknya harusnya di sorot media kuat tidak mentalnya hahahaha 
 
