@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Anak informatika kere kere taunya apache, Linux dan azura coba pakai yg mahal berbayar mental mereka
+
 #### Jowo Kingdom Machine, JowoScript dan banyak lagi hanya bisa di gunakan di Kingdom Technology Environment. mampus kau yg merasa lebih pintar dari gue 
 
 #### Semakin lama semakin bagus gue berkembang terus buat produk dan yg goblok akan mati jadi pengangguran tidak produktif mampus kau banyak gaya kalian gaji pegawai selama ini mampus juga mau di pemerintahan atau swasta karena goblok akan terlihat terus di pemerintahan atau swasta 
