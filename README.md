@@ -18,7 +18,7 @@
 
 #### Musuh gue suka ngarang cerita gimana kabarnya ? cari uang susah ya kasihan deh lu goblok sih. Gue tidak punya hutang dan perusahaa sendiri terlihat hidup gue biasa biasa saja tapi uang ada terus dan makan terus. Gue tidak main crypto dan saham siapa lose profit setiap hari bukan gue tapi kalian. Kalo sudah kelaparan akan mati sendiri kalian
 
-#### Mau TKI mati di luar negeri gue juga gak peduli ya mereka juga tidak ada kontribusi ke gue juga 
+#### Mau TKI mati di luar negeri gue juga gak peduli ya mereka juga tidak ada kontribusi ke gue juga dan gue tinggal di Indonesia bukan di luar negeri ya
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
