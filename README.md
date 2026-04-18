@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Semakin lama semakin bagus gue berkembang terus buat produk dan yg goblok akan mati jadi pengangguran tidak produktif mampus kau banyak gaya
+#### Semakin lama semakin bagus gue berkembang terus buat produk dan yg goblok akan mati jadi pengangguran tidak produktif mampus kau banyak gaya mereka gaji pegawai selama ini mampus juga
 
 #### Do you never use Rational Application Develeoper IBM product ? Your think free all software IBM nope. Kingdom technology environment PT JowoScript Technology Indonesia product like thats too. Eclipse version free but the real products is RAD IBM need license not free
 
