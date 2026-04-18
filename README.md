@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Tidak punya kontribusi ke gue mau enaknya doang hasil bagi bagi lu siapa selama ini gue kerja sendiri buat produk mampus yg suka santai santai dan main main selama ini 
+#### Tidak punya kontribusi ke gue mau enaknya doang hasil bagi bagi lu siapa selama ini gue kerja sendiri buat produk setiap hari gak ada libur lu mau enaknya doang, mampus yg suka santai santai dan main main selama ini 
 
 #### Anak informatika kere kere taunya apache, Linux dan azura coba pakai yg mahal berbayar mental mereka ini fakta realistis ya
 
