@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Teknologi itu di cari fiture dan update nya bukan untuk gaya gayaan
+#### produk palsu lu jual lu bego diakhir karena Teknologi itu di cari fiture dan update nya bukan untuk gaya gayaan
 
 #### Tidak punya kontribusi ke gue mau enaknya doang hasil bagi bagi lu siapa selama ini gue kerja sendiri di rumah buat produk setiap hari gak ada libur lu mau enaknya doang, mampus yg suka santai santai dan main main selama ini. pengusaha banyak gaya suruh bayar hutang saja mereka selama ini juga tidak beli produk gue. karena goblok akan terlihat terus
 
