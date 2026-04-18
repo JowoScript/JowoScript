@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Kalian developer ANAK INFORMATIKA dan perusahaan miskin tidak punya uang belum pernah gunakan Rational Application Developer milik IBM karena goblok akan terlihat di akhir biasanya gratisan seperti itu kingdom technology environment 
+#### Kalian developer ANAK INFORMATIKA dan perusahaan miskin tidak punya uang belum pernah gunakan Rational Application Developer milik IBM yang bayar karena goblok akan terlihat di akhir biasanya gratisan seperti itu kingdom technology environment
 
 #### orang keroyok gue saja masih terima gaji dan tunjangan dari pemerintah apa tidak malu hidupnya orang seperti itu coba sendiri mana mampu ya buat hahahaha karena yang pintar dan goblok akan terlihat selalu bukan banyaknya jumlah orang tapi kualitas skill seorang di tentukan untuk bekerja
 
