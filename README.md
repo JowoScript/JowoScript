@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### biar jadi pengangguran dan tidak produktif juga mereka biar merasakan seperti gue dulu dan siapa goblok selama ini juga kalian bukan gue dan siapa tidak berguna juga bukan selama ini ya bisa ngaca sendiri kalian kontribusi mu apa selama ini ke gue ya tidak ada ya paham dan yang makan uang anggaran pemerintah atau investor juga bukan selama ini ya
+#### biar jadi pengangguran dan tidak produktif juga mereka biar merasakan seperti gue dulu dan siapa goblok selama ini juga kalian bukan gue dan siapa tidak berguna juga bukan selama ini ya bisa ngaca sendiri kalian kontribusi mu apa selama ini ke gue ya tidak ada ya paham dan yang makan uang anggaran pemerintah atau investor juga bukan gue selama ini ya jadi paham tidak gratisan produk gue sesuai harga lisensi siapa goblok akan terlihat terus di dunia kerja
 
 #### Tidak punya kontribusi ke gue mau enaknya doang hasil bagi bagi lu siapa selama ini gue kerja sendiri di rumah buat produk setiap hari gak ada libur lu mau enaknya doang, mampus yg suka santai santai dan main main selama ini. pengusaha banyak gaya suruh bayar hutang saja mereka selama ini juga tidak beli produk gue. karena goblok akan terlihat terus
 
