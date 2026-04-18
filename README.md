@@ -20,7 +20,7 @@
 
 #### sesuai kata kata gue orang orang goblok akan terlihat terus di dunia kerja apa lagi hasil titipan pada ngumpet semua di akhir takut terlihat gobloknya harusnya di sorot media kuat tidak mentalnya hahahaha 
 
-#### gue disorot media santai siapa malu bukan gue di akhir. media takut sorot gue karena terlihat siapa goblok
+#### gue disorot media santai siapa malu bukan gue di akhir. media takut sorot gue karena terlihat siapa goblok. gue publikasi diri sendiri di Wikipedia saja ada yang tidak suka itu contoh kecilnya terlihat gue lebih cerdas ya
 
 #### Musuh gue suka ngarang cerita gimana kabarnya ? cari uang susah ya kasihan deh lu goblok sih. Gue tidak punya hutang dan perusahaa sendiri terlihat hidup gue biasa biasa saja tapi uang ada terus dan makan terus. Gue tidak main crypto dan saham siapa lose profit setiap hari bukan gue tapi kalian. Kalo sudah kelaparan akan mati sendiri kalian
 
