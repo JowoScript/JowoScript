@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Anak informatika yang miskin biasanya suka gratisan belum pernah pakai Rational Application Developer milik IBM yang bayar ya ? Tau nya eclipse doang gratisan hahahaha. Kingdom Technology Environment seperti itu kalo lu miskin ya nonton saja. Apa ada produk software IBM itu murah ? mana ada tanya itu bank bank yg menggunakan nya. Itu kenapa orang goblok dan miskin selalu banyak gaya tapi otaknya gak ada
+#### Anak informatika yang miskin biasanya suka gratisan belum pernah pakai Rational Application Developer milik IBM yang bayar ya ? Tau nya eclipse doang gratisan hahahaha. Kingdom Technology Environment seperti itu kalo lu miskin ya nonton saja. Apa ada produk software IBM itu murah ? mana ada tanya itu bank bank yg menggunakan nya. Itu kenapa orang goblok dan miskin selalu banyak gaya tapi otaknya gak ada taunya gratis an doang 
 
 #### Kalian developer ANAK INFORMATIKA dan perusahaan miskin tidak punya uang belum pernah gunakan Rational Application Developer milik IBM yang bayar karena goblok akan terlihat di akhir biasanya gratisan seperti itu kingdom technology environment
 
