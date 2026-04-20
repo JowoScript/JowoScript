@@ -40,6 +40,7 @@
 <div>
 Ownership company, Software Architecture, Software Engineer and Software Developer at PT JowoScript Technology Indonesia. Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems 
 </div>
+
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
