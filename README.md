@@ -38,7 +38,7 @@
 
 #### Who Muhammad Nurcahyo Pratomo
 <div>
-Ownership company, Software Architecture, Software Engineer and Software Developer at PT JowoScript Technology Indonesia for mothership product commercial. Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems. Biar mampus goblok goblok cari kerja makin susah dan pengusaha goblok goblok makin susah bersaing 
+Ownership company, directorship company, Software Architecture, Software Engineer and Software Developer at PT JowoScript Technology Indonesia for mothership product commercial. Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems. Biar mampus goblok goblok cari kerja makin susah dan pengusaha goblok goblok makin susah bersaing 
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
