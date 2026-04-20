@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Gue santai buat produk dan hanya gue bisa kembangkan produk nya. Tidak menggunakan uang pemerintah atau investor juga selama ini. Tidak ada gratisan produk gue buat. Perusahaan IT di Indonesia dan Malaysia di danai duluan mau tau hasilnya apa selama ini 
+
 #### Nanti akan terlihat kerja di pemerintahan atau swasta yg goblok goblok selama ini.
 
 #### sesuai kata kata gue orang orang goblok akan terlihat terus di dunia kerja apa lagi hasil titipan pada ngumpet semua di akhir takut terlihat gobloknya harusnya di sorot media kuat tidak mentalnya hahahaha 
