@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Gue santai buat produk dan hanya gue bisa kembangkan produk nya. Tidak menggunakan uang pemerintah atau investor juga selama ini. Tidak ada gratisan produk gue buat. Perusahaan IT di Indonesia dan Malaysia di danai duluan mau tau hasilnya apa selama ini 
+#### Gue santai yg buat produk dan hanya gue bisa kembangkan produk nya. Tidak menggunakan uang pemerintah atau investor juga selama ini. Tidak ada gratisan produk gue buat. Perusahaan IT di Indonesia dan Malaysia di danai duluan mau tau hasilnya apa selama ini 
 
 #### Nanti akan terlihat kerja di pemerintahan atau swasta yg goblok goblok selama ini.
 
