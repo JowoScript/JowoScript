@@ -22,6 +22,8 @@
 
 #### Mampus goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin. Makin lama makin asik siapa goblok terus. Mampus kepala umur sudah 25 ke atas jadi pengangguran dan tidak produktif
 
+#### Orang psikopat gue emang takut sama yg badanya besar ? lihat orang psikopat badanya biasa biasa saja
+
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
 #### PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
