@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Mahkamah sifatnya menilai dan meninjau peradilan hukum yang ada ini berlaku di negara manapun semua sama.
+#### Mahkamah sifatnya menilai dan meninjau peradilan hukum yang ada ini berlaku di negara manapun semua sama dan semua itu ada audit keuangan jadi siapa main curang habis
 
 #### Banyak anak zaman now ribut warisan orang tua sampai bunuh bunuhan itu ada dan sejenisnya. Gue beda selalu perintis paling kece sedunia hahaha
 
