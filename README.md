@@ -18,7 +18,7 @@
 
 #### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
-#### Beli produk lisensi gue bisa jadi program pemerintahan kedepanya kalo lu pintar hidup itu pilihan mau goblok atau pintar. Biar perusahaan di danai duluan siksa dulu stop pendanaan nya suruh balikin dulu modal pemerintahan selama ini di keluarkan untuk proyek tidak berguna. stop hire pegawai baru buang buang uang saja. suruh mereka jadi pengusaha bukan kebanyakan nuntut.
+#### Beli produk lisensi gue bisa jadi program pemerintahan kedepanya kalo lu pintar hidup itu pilihan mau goblok atau pintar. Biar perusahaan di danai duluan siksa dulu stop pendanaan nya suruh balikin dulu modal pemerintahan selama ini di keluarkan untuk proyek tidak berguna. stop hire pegawai baru di istansi pemerintah buang buang uang saja. suruh mereka jadi pengusaha bukan kebanyakan nuntut.
 
 #### syarat pembelian produk gue tetap jadi paham ya. psikopat asli tidak butuh di tunjukkan kepada berotot dan badanya besar atau kuat untuk musuh musuh gue
 
