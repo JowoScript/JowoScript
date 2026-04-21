@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
+#### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena kasus di akhir. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
 #### Biar goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin 
 
