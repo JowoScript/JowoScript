@@ -16,37 +16,13 @@
 </div>
 </div>
 
-#### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Polisi juga tidak beli selama ini jadi juga tidak punya hak ya jadi diamkan saja vendor pada ribut masalah uang hahahahaha.
+#### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
 #### syarat pembelian produk gue tetap jadi paham ya. psikopat asli tidak butuh di tunjukkan kepada berotot dan badanya besar atau kuat untuk musuh musuh gue
 
-#### Mana bisa dapat update terbaru dari gue selama gue tidak terima uangnya jadi jangan sok pintar dari gue ya karena goblok akan terlihat terus selama ini paham nanti 2029 juga pada mikir 
-
-#### Anak Informasi Teknologi mau minta uang duluan mau coba buat produk gue kalo tidak berhasil siap siap kena pidana karena tidak beli juga kalo hanya copy and paste doang bukan beli namanya mencuri dan mana bisa dapat update terbarunya dari gue. Siapa goblok tapi sok pintar dari gue dan sesuai judul ya orang goblok akan terlihat terus selama ini
-
-#### Banyak anak zaman now ribut warisan orang tua sampai bunuh bunuhan itu ada dan sejenisnya. Gue beda selalu perintis paling kece sedunia hahaha
-
-#### mampus wikipedia di blokir domainnya dan sub domain nya sama Indonesia gue setuju banget
-
-#### Gue santai yg buat produk dan hanya gue bisa kembangkan produk nya. Perusahaan gue Tidak menggunakan uang pemerintah atau investor juga selama ini. Tidak ada gratisan produk gue buat. Perusahaan IT di Indonesia dan Malaysia di danai duluan mau tau hasilnya apa selama ini kalo tidak ada hasilnya kalian yg mati bukan gue. siapa akan di tutup pendanaannya dan suruh balikin modalnya juga kalian di akhir. tidak bisa balikin modal ya paling di nyawa kalian taruhannya tanya saja yg modali selama ini
-
-#### Nanti akan terlihat kerja di pemerintahan atau swasta yg goblok goblok selama ini.
-
-#### sesuai kata kata gue orang orang goblok akan terlihat terus di dunia kerja apa lagi hasil titipan pada ngumpet semua di akhir takut terlihat gobloknya harusnya di sorot media kuat tidak mentalnya hahahaha 
-
-#### gue disorot media santai siapa malu bukan gue di akhir. media takut sorot gue karena terlihat siapa goblok. gue publikasi diri sendiri di Wikipedia saja ada yang tidak suka itu contoh kecilnya terlihat gue lebih cerdas ya
-
-#### Musuh gue suka ngarang cerita gimana kabarnya ? cari uang susah ya kasihan deh lu goblok sih. Gue tidak punya hutang dan perusahaa sendiri terlihat hidup gue biasa biasa saja tapi uang ada terus dan makan terus. Gue tidak main crypto dan saham siapa lose profit setiap hari bukan gue tapi kalian. Kalo sudah kelaparan akan mati sendiri kalian
-
-#### Mau TKI mati di luar negeri gue juga gak peduli ya mereka juga tidak ada kontribusi ke gue juga dan gue tinggal di Indonesia bukan di luar negeri ya
-
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
-##### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
-
 #### PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
-
-#### Which company went bankrupt and having debts. sure not my company PT JowoScript Technology Indonesia. How much many product failed production and having debts before and lose much money 🤣
 
 #### Who Muhammad Nurcahyo Pratomo
 <div>
