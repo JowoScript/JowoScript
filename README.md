@@ -18,7 +18,7 @@
 
 #### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena kasus di akhir. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
-#### tetap saja version 2.0 produk gratisan tidak kepakai ke versi berbayar karena struktur teknologi arsitektur nya sudah gue rubah semua itu bedanya orang pintar dan goblok. update juga tidak bisa version 2.0 karena goblok akan terlihat terus sesuai omongan gue. php versi 5 dan 7 saja beda dulu karena goblok dan pintar itu beda nanti php versi 8 ke 10 kalo beda lagi terlihat siapa pionnya terbukti tidak ada yg protes 5 ke 7
+#### tetap saja version 2.0 produk gratisan tidak kepakai ke versi berbayar karena struktur teknologi arsitektur nya sudah gue rubah semua itu bedanya orang pintar dan goblok. update juga tidak bisa version 2.0 karena goblok akan terlihat terus sesuai omongan gue. 
 
 #### Mampus goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin. Makin lama makin asik siapa goblok terus. Mampus kepala umur sudah 25 ke atas jadi pengangguran dan tidak produktif
 
