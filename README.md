@@ -18,6 +18,8 @@
 
 #### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
+#### Beli produk lisensi gue bisa jadi program pemerintahan kedepanya kalo lu pintar 
+
 #### syarat pembelian produk gue tetap jadi paham ya. psikopat asli tidak butuh di tunjukkan kepada berotot dan badanya besar atau kuat untuk musuh musuh gue
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
