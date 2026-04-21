@@ -18,7 +18,7 @@
 
 #### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena kasus di akhir. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
-#### Mampus goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin. Makin lama makin asik siapa goblok terus. Mampus kepala umur sudah 25 ke atas jadi pengangguran dan tidak produktif 
+#### Mampus goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin. Makin lama makin asik siapa goblok terus. Mampus kepala umur sudah 25 ke atas jadi pengangguran dan tidak produktif karena WNI bermasalah sama gue tinggal di luar negeri belum tentu hidup di akhir
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
