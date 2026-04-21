@@ -18,7 +18,7 @@
 
 #### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena kasus di akhir. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
-#### tetap saja version 2.0 produk gratisan tidak kepakai ke versi berbayar karena struktur teknologi arsitektur nya sudah gue rubah semua
+#### tetap saja version 2.0 produk gratisan tidak kepakai ke versi berbayar karena struktur teknologi arsitektur nya sudah gue rubah semua itu bedanya orang pintar dan goblok
 
 #### Mampus goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin. Makin lama makin asik siapa goblok terus. Mampus kepala umur sudah 25 ke atas jadi pengangguran dan tidak produktif
 
