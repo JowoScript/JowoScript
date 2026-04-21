@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Polisi juga tidak beli selama ini jadi juga tidak punya hak ya
+#### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Polisi juga tidak beli selama ini jadi juga tidak punya hak ya. kesenangan nanti pakai senjata gue selebew hahahaha 
 
 #### syarat pembelian produk gue tetap jadi paham ya. psikopat asli tidak butuh di tunjukkan kepada berotot dan badanya besar atau kuat untuk musuh musuh gue
 
