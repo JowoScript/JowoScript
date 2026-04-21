@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Polisi juga tidak beli selama ini jadi juga tidak punya hak ya
+
 #### syarat pembelian produk gue tetap jadi paham ya. psikopat asli tidak butuh di tunjukkan kepada berotot dan badanya besar atau kuat untuk musuh musuh gue
 
 #### Mana bisa dapat update terbaru dari gue selama gue tidak terima uangnya jadi jangan sok pintar dari gue ya karena goblok akan terlihat terus selama ini paham nanti 2029 juga pada mikir 
