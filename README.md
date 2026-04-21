@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Nanti 2029 juga pada mikir goblok goblok siapa yg mati juga bukan gue karena siapa di butuhkan selama ini. Karena makan duluan akan mati duluan mampus bego sih lu
+#### Nanti 2029 juga pada mikir goblok goblok siapa yg mati juga bukan gue karena siapa di butuhkan selama ini. Karena makan duluan akan mati duluan mampus bego sih lu dan pemenang tender di pemerintahan juga sama selama ini di akhir tumbal proyek hahaha 
 
 #### Mana bisa dapat update terbaru dari gue selama gue tidak terima uangnya jadi jangan sok pintar dari gue ya karena goblok akan terlihat terus selama ini paham nanti 2029 juga pada mikir 
 
