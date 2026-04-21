@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Mahkamah sifatnya menilai dan meninjau peradilan hukum yang ada ini berlaku di negara manapun semua sama dan semua itu ada audit keuangan jadi siapa main curang habis khusus nya perusahaan yang gagal bayar kepada pemodal dan setiap instansi pemerintah juga sama semua ada audit keuangan nya jadi kalo ada mau curang pasti habis dan setiap instansi pemerintah atau lembaga juga sama semua ada audit keuangan nya jadi kalo ada oknum mau curang pasti habis
+#### Mana bisa dapat update terbaru dari gue selama gue tidak terima uangnya jadi jangan sok pintar dari gue ya karena goblok akan terlihat terus selama ini paham nanti 2029 juga pada mikir 
 
 #### Anak Informasi Teknologi mau minta uang duluan mau coba buat produk gue kalo tidak berhasil siap siap kena pidana karena tidak beli juga kalo hanya copy and paste doang bukan beli namanya mencuri dan mana bisa dapat update terbarunya dari gue. Siapa goblok tapi sok pintar dari gue dan sesuai judul ya orang goblok akan terlihat terus selama ini
 
