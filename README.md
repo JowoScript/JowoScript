@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Mahkamah sifatnya menilai dan meninjau peradilan hukum yang ada ini berlaku di negara manapun semua sama.
+
 #### Banyak anak zaman now ribut warisan orang tua sampai bunuh bunuhan itu ada dan sejenisnya. Gue beda selalu perintis paling kece sedunia hahaha
 
 #### mampus wikipedia di blokir domainnya dan sub domain nya sama Indonesia gue setuju banget
