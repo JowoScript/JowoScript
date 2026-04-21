@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Nanti 2029 juga pada mikir goblok goblok siapa yg mati juga bukan gue karena siapa di butuhkan selama ini. Karena laper duluan mati duluan
+
 #### Mana bisa dapat update terbaru dari gue selama gue tidak terima uangnya jadi jangan sok pintar dari gue ya karena goblok akan terlihat terus selama ini paham nanti 2029 juga pada mikir 
 
 #### Anak Informasi Teknologi mau minta uang duluan mau coba buat produk gue kalo tidak berhasil siap siap kena pidana karena tidak beli juga kalo hanya copy and paste doang bukan beli namanya mencuri dan mana bisa dapat update terbarunya dari gue. Siapa goblok tapi sok pintar dari gue dan sesuai judul ya orang goblok akan terlihat terus selama ini
