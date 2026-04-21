@@ -18,7 +18,7 @@
 
 #### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
-#### biar goblok goblok jadi pengangguran dan tidak produktif. gantian gue juga di gituin 
+#### Biar goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin 
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
