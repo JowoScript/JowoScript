@@ -105,7 +105,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 
 #### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
 
-#### Only work in my new programing language
+#### Only work in my new programing language (JowoScript and JS3)
 
 <img src="this new transform technology product PT JowoScript Technology Indonnesia with license.png" 
      title="PT JowoScript Technology Indonesia"
