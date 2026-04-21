@@ -18,7 +18,7 @@
 
 #### Pakai senjata gue buat tapi tidak beli dan gue tidak Nerima uangnya secara legal kalian sendiri yang kena kasus di akhir. Siapa goblok jelas bukan gue. Pemerintah juga belum beli ya selama ini.
 
-#### tetap saja version 2.0 produk gratisan tidak kepakai ke versi berbayar karena struktur teknologi arsitektur nya sudah gue rubah semua itu bedanya orang pintar dan goblok. update juga tidak bisa version 2.0 karena goblok akan terlihat terus sesuai omongan gue hahaha dari russia saja tau gue yg buat. siapa jadi mainan gue orang Indonesia dan Malaysia sok pintar dari gue itu jelas karena malu takut terlihat gobloknya 
+#### tetap saja version 2.0 produk gratisan tidak kepakai ke versi berbayar karena struktur teknologi arsitektur nya sudah gue rubah semua itu bedanya orang pintar dan goblok. update juga tidak bisa version 2.0 karena goblok akan terlihat terus sesuai omongan gue hahaha dari russia saja tau gue yg buat. siapa jadi mainan gue orang Indonesia dan Malaysia sok pintar dari gue itu jelas karena malu takut terlihat gobloknya di akhir ngarang cerita ya musuh musuh gue di Indonesia dan Malaysia 
 
 #### Mampus goblok goblok jadi pengangguran dan tidak produktif. gantian gue dulu juga di gituin. Makin lama makin asik siapa goblok terus. Mampus kepala umur sudah 25 ke atas jadi pengangguran dan tidak produktif
 
