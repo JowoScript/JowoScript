@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Semakin lama semakin bagu akan terlihat terus siapa goblok di dunia keeja
+#### Semakin lama semakin bagus akan terlihat terus siapa goblok di dunia keeja
 
 #### Orang psikopat seperti gue emang takut sama yg badanya besar dan berotot ? tidak ya. mampus yang pengangguran dan lebih goblok dari gue 
 
