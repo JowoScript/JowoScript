@@ -16,7 +16,9 @@
 </div>
 </div>
 
-#### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue. 
+#### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue.
+
+#### Gue bisa saja kasih gratisan atau harga murah produk gue karena bagi gue tidak adil dalam hidup gue dulu ya gantian siapa tidak berguna.
 
 #### Semakin lama semakin bagus akan terlihat terus siapa goblok di dunia kerja. 
 
