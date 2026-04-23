@@ -18,7 +18,7 @@
 
 #### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue.
 
-#### Orang sok pintar dari gue tapi tidak paham hukum di akhir jadi mainan gue (Muhammad Nurcahyo Pratomo) dan Mahkamah di seluruh dunia akan menjadi oposisi PT JowoScript Technology Indonesia di akhir karena bersifat menilai dan meninjau kalo ada masalah di lapangan pasti hakim aktif nanya ke gue (Muhammad Nurcahyo Pratomo) dan pemegang lisensi produk di akhir apa mereka beli atau tidak. Siapa mau manipulasi lisensi produk gue buat sampai sekarang rugi sendiri 
+#### Orang sok pintar dari gue tapi tidak paham hukum di akhir jadi mainan gue (Muhammad Nurcahyo Pratomo) dan Mahkamah di seluruh dunia akan menjadi oposisi PT JowoScript Technology Indonesia di akhir karena bersifat menilai dan meninjau kalo ada masalah di lapangan pasti hakim aktif nanya ke gue (Muhammad Nurcahyo Pratomo) dan pemegang lisensi produk di akhir apa mereka beli atau tidak. Siapa mau manipulasi lisensi produk gue buat sampai sekarang rugi sendiri karena goblok akan terlihat terus ya
 
 #### Gue bisa saja kasih gratisan atau harga murah produk gue karena bagi gue tidak adil dalam hidup gue dulu ya gantian siapa tidak berguna. Tidak ada gratis produk gue buat. Siapa mau adu bacot atau argumentasi ?
 
