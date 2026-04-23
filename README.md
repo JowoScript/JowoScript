@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Original product has label powered by PT JowoScript Technology Indonesia.
+
 #### Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi
 
 #### Makan uang proyek duluan belum tentu menang bagi gue. pengetahuan anak bayi di dengarkan kalian ya baik baik.
