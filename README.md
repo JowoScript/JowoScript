@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Dari awal sendiri berani karena pengalaman dan paham hukum jadi goblok dan pecundang siapa selama ini. Ramai ramai kalo goblok percuma ya
+#### Dari awal sendiri berani karena pengalaman dan paham hukum jadi goblok dan pecundang siapa selama ini. Ramai ramai kalo goblok percuma ya malah terlihat kelompok pecundang di akhir
 
 #### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
 
