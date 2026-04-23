@@ -20,6 +20,8 @@
 
 #### Gue bisa saja kasih gratisan atau harga murah produk gue karena bagi gue tidak adil dalam hidup gue dulu ya gantian siapa tidak berguna. Tidak ada gratis produk gue buat. Siapa mau adu bacot atau argumentasi ?
 
+#### Gue berhak periksa data pegawai sdm dan pecat pegawai yg bermasalah sama gue di pemerintahan kalo pemerintah yang beli.
+
 #### Semakin lama semakin bagus akan terlihat terus siapa goblok di dunia kerja. 
 
 #### Orang psikopat seperti gue emang takut sama yg badanya besar dan berotot ? tidak ya. mampus yang pengangguran dan lebih goblok dari gue 
