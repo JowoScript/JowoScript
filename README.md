@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Original product has label powered by PT JowoScript Technology Indonesia. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Paham sampai sini
+#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
 
 #### Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi
 
@@ -81,7 +81,9 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Original product has label powered by PT JowoScript Technology Indonesia.
+
+#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
+
 #### Purchases of licensed products must be paid in full without debt or credit
 <img src="Kingdom Technology 0.1.50.png" 
      title="PT JowoScript Technology Indonesia"
@@ -90,7 +92,8 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 	 <img src="FB_IMG_1775684487367.jpg" height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Original product has label powered by PT JowoScript Technology Indonesia.
+
+#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
@@ -99,7 +102,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
-#### Original product has label powered by PT JowoScript Technology Indonesia.
+#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
 
 #### Only work in my new programing language (JowoScript and JS3)
 
@@ -109,14 +112,18 @@ Ownership company, directorship company, Software Architecture, Software Enginee
      height="100%" width="100%"></img>
 	 
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
-#### Original product has label powered by PT JowoScript Technology Indonesia.
+
+#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
+
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
      width="100%" height="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Original product has label powered by PT JowoScript Technology Indonesia.
+
+#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
+
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
