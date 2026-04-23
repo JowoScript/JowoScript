@@ -20,7 +20,7 @@
 
 #### Gue bisa saja kasih gratisan atau harga murah produk gue karena bagi gue tidak adil dalam hidup gue dulu ya gantian siapa tidak berguna. Tidak ada gratis produk gue buat. Siapa mau adu bacot atau argumentasi ?
 
-#### Gue dan team gue kedepannya berhak periksa data pegawai sdm dan pecat pegawai yg bermasalah sama gue di pemerintahan kalo pemerintah yang beli. Produk gue buat mengarahkan otoriter yang lebih baik dari zaman pak Soeharto bedanya gue bukan publik figur hahahaha. Selama belum beli dan tidak nerima uangnya Muhammad Nurcahyo Pratomo ya nonton saja biar goblok goblok jadi pengangguran juga. Uang di salah gunakan untuk pembangunan semua akan di nilai juga di akhir. Paham sampai sini
+#### Gue dan team gue kedepannya berhak periksa data pegawai sdm dan pecat pegawai yg bermasalah sama gue di pemerintahan kalo pemerintah yang beli. Produk gue buat mengarahkan otoriter yang lebih baik dari zaman pak Soeharto bedanya gue bukan publik figur hahahaha. Selama belum beli dan tidak nerima uangnya Muhammad Nurcahyo Pratomo ya nonton saja biar goblok goblok jadi pengangguran juga. Uang di salah gunakan untuk pembangunan semua akan di nilai juga di akhir. Siapa rakus dan tamak duluan akan terlihat. Paham sampai sini
 
 #### Semakin lama semakin bagus akan terlihat terus siapa goblok di dunia kerja. 
 
