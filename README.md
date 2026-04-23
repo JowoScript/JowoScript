@@ -81,7 +81,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### There is no guarantee from Muhammad Nurcahyo Pratomo if purchased through a third party or intermediary
+#### Original product has label powered by PT JowoScript Technology Indonesia.
 #### Purchases of licensed products must be paid in full without debt or credit
 <img src="Kingdom Technology 0.1.50.png" 
      title="PT JowoScript Technology Indonesia"
@@ -90,7 +90,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 	 <img src="FB_IMG_1775684487367.jpg" height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
+#### Original product has label powered by PT JowoScript Technology Indonesia.
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
@@ -99,7 +99,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
-#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
+#### Original product has label powered by PT JowoScript Technology Indonesia.
 
 #### Only work in my new programing language (JowoScript and JS3)
 
