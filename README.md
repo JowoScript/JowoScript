@@ -109,14 +109,14 @@ Ownership company, directorship company, Software Architecture, Software Enginee
      height="100%" width="100%"></img>
 	 
 #### Legality Statement Letter of PT JowoScript Technology Indonesia
-#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
+#### Original product has label powered by PT JowoScript Technology Indonesia.
 <img src="Surat Pernyataan PT JowoScript Technology Indonesia.png" 
      title="Legality Statement Letter of PT JowoScript Technology Indonesia"
      alt="Legality Statement Letter of PT JowoScript Technology Indonesia"     
      width="100%" height="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
-#### Don't invest anything to company or government until buy my product first because I haven't received any money at all from 2021 until now and kingdom technology environment not free too everything under my development until now. only PT JowoScript Technology Indonesian having real product
+#### Original product has label powered by PT JowoScript Technology Indonesia.
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
