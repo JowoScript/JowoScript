@@ -20,7 +20,7 @@
 
 #### Makan uang proyek duluan belum tentu menang bagi gue. pengetahuan anak bayi di dengarkan kalian ya baik baik.
 
-#### Buat belum tentu berhasil karena goblok dan dungu sok pintar dari gue terlihat terus sudah jelas kalo tidak mampu beli ya jangan sok kaya kalo miskin 
+#### Buat belum tentu berhasil karena goblok dan dungu sok pintar dari gue terlihat terus sudah jelas kalo tidak mampu beli ya jangan sok kaya kalo miskin fakta siapa tidak punya uang selama ini untuk beli 
 
 #### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue.
 
