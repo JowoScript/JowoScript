@@ -20,7 +20,7 @@
 
 #### Gue bisa saja kasih gratisan atau harga murah produk gue karena bagi gue tidak adil dalam hidup gue dulu ya gantian siapa tidak berguna. Tidak ada gratis produk gue buat. Siapa mau adu bacot atau argumentasi ?
 
-#### Gue berhak periksa data pegawai sdm dan pecat pegawai yg bermasalah sama gue di pemerintahan kalo pemerintah yang beli.
+#### Gue berhak periksa data pegawai sdm dan pecat pegawai yg bermasalah sama gue di pemerintahan kalo pemerintah yang beli. Produk gue buat mengarayke otoriter yang lebih baik
 
 #### Semakin lama semakin bagus akan terlihat terus siapa goblok di dunia kerja. 
 
