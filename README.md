@@ -22,13 +22,7 @@
 
 #### Orang sok pintar dari gue tapi tidak paham hukum di akhir jadi mainan gue (Muhammad Nurcahyo Pratomo) dan Mahkamah di seluruh dunia akan menjadi oposisi PT JowoScript Technology Indonesia di akhir karena bersifat menilai dan meninjau kalo ada masalah di lapangan pasti hakim aktif nanya ke gue (Muhammad Nurcahyo Pratomo) dan pemegang lisensi produk di akhir apa mereka beli atau tidak. Siapa mau manipulasi lisensi produk gue buat sampai sekarang rugi sendiri karena goblok akan terlihat terus ya. Tidak paham hukum tapi sok pintar itu banyak ya dan hanya orang goblok mau bermasalah dengan hukum. Mau main curang orang goblok tetap saja tidak bisa dapat update terbaru dari gue ya karena goblok akan terlihat terus ya. Musuh musuh gue bermuka dua mudah di tandai di akhir ya. Lambene melence terus omongan musuh musuh gue selama ini
 
-#### Gue bisa saja kasih gratisan atau harga murah produk gue karena bagi gue tidak adil dalam hidup gue dulu ya gantian siapa tidak berguna. Tidak ada gratis produk gue buat. Siapa mau adu bacot atau argumentasi ?
-
-#### Gue dan team gue kedepannya berhak periksa data pegawai sdm dan pecat pegawai yg bermasalah sama gue di pemerintahan kalo pemerintah yang beli. Produk gue buat mengarahkan otoriter yang lebih baik dari zaman pak Soeharto bedanya gue bukan publik figur hahahaha. Selama belum beli dan tidak nerima uangnya Muhammad Nurcahyo Pratomo ya nonton saja biar goblok goblok jadi pengangguran juga. Uang di salah gunakan untuk pembangunan semua akan di nilai juga di akhir. Siapa rakus dan tamak duluan akan terlihat. Paham sampai sini
-
 #### Semakin lama semakin bagus akan terlihat terus siapa goblok di dunia kerja. 
-
-#### Orang psikopat seperti gue emang takut sama yg badanya besar dan berotot ? tidak ya. mampus yang pengangguran dan lebih goblok dari gue 
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
