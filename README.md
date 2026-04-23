@@ -18,7 +18,7 @@
 
 #### Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi
 
-#### Makan uang proyek duluan belum tentu menang bagi gue. Pengalaman anak bayi di dengarkan
+#### Makan uang proyek duluan belum tentu menang bagi gue. pengetahuan anak bayi di dengarkan kalian ya baik baik
 
 #### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue.
 
