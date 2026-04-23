@@ -20,7 +20,7 @@
 
 #### Makan uang proyek duluan belum tentu menang bagi gue. pengetahuan anak bayi di dengarkan kalian ya baik baik.
 
-#### Buat belum tentu berhasil karena goblok dan dungu sok pintar dari gue terlihat terus sudah jelas kalo tidak mampu beli ya jangan sok kaya kalo miskin fakta siapa tidak punya uang selama ini untuk beli. Selama gue tidak Nerima uang nya santai. Mau coba nipu gue di akhir kalian yg rugi karena produk asli ada nama perusahaan gue PT JowoScript Technology Indonesia 
+#### Buat belum tentu berhasil karena goblok dan dungu sok pintar dari gue terlihat terus sudah jelas kalo tidak mampu beli ya jangan sok kaya kalo miskin fakta siapa tidak punya uang selama ini untuk beli. Selama gue tidak Nerima uang nya santai. Mau coba nipu gue di akhir kalian yg rugi karena produk asli ada nama perusahaan gue powered PT JowoScript Technology Indonesia paham sampai sini siapa goblok dan dungu
 
 #### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue.
 
