@@ -18,6 +18,8 @@
 
 #### Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi
 
+#### Makan uang proyek duluan belum tentu menang bagi gue
+
 #### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue.
 
 #### Orang sok pintar dari gue tapi tidak paham hukum di akhir jadi mainan gue (Muhammad Nurcahyo Pratomo) dan Mahkamah di seluruh dunia akan menjadi oposisi PT JowoScript Technology Indonesia di akhir karena bersifat menilai dan meninjau kalo ada masalah di lapangan pasti hakim aktif nanya ke gue (Muhammad Nurcahyo Pratomo) dan pemegang lisensi produk di akhir apa mereka beli atau tidak. Siapa mau manipulasi lisensi produk gue buat sampai sekarang rugi sendiri karena goblok akan terlihat terus ya. Tidak paham hukum tapi sok pintar itu banyak ya dan hanya orang goblok mau bermasalah dengan hukum. Mau main curang orang goblok tetap saja tidak bisa dapat update terbaru dari gue ya karena goblok akan terlihat terus ya. Musuh musuh gue bermuka dua mudah di tandai di akhir ya. Lambene melence terus omongan musuh musuh gue selama ini
