@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Sesuia judul orsng sok pinter dari gue di akhir jadi bahan hinaan
+#### Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang 
 
 #### Gue dulu saja di buat nganggur masih bisa makan gimana kalo begini santai gue.
 
