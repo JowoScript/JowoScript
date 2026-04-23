@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Original product has label powered by PT JowoScript Technology Indonesia.
+#### Original product has label powered by PT JowoScript Technology Indonesia. Hobinya ngumpulin uang tapi tidak beli mampus di akhir 
 
 #### Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi
 
