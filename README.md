@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Mau sodara saja wajib beli gimana bukan sodara apa lagi ngaku ngaku sodara karena di waktu gue susah juga tidak ada yg nolong dulu
+
 #### Mau dollar naik atau tidak bukan urusan gue emang negara ngurusin gue selama ini juga tidak. Siapa habiskan anggaran pemerintah juga bukan gue selama ini.
 
 #### Dari awal sendiri berani karena pengalaman dan paham hukum jadi goblok dan pecundang siapa selama ini. Ramai ramai kalo goblok percuma ya malah terlihat kelompok pecundang di akhir buang waktu dan tenaga masuk kelompok pecundang. Kelompok pecundang akan terlihat terus sama seperti orang goblok akan terlihat terus
