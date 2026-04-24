@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Penanaman Modal Asing di akhir lebih percaya gue dari pada orang suka nipu ya selama belum beli akan terlihat suka nipu. pengetahuan anak bayi gue baik baik ya. karena makan duluan bukan hak nya mereka akan mati duluan
+#### Penanaman Modal Asing di akhir lebih percaya gue dari pada orang suka nipu ya selama belum beli akan terlihat suka nipu. pengetahuan anak bayi gue baik baik ya. karena makan duluan bukan hak nya mereka akan mati duluan dan gue tidak suka makanan bekas ya 
 
 #### Mau sodara saja wajib beli gimana bukan sodara apa lagi ngaku ngaku sodara karena di waktu gue susah juga tidak ada yg nolong dulu mampus yg bermuka dua sama gue jadi pengangguran abadi dan tidak berguna selamanya terbukti ya yg goblok tidak bisa kerja makin susah jadi pengusaha 
 
