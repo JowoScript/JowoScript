@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Penanaman Modal Asing di akhir lebih percaya gue dsri pada orang suka nipu ya
+
 #### Mau sodara saja wajib beli gimana bukan sodara apa lagi ngaku ngaku sodara karena di waktu gue susah juga tidak ada yg nolong dulu mampus yg bermuka dua sama gue jadi pengangguran abadi dan tidak berguna selamanya terbukti ya yg goblok tidak bisa kerja makin susah jadi pengusaha 
 
 #### Mau dollar naik atau tidak bukan urusan gue emang negara ngurusin gue selama ini juga tidak. Siapa habiskan anggaran pemerintah juga bukan gue selama ini.
