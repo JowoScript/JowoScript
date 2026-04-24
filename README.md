@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Penanaman Modal Asing di akhir lebih percaya gue dari pada orang suka nipu ya selama belum beli akan terlihat suka nipu. pengetahuan anak bayi gue baik baik ya. dana asing cabut puluhan triliun dari Indonesia terus. selama gue tidak terima uangnya kalian perusahaan di Indonesia juga akan mati di akhir yg di danai asing 
+#### Penanaman Modal Asing di akhir lebih percaya gue dari pada orang suka nipu ya selama belum beli akan terlihat suka nipu. pengetahuan anak bayi gue baik baik ya. dana asing cabut puluhan triliun dari Indonesia terus. selama gue tidak terima uangnya kalian perusahaan di Indonesia juga akan mati di akhir yg di modali asing
 
 #### Mau sodara saja wajib beli gimana bukan sodara apa lagi ngaku ngaku sodara karena di waktu gue susah juga tidak ada yg nolong dulu mampus yg bermuka dua sama gue jadi pengangguran abadi dan tidak berguna selamanya terbukti ya yg goblok tidak bisa kerja makin susah jadi pengusaha 
 
