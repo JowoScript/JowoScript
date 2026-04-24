@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Mau sodara saja wajib beli gimana bukan sodara apa lagi ngaku ngaku sodara karena di waktu gue susah juga tidak ada yg nolong dulu mampus yg bermuka dua sama gue
+#### Mau sodara saja wajib beli gimana bukan sodara apa lagi ngaku ngaku sodara karena di waktu gue susah juga tidak ada yg nolong dulu mampus yg bermuka dua sama gue jadi pengangguran abadi dan tidak berguna selamanya
 
 #### Mau dollar naik atau tidak bukan urusan gue emang negara ngurusin gue selama ini juga tidak. Siapa habiskan anggaran pemerintah juga bukan gue selama ini.
 
