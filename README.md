@@ -18,7 +18,7 @@
 
 #### Siapa lagi orang mau fitnah gue. Original product has label powered by PT JowoScript Technology Indonesia di baca ya dan JavaScript itu gratisan goblok jadi kalo mau fitnah gue mikir. Syukur yang pengangguran dan lebih goblok dari gue. Hukum gue buat tetap berlaku ya kalo mau beli produk gue. karena merasa sok pintar dari gue akan gue ketawain di akhir
 
-#### Dari awal sendiri berani karena pengalaman dan paham hukum jadi goblok dan pecundang siapa selama ini. Ramai ramai kalo goblok percuma ya malah terlihat kelompok pecundang di akhir buang waktu dan tenaga masuk kelompok pecundang. Kelompok pecundang akan terlihat terus sama seperti orang goblok akan terlihat terus
+#### Dari awal sendiri berani karena pengalaman dan paham hukum jadi siapa goblok dan pecundang selama ini. Ramai ramai kalo goblok percuma ya malah terlihat kelompok pecundang di akhir buang waktu dan tenaga masuk kelompok pecundang. Kelompok pecundang akan terlihat terus sama seperti orang goblok akan terlihat terus
 
 #### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
 
