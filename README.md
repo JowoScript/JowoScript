@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Siapa lagi orang mau fitnah gue. Original product has label powered by PT JowoScript Technology Indonesia di baca ya dan JavaScript itu gratisan goblok jadi kalo mau fitnah gue mikir
+#### Siapa lagi orang mau fitnah gue. Original product has label powered by PT JowoScript Technology Indonesia di baca ya dan JavaScript itu gratisan goblok jadi kalo mau fitnah gue mikir. Syukur yang pengangguran dan lebih goblok dari gue
 
 #### Dari awal sendiri berani karena pengalaman dan paham hukum jadi goblok dan pecundang siapa selama ini. Ramai ramai kalo goblok percuma ya malah terlihat kelompok pecundang di akhir buang waktu dan tenaga masuk kelompok pecundang. Kelompok pecundang akan terlihat terus sama seperti orang goblok akan terlihat terus
 
