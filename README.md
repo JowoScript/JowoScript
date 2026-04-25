@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Musuh musuh gue apa baik baik saja hidupnya sampai sekarang ? tidak ya 
+
 #### Siapa lagi orang mau fitnah gue. Original product has label powered by PT JowoScript Technology Indonesia di baca ya dan JavaScript itu gratisan goblok jadi kalo mau fitnah gue mikir. Syukur yang pengangguran dan lebih goblok dari gue. Hukum gue buat tetap berlaku ya kalo mau beli produk gue. karena merasa sok pintar dari gue akan gue ketawain di akhir
 
 #### Dari awal sendiri berani karena pengalaman dan paham hukum jadi siapa goblok dan pecundang selama ini. Ramai ramai kalo goblok percuma ya malah terlihat kelompok pecundang di akhir buang waktu dan tenaga masuk kelompok pecundang. Kelompok pecundang akan terlihat terus sama seperti orang goblok akan terlihat terus
