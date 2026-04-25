@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Musuh musuh gue apa baik baik saja hidupnya sampai sekarang ? tidak ya dan produk gue berkembang terus ya karena goblok akan terlihat terus hidupnya khusus nya di dunia kerja dan pengusaha 
+#### Musuh musuh gue apa baik baik saja hidupnya sampai sekarang ? tidak ya dan produk gue berkembang terus ya karena goblok akan terlihat terus hidupnya khusus nya di dunia kerja dan pengusaha. fakta ya siapa jadi pengangguran dan usahanya bangkrut atau tutup atau gagal bayar hutang selama ini bukan gue
 
 #### Siapa lagi orang mau fitnah gue. Original product has label powered by PT JowoScript Technology Indonesia di baca ya dan JavaScript itu gratisan goblok jadi kalo mau fitnah gue mikir. Syukur yang pengangguran dan lebih goblok dari gue. Hukum gue buat tetap berlaku ya kalo mau beli produk gue. karena merasa sok pintar dari gue akan gue ketawain di akhir
 
