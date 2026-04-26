@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan.
+
 #### Gue yg pintar saja tidak bisa di nepotisme dulu biar mampus yg kerja sekarang. Di baca harganya mampus yg goblok goblok. Gue lebih suka produk gue buat sekarang dari pada kerja di pemerintahan atau swasta. Biar merasakan jadi pengangguran dan tidak berguna
 
 #### Siapa lagi orang mau fitnah gue. Original product has label powered by PT JowoScript Technology Indonesia di baca ya dan JavaScript itu gratisan goblok jadi kalo mau fitnah gue mikir. Syukur yang pengangguran dan lebih goblok dari gue. Hukum gue buat tetap berlaku ya kalo mau beli produk gue. karena merasa sok pintar dari gue akan gue ketawain di akhir
