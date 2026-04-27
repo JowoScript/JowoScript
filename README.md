@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya di modali duluan belum tentu hebat ya. Siapa mau fitnah gue habis kalian di akhir. Tak pateni pimpinan perusahaan di penjara mau fitnah gue di akhir.
+#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya di modali duluan belum tentu hebat ya. Siapa mau fitnah gue habis kalian di akhir. Tak pateni pimpinan perusahaan di penjara mau fitnah gue di akhir. Lapas tidak berlaku jurnalis ya.
 
 #### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
 
