@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya
+
 #### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
 
 #### Gue yg pintar saja tidak bisa di nepotisme dulu biar mampus yg kerja sekarang. Di baca harganya mampus yg goblok goblok. Gue lebih suka produk gue buat sekarang dari pada kerja di pemerintahan atau swasta. Biar merasakan jadi pengangguran dan tidak berguna
