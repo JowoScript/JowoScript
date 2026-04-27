@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya di modali duluan belum tentu hebat ya. Siapa mau fitnah PT JowoScript Technology Indonesia habis kalian di akhir. Tak pateni pimpinan perusahaan di penjara mau fitnah PT JowoScript Technology Indonesia di akhir. Lapas tidak berlaku jurnalis ya kalo bermasalah perusahaan gue. Paham sampai sini. Modal sendiri perusahaan gue dan produk buat sendiri jadi kalo mau fitnah ya blood kalian. Karena pengalaman gue banyak di dunia usaha banyak orang licik cari modal. Gue emang boss dan pemilik perusahaan PT JowoScript Technology Indonesia dengan produk mahal belum ada yg punya di dunia ini dan tidak bisa di tiru ya
+#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya di modali duluan belum tentu hebat ya. gue pengalaman di proyek juga jadi paham ya.
 
 #### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
 
