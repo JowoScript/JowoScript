@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya
+#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya. tapi informasi mudah bagi gue dapat
 
 #### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
 
