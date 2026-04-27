@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya di modali duluan belum tentu hebat ya. gue pengalaman di proyek juga jadi paham ya. Kalian buat proyek selama ini untuk produk tidak berguna dan perusahaan gue beda level ya PT JowoScript Technology Indonesia paling kece sedunia tidak baca kingdom technology environment beda sendiri ya karena pengalaman di proyek gue lebih paham biar bego bego selama ini berkoar koar di media sosial dan media online 
+#### Perusahaan mana lagi pailit gue hanya nyimak selama ini ya di modali duluan belum tentu hebat ya. gue pengalaman di proyek juga jadi paham ya. Kalian buat proyek selama ini untuk produk tidak berguna dan perusahaan gue beda level ya PT JowoScript Technology Indonesia paling kece sedunia tidak baca kingdom technology environment beda sendiri ya karena pengalaman di proyek gue lebih paham biar bego bego selama ini berkoar koar di media sosial dan media online di liputin media bego bego juga hahaha 
 
 #### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
 
