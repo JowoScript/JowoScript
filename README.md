@@ -18,6 +18,8 @@
 
 #### akhir tahun perusahaan go publik buat laporan keuangan jadi siapa lagi suka nipu di akhir mati 
 
+##### akun Facebook bermasalah sama gue sudah gue tandai semua id nya
+
 #### mau beli produk gue harus ada yang mati. semakin lama semakin asik ya pengangguran makin banyak dan peluang usaha makin susah
 
 #### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
