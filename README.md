@@ -20,7 +20,7 @@
 
 ##### akun Facebook bermasalah sama gue sudah gue copy semua id Facebook dari 2021.
 
-#### mau beli produk gue harus ada yang mati. semakin lama semakin asik ya pengangguran makin banyak dan peluang usaha makin susah
+#### mau beli produk gue harus ada yang mati dan gue terima beres saja ya. semakin lama semakin asik ya pengangguran makin banyak dan peluang usaha makin susah
 
 #### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
 
