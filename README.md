@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Selama gue tidak nerima uangnya ya nonton saja siapa lagi akan mati suka nipu
+#### Selama gue tidak nerima uangnya ya nonton saja. Perusahaan mana lagi pailit 
 
 #### Dekat komplek gue jadi ayam terus biarkan mampus kalian cari masalah sama gue
 
