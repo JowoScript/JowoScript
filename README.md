@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Dekat komplek gue jadi ayam terus di ciumin banyak laki laki HAHAHHA 
+
 #### akhir tahun perusahaan go publik buat laporan keuangan jadi siapa lagi suka nipu di akhir mati 
 
 ##### akun Facebook bermasalah sama gue sudah gue copy semua id Facebook dari 2021.
