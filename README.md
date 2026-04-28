@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Dekat komplek gue jadi ayam terus di ciumin banyak laki laki HAHAHHA 
+#### Dekat komplek gue jadi ayam terus biarkan mampus kalian cari masalah sama gue
 
 #### akhir tahun perusahaan go publik buat laporan keuangan jadi siapa lagi suka nipu di akhir mati 
 
