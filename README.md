@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Banyak pembangunan pakai uang negara contoh IKN, Sekolah Rakyat, dan banyak lagi kalo mau adu argumentasi sama gue
+#### Banyak pembangunan pakai uang negara contoh IKN, Sekolah Rakyat, dan banyak lagi kalo mau adu argumentasi sama gue dan gue bangun produk tidak pakai uang pemerintah selama ini jadi hitung hitungan sama gue baik baik
 
 #### Dekat komplek gue jadi ayam terus biarkan mampus kalian cari masalah sama gue
 
