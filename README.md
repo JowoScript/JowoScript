@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Banyak pembangunan pakai uang negara contoh IKN, Sekolah Rakyat, dan banyak lagi kalo mau adu argumentasi sama gue dan gue bangun produk tidak pakai uang pemerintah selama ini jadi hitung hitungan sama gue baik baik dan gue juga selama ini tidak terima gaji dan tunjangan dari pemerintah jadi hitung hitungan sama gue baik baik ya kalian baca harga lisensi gue buat biar siapa goblok di dunia kerja akan terlihat terus ya
+#### Banyak pembangunan pakai uang negara contoh IKN, Sekolah Rakyat, dan banyak lagi kalo mau adu argumentasi sama gue dan gue bangun produk tidak pakai uang pemerintah selama ini jadi hitung hitungan sama gue baik baik dan gue juga selama ini tidak terima gaji dan tunjangan dari pemerintah jadi hitung hitungan sama gue baik baik ya kalian baca harga lisensi gue buat biar siapa goblok di dunia kerja akan terlihat terus ya.Gue juga tenang saja bisa kembangkan kingdom technology hanya gue
 
 #### Dekat komplek gue jadi ayam terus biarkan mampus kalian cari masalah sama gue
 
