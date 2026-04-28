@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Banyak pembangunan pakai uang negara contoh IKN, Sekolah Rakyat, dan banyak lagi kalo mau adu argumentasi sama gue
+
 #### Dekat komplek gue jadi ayam terus biarkan mampus kalian cari masalah sama gue
 
 #### akhir tahun perusahaan go publik buat laporan keuangan jadi siapa lagi suka nipu di akhir mati 
