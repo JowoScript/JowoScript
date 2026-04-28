@@ -18,7 +18,7 @@
 
 #### akhir tahun perusahaan go publik buat laporan keuangan jadi siapa lagi suka nipu di akhir mati 
 
-##### akun Facebook bermasalah sama gue sudah gue tandai semua id nya
+##### akun Facebook bermasalah sama gue sudah gue copy semua id Facebook dari 2021.
 
 #### mau beli produk gue harus ada yang mati. semakin lama semakin asik ya pengangguran makin banyak dan peluang usaha makin susah
 
