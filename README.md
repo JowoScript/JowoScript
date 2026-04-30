@@ -16,6 +16,7 @@
 </div>
 </div>
 
+#### Biar di tulis oleh pakar sejarah kata kata gue di masa depan
 
 #### Gue yang pintar saja tidak bisa nepotisme dulu mampus yang goblok goblok di dunia kerja seterusnya akan terlihat terus
 
