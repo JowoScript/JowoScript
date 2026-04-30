@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Hasil titipan dunia kerja dari dulu masuk lewat orang dalam tidak terlihat banyak dan status jadi pegawai juga banyak dari hasil titipan tidak ada fitnah dunia itu kenapa gue benci HRD karena HRD itu goblok 
+#### Hasil titipan dunia kerja dari dulu masuk lewat orang dalam tidak terlihat banyak dan status jadi pegawai juga banyak dari hasil titipan tidak ada fitnah dunia itu kenapa gue benci HRD dari dulu karena HRD itu goblok tidak mau di salahkan dan maunya menang sendiri dari dulu. Gantian sekarang hancur hancuran
 
 #### Kendaraan mewah suka pamer di medsos Facebook dan sejenisnya bayar pajak tidak mereka apa orang pajak goblok selama ini
 
