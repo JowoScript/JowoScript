@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Sesuai judul ya orang goblok akan bermunculan terus di dunia kerja apa lagi suka masuk berita 🤣✍️📚🤪
+
 #### Hasil titipan dunia kerja dari dulu masuk lewat orang dalam tidak terlihat banyak dan status jadi pegawai juga banyak dari hasil titipan tidak ada fitnah dunia itu kenapa gue benci HRD dari dulu karena HRD itu goblok tidak mau di salahkan dan maunya menang sendiri dari dulu. Gantian sekarang hancur hancuran siapa minus terus keuangan perusahaan dan siapa tidak berkembang karena goblok akan selalu membela diri di akhir ya fakta.
 
 #### Kendaraan mewah suka pamer di medsos Facebook dan sejenisnya bayar pajak tidak mereka apa orang pajak goblok selama ini
