@@ -17,7 +17,7 @@
 </div>
 
 
-#### Sodara gue bermuka dua biar mati sekalian ya sip 👍
+#### Sodara gue bermuka dua biar mati sekalian ya sip 👍 dan siapa punya bisnis gue bukan sodara gue ya
 
 #### Selama gue tidak nerima uangnya ya nonton saja. Perusahaan mana lagi pailit. teknisi mana lagi akan kasus pidana
 
