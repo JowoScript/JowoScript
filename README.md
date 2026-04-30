@@ -19,7 +19,7 @@
 
 #### Sodara gue bermuka dua biar mati sekalian ya sip 👍 dan siapa punya bisnis gue dan perusahaan juga punya gue bukan sodara gue ya
 
-#### warisan itu bisa di turunkan oleh ahli waris gue lebih paham kalo masalah warisan mampus yg punya anak jadi pengangguran 
+#### warisan itu bisa di turunkan oleh ahli waris gue lebih paham kalo masalah warisan mampus yg punya anak jadi pengangguran apa lagi punya hutang piutang 
 
 #### Selama gue tidak nerima uangnya ya nonton saja. Perusahaan mana lagi pailit. teknisi mana lagi akan kasus pidana
 
