@@ -17,7 +17,7 @@
 </div>
 
 
-#### Dimasa muda dan produktif gue di persulit test kerjanya dan lamar kerjanya nah gantian siapa jadi sampah kedepanya
+#### Dimasa muda dan produktif gue di persulit test kerjanya dan lamar kerjanya nah gantian siapa jadi sampah kedepanya dan perusahaan mana akan minus terus keuangan nya. nonton saja orang goblok akan bermunculan terus kedepannya 
 
 #### Sesuai judul ya orang goblok akan bermunculan terus di dunia kerja apa lagi suka masuk berita 🤣✍️📚🤪. Fakta bukan permainan awal baru di mulai bagi gue
 
