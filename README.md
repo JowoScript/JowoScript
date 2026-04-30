@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Kendaraan mewah suka di pamer di medsos Facebook dan sejenisnya bayar pajak tidak mereka
+#### Kendaraan mewah suka pamer di medsos Facebook dan sejenisnya bayar pajak tidak mereka
 
 #### Sodara gue bermuka dua biar mati sekalian ya sip 👍 dan siapa punya bisnis gue dan perusahaan juga punya gue bukan sodara gue ya
 
