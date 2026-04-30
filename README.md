@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Hasil titipan dunia kerja dari dulu masuk lewat orang dalam tidak terlihat banyak dan status jadi pegawai juga banyak dari hasil titipan tidak ada fitnah dunia
+
 #### Kendaraan mewah suka pamer di medsos Facebook dan sejenisnya bayar pajak tidak mereka apa orang pajak goblok selama ini
 
 #### Sodara gue bermuka dua biar mati sekalian ya sip 👍 dan siapa punya bisnis gue dan perusahaan juga punya gue bukan sodara gue ya
