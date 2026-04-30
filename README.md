@@ -16,9 +16,9 @@
 </div>
 </div>
 
-#### Biar di tulis oleh pakar sejarah kata kata gue di masa depan
+#### Biar di tulis oleh pakar sejarah kata kata gue di masa depan di penjuru dunia
 
-#### Gue yang pintar saja tidak bisa nepotisme dulu mampus yang goblok goblok di dunia kerja seterusnya akan terlihat terus
+#### Gue yang pintar saja tidak bisa nepotisme dulu eh yg goblok bisa di lulus kan mampus yang goblok goblok di dunia kerja seterusnya akan terlihat terus
 
 #### Dimasa muda dan produktif gue di persulit test kerjanya dan lamar kerjanya nah gantian siapa jadi sampah kedepanya dan perusahaan mana akan minus terus keuangan nya. nonton saja orang goblok akan bermunculan terus kedepannya 
 
