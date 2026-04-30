@@ -16,6 +16,9 @@
 </div>
 </div>
 
+
+#### Sodara gue bermuka dua biar mati sekalian ya sip 👍
+
 #### Selama gue tidak nerima uangnya ya nonton saja. Perusahaan mana lagi pailit. teknisi mana lagi akan kasus pidana
 
 #### Dekat komplek gue jadi ayam terus biarkan mampus kalian cari masalah sama gue
