@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Tidak baca kingdom technology harganya karena bego sok pintar dari gue akan terlihat terus di dunia kerja fakta ya
+#### Tidak baca kingdom technology harganya karena bego sok pintar dari gue akan terlihat terus di dunia kerja fakta ya. mau gelarmu doktor malah terlihat bego nya dari gue gelar sarjana saja
 
 #### Kredit perumahan rakyat banyak gagal bayar, pinjol banyak gagal bayar dan banyak lagi bisnis apa lagi banyak gaya sama gue. siapa jadi sampah akan terlihat terus kedepannya 
 
