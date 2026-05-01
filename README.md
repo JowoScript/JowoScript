@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Kredit perumahan rakyat banyak gagal bayar, pinjol banyak gagal bayar dan banyak lagi bisnis apa lagi banyak gaya sama gue
+#### Kredit perumahan rakyat banyak gagal bayar, pinjol banyak gagal bayar dan banyak lagi bisnis apa lagi banyak gaya sama gue. siapa jadi sampah akan terlihat terus kedepannya 
 
 #### Biar di tulis oleh pakar sejarah kata kata gue di masa depan di penjuru dunia
 
