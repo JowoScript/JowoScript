@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Kredit KPR banyak gagal bayar, pinjol banyak gagal bayar dan banyak lagi bisnis apa lagi banyak gaya sama gue
+
 #### Biar di tulis oleh pakar sejarah kata kata gue di masa depan di penjuru dunia
 
 #### Gue yang pintar saja tidak bisa nepotisme dulu eh yg goblok bisa di lulus kan mampus yang goblok goblok di dunia kerja seterusnya akan terlihat terus statusnya pegawai tetap di pemerintahan atau swasta itu banyak ya dari dulu hasil orang dalam
