@@ -16,17 +16,7 @@
 </div>
 </div>
 
-#### Sesuai judul perusahaan jadi sampah selama ini siapa jelas bukan perusahaan gue
-
-#### Tidak baca kingdom technology harganya karena bego sok pintar dari gue akan terlihat terus di dunia kerja fakta ya. mau gelarmu doktor master informatika blablabla malah terlihat bego nya dari gue gelar sarjana informatika saja. zaman now gengsi gelar tinggi sudah tidak terpakai ya beda zaman dulu dapat gelar doktor bisa bergaya di akademis langsung di kasih jabatan di akademis duduk manis dapat gaji dan tunjangan kalo zaman now dewan yayasan tidak lihat gelar tapi hasil kerjanya dan menjamin anak didik lulus itu berkualitas
-
-#### Kredit perumahan rakyat banyak gagal bayar, pinjol banyak gagal bayar dan banyak lagi bisnis apa lagi banyak gaya sama gue. siapa jadi sampah akan terlihat terus kedepannya 
-
-#### Biar di tulis oleh pakar sejarah kata kata gue di masa depan di penjuru dunia
-
-#### Gue yang pintar saja tidak bisa nepotisme dulu eh yg goblok bisa di lulus kan mampus yang goblok goblok di dunia kerja seterusnya akan terlihat terus statusnya pegawai tetap di pemerintahan atau swasta itu banyak ya dari dulu hasil orang dalam
-
-#### Dimasa muda dan produktif gue di persulit test kerjanya dan lamar kerjanya nah gantian siapa jadi sampah kedepanya dan perusahaan mana akan minus terus keuangan nya. nonton saja orang goblok akan bermunculan terus kedepannya 
+#### Sesuai judul perusahaan jadi sampah selama ini siapa jelas bukan perusahaan gue. Semakin lama semakin asik terlihat perusahaan mana lagi tidak bonafit dan tidak berguna
 
 #### Sesuai judul ya orang goblok akan bermunculan terus di dunia kerja apa lagi suka masuk berita 🤣✍️📚🤪. Fakta bukan permainan awal baru di mulai bagi gue
 
