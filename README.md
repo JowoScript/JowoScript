@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Tidak baca kingdom technology harganya karena bego sok pintar dari gue akan terlihat terus di dunia kerja fakta ya. mau gelarmu doktor master informatika blablabla malah terlihat bego nya dari gue gelar sarjana informatika saja. zaman now gengsi gelar tinggi sudah tidak terpakai ya beda zaman dulu 
+#### Tidak baca kingdom technology harganya karena bego sok pintar dari gue akan terlihat terus di dunia kerja fakta ya. mau gelarmu doktor master informatika blablabla malah terlihat bego nya dari gue gelar sarjana informatika saja. zaman now gengsi gelar tinggi sudah tidak terpakai ya beda zaman dulu dapat gelar doktor bisa bergaya di akademis langsung di kasih jabaran di akademis
 
 #### Kredit perumahan rakyat banyak gagal bayar, pinjol banyak gagal bayar dan banyak lagi bisnis apa lagi banyak gaya sama gue. siapa jadi sampah akan terlihat terus kedepannya 
 
