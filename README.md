@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### jangan banyak bacot doang di music jeduk jeduk SHARELOK lah lokasinya kalo punya nyali. Jadi banci saja kalian sekalian kalo tidak berani SHARELOK 
+#### jangan banyak bacot doang di music jeduk jeduk SHARELOK lah lokasinya kalo punya nyali. Jadi banci saja kalian sekalian kalo tidak berani SHARELOK kelompok kalian
 
 #### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut. kelompok calon mayat di akhir. Buktikan kalo punya nyali sharelok kelompok kalian buat music. Tidak berani sharelok jadi banci saja kalian
 
