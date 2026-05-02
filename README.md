@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### jangan banyak bacot doang di music jeduk jeduk SHARELOK lah lokasinya kalo punya nyali
+
 #### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut. kelompok calon mayat di akhir. Buktikan kalo punya nyali sharelok kelompok kalian buat music. Tidak berani sharelok jadi banci saja kalian
 
 #### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut. Biar buat music jeduk jeduk mati bersama kelompoknya. Ciri ciri manusia pengecut itu selalu berkelompok. tidak berani sharelok jadi banci saja kalian
