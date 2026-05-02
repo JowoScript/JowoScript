@@ -18,41 +18,8 @@
 
 #### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut. kelompok calon mayat di akhir. Buktikan kalo punya nyali sharelok kelompok kalian buat music
 
-#### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut. Biar buat music jeduk jeduk mati bersama kelompoknya. Ciri ciri manusia pengecut itu selalu berkelompok 
+#### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut. Biar buat music jeduk jeduk mati bersama kelompoknya. Ciri ciri manusia pengecut itu selalu berkelompok. tidak berani sharelok jadi banci saja kalian
 
-#### Sesuai judul perusahaan jadi sampah selama ini siapa jelas bukan perusahaan gue. Semakin lama semakin asik terlihat perusahaan mana lagi tidak bonafit dan tidak berguna
-
-#### Sesuai judul ya orang goblok akan bermunculan terus di dunia kerja apa lagi suka masuk berita 🤣✍️📚🤪. Fakta bukan permainan awal baru di mulai bagi gue
-
-#### Hasil titipan dunia kerja dari dulu masuk lewat orang dalam tidak terlihat banyak dan status jadi pegawai juga banyak dari hasil titipan tidak ada fitnah dunia itu kenapa gue benci HRD dari dulu karena HRD itu goblok tidak mau di salahkan dan maunya menang sendiri dari dulu. Gantian sekarang hancur hancuran siapa minus terus keuangan perusahaan dan siapa tidak berkembang karena goblok akan selalu membela diri di akhir ya fakta.
-
-#### Kendaraan mewah suka pamer di medsos Facebook dan sejenisnya bayar pajak tidak mereka apa orang pajak goblok selama ini
-
-#### Sodara gue bermuka dua biar mati sekalian ya sip 👍 dan siapa punya bisnis gue dan perusahaan juga punya gue bukan sodara gue ya
-
-#### warisan itu bisa di turunkan oleh ahli waris gue lebih paham kalo masalah warisan mampus yg punya anak jadi pengangguran apa lagi punya hutang piutang 
-
-#### Selama gue tidak nerima uangnya ya nonton saja. Perusahaan mana lagi pailit. teknisi mana lagi akan kasus pidana
-
-#### Dekat komplek gue jadi ayam terus biarkan mampus kalian cari masalah sama gue
-
-#### akhir tahun perusahaan go publik buat laporan keuangan jadi siapa lagi suka nipu di akhir mati 
-
-##### akun Facebook bermasalah sama gue sudah gue copy semua id Facebook dari 2021.
-
-#### mau beli produk gue harus ada yang mati bermasalah sama gue full buktinya dan gue terima beres saja ya. dekat komplek gue saja belum ada yg mati selama ini semakin lama semakin asik ya pengangguran makin banyak dan peluang usaha makin susah
-
-#### Dari dulu nepotisme di pemerintahan atau swasta sudah ada dan banyak tapi tidak di publikasikan. Tidak ada fitnah dunia kalo gue benar. Gue masuk surga firdaus tanpa hisab dan tanpa siksa kubur ✍️📚🤪. Mampus musuh musuh gue jadi sampah abadi di dunia kerja
-
-#### Gue yg pintar saja tidak bisa di nepotisme dulu biar mampus yg kerja sekarang. Di baca harganya mampus yg goblok goblok. Gue lebih suka produk gue buat sekarang dari pada kerja di pemerintahan atau swasta. Biar merasakan jadi pengangguran dan tidak berguna
-
-#### Siapa lagi orang mau fitnah gue. Original product has label powered by PT JowoScript Technology Indonesia di baca ya dan JavaScript itu gratisan goblok jadi kalo mau fitnah gue mikir. Syukur yang pengangguran dan lebih goblok dari gue. Hukum gue buat tetap berlaku ya kalo mau beli produk gue. karena merasa sok pintar dari gue akan gue ketawain di akhir
-
-#### Dari awal sendiri berani karena pengalaman dan paham hukum jadi siapa goblok dan pecundang selama ini. Ramai ramai kalo goblok percuma ya malah terlihat kelompok pecundang di akhir buang waktu dan tenaga masuk kelompok pecundang. Kelompok pecundang akan terlihat terus sama seperti orang goblok akan terlihat terus
-
-#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
-
-#### Semakin lama semakin bagus akan terlihat terus siapa goblok di dunia kerja. 
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
