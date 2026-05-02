@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut
+
 #### Sesuai judul perusahaan jadi sampah selama ini siapa jelas bukan perusahaan gue. Semakin lama semakin asik terlihat perusahaan mana lagi tidak bonafit dan tidak berguna
 
 #### Sesuai judul ya orang goblok akan bermunculan terus di dunia kerja apa lagi suka masuk berita 🤣✍️📚🤪. Fakta bukan permainan awal baru di mulai bagi gue
