@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut. Biar buat music jeduk jeduk mati bersama kelompoknya 
+#### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut. Biar buat music jeduk jeduk mati bersama kelompoknya. Ciri ciri manusia pengecut itu selalu berkelompok 
 
 #### Sesuai judul perusahaan jadi sampah selama ini siapa jelas bukan perusahaan gue. Semakin lama semakin asik terlihat perusahaan mana lagi tidak bonafit dan tidak berguna
 
