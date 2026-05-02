@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut 
+#### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut. kelompok calon mayat di akhir 
 
 #### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut. Biar buat music jeduk jeduk mati bersama kelompoknya. Ciri ciri manusia pengecut itu selalu berkelompok 
 
