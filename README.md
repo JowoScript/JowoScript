@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### berkumpul dengan kelompok pecundang hasilnya pecundang juga ya mampus kalian
+#### berkumpul dengan kelompok pecundang hasilnya pecundang juga ya mampus jadi pecundang dan tidak berguna
 
 #### jangan banyak bacot doang di music jeduk jeduk SHARELOK lah lokasinya kalo punya nyali. Jadi banci saja kalian sekalian kalo tidak berani SHARELOK kelompok kalian selama ini buat music jeduk jeduk di balik layar jangan seperti pengecut dan pecundang 
 
