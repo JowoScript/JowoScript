@@ -16,7 +16,9 @@
 </div>
 </div>
 
-#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik
+#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik.
+
+#### banyak berita kasus anak muda bunuh diri umur di bawah 30 tahun ya sekarang 🤣
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
