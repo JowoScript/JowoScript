@@ -18,7 +18,7 @@ a<div align="center">
 
 #### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik.
 
-#### banyak berita kasus anak muda bunuh diri umur di bawah 30 tahun ya sekarang terbukti bawah makin berat kedepannya setiap tahun lulus sekolah dan universitas juga nambah jadi perusahaan di danai pemerintah atau investor tidak berguna akan terlihat terus
+#### banyak berita kasus anak muda bunuh diri umur di bawah 30 tahun ya sekarang terbukti bawah makin berat kedepannya setiap tahun lulus sekolah dan universitas juga nambah jadi perusahaan di danai pemerintah atau investor tidak berguna akan terlihat terus dan program pemerintah tidak berguna akan terlihat terus kedepannya 
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
