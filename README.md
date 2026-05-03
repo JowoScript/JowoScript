@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### 2029 tetap jalan gue karena kelompok pecundang akan mati sendiri di akhir ya termasuk banyak bacot lewat music jeduk jeduk di Facebook selama ini ya
+#### 2029 tetap jalan gue karena kelompok pecundang akan mati sendiri di akhir ya termasuk banyak bacot lewat music jeduk jeduk di Facebook selama ini ya. Karena semua sudah gue tandai orang orangnya
 
 #### berkumpul dengan kelompok pecundang hasilnya pecundang juga ya mampus jadi kelompok pecundang selama ini
 
