@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Perusahaan Asuransi tahun ini ada pailit tidak ? prediksi gue ada pailit dan bangkrut tahun ini
+#### Perusahaan Asuransi swasta tahun ini ada pailit tidak ? prediksi gue ada pailit dan bangkrut tahun ini
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
