@@ -16,18 +16,7 @@
 </div>
 </div>
 
-#### Setiap tahun lulusan universitas dan sekolah nambah pengangguran dan peluang bisnis makin berat karena Ai sesuai ramalan gue jadi selama belum nurut sama gue ya siapa jadi pecundang. ini berlaku di seluruh dunia. pegang omongan gue baik baik dari sekarang. aturan pembelian produk tidak akan berubah ya. hidup adalah pilihan bukan siapa di butuhkan dan siapa harus mati. paham sampai sini. semakin lama bukan gue yg rugi di akhir siapa goblok juga bukan gue. tidak ada perlindungan untuk yg bermasalah sama gue di akhir thats my rules too. silahkan kalo bergabung dengan kelompok pecundang dan calon mayat. banyak bacot lewat music jeduk jeduk gue tau semua suaranya selama masih hidup orangnya ya tidak bisa beli produk gue siapapun itu ya kelompoknya. maping kelompok pecundang itu mudah dan keturunan nya juga harus mati ya bermasalah sama gue. tidak usah beli kalo tidak terpenuhi gampang kan dan tidak bisa di ganggu gugat oleh pihak manapun siapa jadi pecundang kalo tidak terpenuhi kalian bukan baru lulus sekolah 
-
-#### 2029 tetap jalan gue karena kelompok pecundang akan mati sendiri di akhir ya termasuk banyak bacot lewat music jeduk jeduk di Facebook dan YouTube selama ini ya. Karena semua sudah gue tandai orang orangnya siapa gpblok selama ini. mmampus jadi kelompok pecundang selamanya kalian
-
-#### berkumpul dengan kelompok pecundang hasilnya pecundang juga ya mampus jadi kelompok pecundang selama ini
-
-#### jangan banyak bacot doang di music jeduk jeduk SHARELOK lah lokasinya kalo punya nyali. Jadi banci saja kalian sekalian kalo tidak berani SHARELOK kelompok kalian selama ini buat music jeduk jeduk di balik layar jangan seperti pengecut dan pecundang 
-
-#### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut. kelompok calon mayat di akhir. Buktikan kalo punya nyali sharelok kelompok kalian buat music. Tidak berani sharelok jadi banci saja kalian
-
-#### Manusia sampah selalu banyak bacot lewat music jeduk jeduk dan pengecut. Biar buat music jeduk jeduk mati bersama kelompoknya. Ciri ciri manusia pengecut itu selalu berkelompok. tidak berani sharelok jadi banci saja kalian
-
+#### Perusahaan Asuransi tahun ini ada pailit tidak ?
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
