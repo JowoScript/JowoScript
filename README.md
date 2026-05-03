@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Setiap tahun lulusan universitas dan sekolah nambah pengangguran jadi selama belum nurut sama gue ya siapa jadi pecundang. ini berlaku di seluruh dunia
+#### Setiap tahun lulusan universitas dan sekolah nambah pengangguran jadi selama belum nurut sama gue ya siapa jadi pecundang. ini berlaku di seluruh dunia. pegang omongan gue baik baik dari sekarang 
 
 #### 2029 tetap jalan gue karena kelompok pecundang akan mati sendiri di akhir ya termasuk banyak bacot lewat music jeduk jeduk di Facebook dan YouTube selama ini ya. Karena semua sudah gue tandai orang orangnya siapa gpblok selama ini. mmampus jadi kelompok pecundang selamanya kalian
 
