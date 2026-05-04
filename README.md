@@ -16,25 +16,6 @@
 </div>
 </div>
 
-#### Fariz, Reza teman rusak selama ini dekat komplek gue tau semua belum gue sebutin yg lainnya baik baik ya karena di akhir akan gue sebutin satu satu
-
-#### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata. proyek saja ada timeline nya dan batas waktunya siapa goblok selama ini akan terlihat terus hahaha
-
-#### kingdom technology juga end to end encryption siapa goblok selama ini ya. mau niru buat belum tentu berhasil siapa goblok dan pintar 
-
-#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. Perusahaan mana lagi pailit 
-
-#### karena kelaparan dan pengangguran akan berpihak ke gue di akhir. di baca syarat pembelian produk gue selama masih hidup ya orang bermasalah sama gue dan teman bermuka dua ya siapapun tidak bisa beli produk gue. karena teman bermuka dua sudah gue tandai semua jadi kalo masih hidup gue tau. baik di depan gue dan buruk di belakang gue itu ciri ciri teman bermuka dua jadi percuma berbohong ke gue karena gue bukan orang bodoh diam selama ini. mampus siapa jadi pengangguran dan tidak produktif terus
-
-#### Tetap santai gue siapa di butuhkan dan tidak di butuhkan di baca syarat pembelian produk gue dan gue bukan orang bodoh selama ini. gue tau suara teman gue bermasalah selama ini biarkan saja mereka akan mati di akhir siapa diburu di akhir. mampus siapa pengangguran selama ini
-
-
-#### Gue tetap santai karena pecundang dan pengecut banyak bacot doang di music jeduk jeduk coba sharelok kalo punya nyali ye  kalian atau bacot doang ya lewat music jeduk jeduk selama ini jadi banci saja kelompok kalian kalo tidak berani Sharelok di publik buat music jeduk jeduk atau kesini alamat gue sudah tau kan siapa jadi banci selama ini koar koar lewat music saja
-
-#### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah. Mau debat kusir apa lagi. 
-
-#### Semakin lama semakin bagus siapa goblok dan pintar. Berdasarkan penelitian orang goblok itu tidak mau sadar diri di dunia kerja fakta apa bukan dari awal. Merasa pintar dari gue selama ini bertanding terbukti goblok ya fakta apa hoax selama ini. Mau debat kusir apa lagi waktu akan bicara terus ya
-
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
 #### PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
