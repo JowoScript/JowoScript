@@ -18,7 +18,7 @@
 
 #### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. 
 
-#### Gue tetap santai karena pecundang dan pengecut banyak bacot doang di music jeduk jeduk coba sharelok kalo punya nyali ye  kalian atau bacot doang ya lewat music jeduk jeduk selama ini jadi banci saja kelompok kalian kalo tidak berani Sharelok di publik buat music jeduk jeduk
+#### Gue tetap santai karena pecundang dan pengecut banyak bacot doang di music jeduk jeduk coba sharelok kalo punya nyali ye  kalian atau bacot doang ya lewat music jeduk jeduk selama ini jadi banci saja kelompok kalian kalo tidak berani Sharelok di publik buat music jeduk jeduk atau kesini alamat gue sudah tau kan siapa jadi banci selama ini
 
 #### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah. Mau debat kusir apa lagi. 
 
