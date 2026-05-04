@@ -16,7 +16,9 @@
 </div>
 </div>
 
-#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. 
+#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik.
+
+#### Tetap santai gue siapa di butuhkan dan tidak di butuhkan 
 
 #### Gue tetap santai karena pecundang dan pengecut banyak bacot doang di music jeduk jeduk coba sharelok kalo punya nyali ye  kalian atau bacot doang ya lewat music jeduk jeduk selama ini jadi banci saja kelompok kalian kalo tidak berani Sharelok di publik buat music jeduk jeduk atau kesini alamat gue sudah tau kan siapa jadi banci selama ini koar koar lewat music saja
 
