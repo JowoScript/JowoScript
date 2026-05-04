@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. Hobinya jual saham gorengan juga pasti habis di akhir mau di luar negeri dan dalam negeri itu sama semua akan terlihat di akhir siapa masuk penjara jelas owner perusahaan go publik kalo terbukti nipu
+#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. Hobinya jual saham gorengan juga pasti habis di akhir mau di luar negeri dan dalam negeri itu sama semua akan terlihat di akhir siapa masuk penjara jelas owner perusahaan go publik kalo terbukti nipu. itu resiko kalo tidak jujur
 
 #### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah. Mau debat kusir apa lagi. 
 
