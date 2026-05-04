@@ -20,7 +20,7 @@
 
 ##### di baca di bawah ya siapa pintar dan dungu selama ini
 
-##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang goblok akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya
+##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang dungu akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya. sudah banyak masuk media ya perusahaan tutup dan phk karena dungu akan terlihat terus di media online 
 
 #### PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
 
