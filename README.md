@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### karena terlihat santai dan tenang itu gue setiap keluar karena bego selalu koar koar bukan  
+
 #### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata. proyek saja ada timeline nya dan batas waktunya siapa goblok selama ini akan terlihat terus hahaha
 
 #### kingdom technology juga end to end encryption siapa goblok selama ini ya. mau niru buat belum tentu berhasil siapa goblok dan pintar 
