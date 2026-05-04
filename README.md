@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya
+
 #### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik.
 
 #### karena kelaparan dan pengangguran akan berpihak ke gue di akhir. di baca syarat pembelian produk gue selama masih hidup ya orang bermasalah sama gue dan teman bermuka dua ya siapapun tidak bisa beli produk gue. karena teman bermuka dua sudah gue tandai semua jadi kalo masih hidup gue tau. baik di depan gue dan buruk di belakang gue itu ciri ciri teman bermuka dua jadi percuma berbohong ke gue karena gue bukan orang bodoh diam selama ini. mampus siapa jadi pengangguran dan tidak produktif terus
