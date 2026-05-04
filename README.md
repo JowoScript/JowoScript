@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### karena terlihat santai dan tenang itu gue setiap keluar rumah dan orang bego dungu pengangguran selalu koar koar di depan rumah jalan umum berkendara bukan gue fakta HAHAHHA 
+#### karena terlihat santai dan tenang itu gue setiap keluar rumah dan orang bego dungu pengangguran dan miskin selalu koar koar di depan rumah jalan umum bukan gue fakta HAHAHHA 
 
 #### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata. proyek saja ada timeline nya dan batas waktunya siapa goblok selama ini akan terlihat terus hahaha
 
