@@ -20,7 +20,7 @@
 
 #### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah
 
-#### Semakin lama semakin bagus siapa goblok dan pintar. Berdasarkan penelitian orang goblok itu tidak mau sadar diri di dunia kerja fakta apa bukan dari awal. Merasa pintar dari gue selama ini bertanding terbukti goblok ya fakta apa hoax selama ini. jangan lupa masukin blacklist karena kapan pun mereka akan berontak gue ajarin jadi pemimpin hebat
+#### Semakin lama semakin bagus siapa goblok dan pintar. Berdasarkan penelitian orang goblok itu tidak mau sadar diri di dunia kerja fakta apa bukan dari awal. Merasa pintar dari gue selama ini bertanding terbukti goblok ya fakta apa hoax selama ini. jangan lupa masukin blacklist karena kapan pun mereka akan berontak gue ajarin jadi pemimpin hebat sudah jelas di gue tidak nerima juga
 
 #### banyak berita kasus anak muda bunuh diri umur di bawah 30 tahun ya sekarang terbukti bawah makin berat kedepannya setiap tahun lulus sekolah dan universitas juga nambah jadi perusahaan di danai pemerintah atau investor tidak berguna akan terlihat terus dan program pemerintah tidak berguna akan terlihat terus kedepannya 
 
