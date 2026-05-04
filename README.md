@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata
+#### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata. proyek saja ada timeline nya dan batas waktunya siapa goblok selama ini akan terlihat terus hahaha
 
 #### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. Perusahaan mana lagi pailit 
 
