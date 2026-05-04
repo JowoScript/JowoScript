@@ -1,4 +1,4 @@
-a<div align="center">
+<div align="center">
 <a href="https://github.com/JowoScript" target="_self">
 <img src="Logo PT JowoScript Technology Indonesia 128x128.png" 
      title="PT JowoScript Technology Indonesia"
@@ -18,7 +18,7 @@ a<div align="center">
 
 #### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik.
 
-#### Siapa menjual produk palsu gue mereka akan mati sendiri 
+#### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah
 
 #### banyak berita kasus anak muda bunuh diri umur di bawah 30 tahun ya sekarang terbukti bawah makin berat kedepannya setiap tahun lulus sekolah dan universitas juga nambah jadi perusahaan di danai pemerintah atau investor tidak berguna akan terlihat terus dan program pemerintah tidak berguna akan terlihat terus kedepannya 
 
