@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### karena terlihat santai dan tenang itu gue setiap keluar rumah dan orang bego dungu pengangguran dan miskin selalu koar koar di depan rumah jalan umum bukan gue fakta HAHAHHA lewat depan rumah ketangkap kamera tersembunyi gue selama ini siapa goblok ya mampus teman gue pengangguran dan miskin terlihat kamera depan
+#### karena terlihat santai dan tenang itu gue setiap keluar rumah dan orang bego dungu pengangguran dan miskin selalu koar koar di depan rumah jalan umum bukan gue fakta HAHAHHA lewat depan rumah ketangkap kamera tersembunyi gue selama ini siapa goblok ya mampus teman gue pengangguran dan miskin terlihat kamera depan. temannya Reza semua bukan suka lewat depan rumah
 
 #### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata. proyek saja ada timeline nya dan batas waktunya siapa goblok selama ini akan terlihat terus hahaha
 
