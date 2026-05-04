@@ -18,7 +18,7 @@
 
 #### orang goblok akan terlihat terus kedepannya ya paham sampai sini lihat saja kedepannya omongan gue di pegang ya. perusahaan tidak berguna akan bermunculan terus kedepannya karena anak informatika itu akan terlihat terus siapa goblok dan suka nipu di dunia kerja
 
-##### di baca di bawah ya 
+##### di baca di bawah ya siapa pintar dan dungu selama ini
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
