@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### orang goblok akan terlihat terus kedepannya ya paham sampai sini lihat saja kedepannya omongan gue di pegang ya
+#### orang goblok akan terlihat terus kedepannya ya paham sampai sini lihat saja kedepannya omongan gue di pegang ya. perusahaan tidak berguna akan bermunculan terus kedepannya 
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products.
 
