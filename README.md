@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Fariz, Reza teman rusak selama ini dekat komplek gue tau semua belum gue sebutin yg lainnya
+#### Fariz, Reza teman rusak selama ini dekat komplek gue tau semua belum gue sebutin yg lainnya baik baik ya karena di akhir akan gue sebutin satu satu
 
 #### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata. proyek saja ada timeline nya dan batas waktunya siapa goblok selama ini akan terlihat terus hahaha
 
