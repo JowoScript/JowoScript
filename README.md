@@ -16,9 +16,9 @@
 </div>
 </div>
 
-#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik.
+#### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. Hobinya jual saham gorengan juga pasti habis di akhir 
 
-#### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah. Mau debat kusir apa lagi
+#### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah. Mau debat kusir apa lagi. 
 
 #### Semakin lama semakin bagus siapa goblok dan pintar. Berdasarkan penelitian orang goblok itu tidak mau sadar diri di dunia kerja fakta apa bukan dari awal. Merasa pintar dari gue selama ini bertanding terbukti goblok ya fakta apa hoax selama ini. Mau debat kusir apa lagi waktu akan bicara terus ya
 
