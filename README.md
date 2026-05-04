@@ -18,6 +18,8 @@
 
 #### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik.
 
+#### karena kelaparan dan pengangguran akan berpihak ke gue di akhir. di baca syarat pembelian produk gue selama masih hidup ya orang bermasalah sama gue dan teman bermuka dua ya siapapun tidak bisa beli produk gue 
+
 #### Tetap santai gue siapa di butuhkan dan tidak di butuhkan di baca syarat pembelian produk gue dan gue bukan orang bodoh selama ini. gue tau suara teman gue bermasalah selama ini biarkan saja mereka akan mati di akhir siapa diburu di akhir. mampus siapa pengangguran selama ini
 
 
