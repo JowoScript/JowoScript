@@ -20,7 +20,7 @@
 
 #### Siapa menjual produk palsu gue mereka akan mati sendiri di akhir. Bersih bersih suka nipu gue mudah
 
-#### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut fakta sharelok saja lokasi kalian kalo punya nyali karena namanya algojo itu tidak pernah di tampakan di publik paham sampai sini kelompok pecundang dan pengecut banyak bacot buat music jeduk jeduk. algojo tidak takut mati kalo dapat perintah dan berpengalaman di lapangan paham ya
+#### banyak bacot buat music jeduk jeduk berkelompok pecundang dan pengecut fakta sharelok saja lokasi kalian kalo punya nyali karena namanya algojo itu tidak pernah di tampakan di publik paham sampai sini kelompok pecundang dan pengecut banyak bacot buat music jeduk jeduk. algojo tidak takut mati kalo dapat perintah dan berpengalaman di lapangan paham ya. ganti kelamin saja jadi banci itu buat music jeduk jeduk banyak bacot
 
 
 #### banyak berita kasus anak muda bunuh diri umur di bawah 30 tahun ya sekarang terbukti bawah makin berat kedepannya setiap tahun lulus sekolah dan universitas juga nambah jadi perusahaan di danai pemerintah atau investor tidak berguna akan terlihat terus dan program pemerintah tidak berguna akan terlihat terus kedepannya 
