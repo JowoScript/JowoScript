@@ -18,7 +18,7 @@
 
 #### Tahun depan masih lanjut siapa goblok dan pintar akan terlihat terus ya. harga produk tidak akan turun naik terus mampus bales dendam gue itu nyata. proyek saja ada timeline nya dan batas waktunya siapa goblok selama ini akan terlihat terus hahaha
 
-#### kingdom technology juga end to end encryption siapa goblok selama ini ya
+#### kingdom technology juga end to end encryption siapa goblok selama ini ya. mau niru buat belum tentu berhasil siapa goblok dan pintar 
 
 #### Semakin lama akan terlihat gerombolan perusahaan tidak berguna bermunculan satu satu di publik. Perusahaan mana lagi pailit 
 
