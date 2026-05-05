@@ -20,6 +20,8 @@
 
 #### mana ada gagal kingdom technology environment buat sendiri gue juga ya selama ini tanpa bantuan siapapun ya buat produk nya tidak ada fitnah ya bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya fakta hahahaha 
 
+#### buat produk semua pakai proses goblok mana ada langsung jadi makane sekolah yang benar kalo goblok dan tidak ada gratisan produk gue buat susah mikirnya kalo tidak punya uang ya nonton saja
+
 #### sesuai judul ya 
 
 #### Semakin lama akan terlihat terus orang orang goblok dan pemales di dunia kerja di pemerintahan dan perusahaan pegang omongan gue
