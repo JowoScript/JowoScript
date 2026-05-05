@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### orang banyak bacot tapi tidak ada skill siapa jadi sampah
+
 #### kalo saingan gue pengangguran ya nonton saja kalo tidak punya uang untuk beli produk kingdom technology environment gue biar mampus perusahaan tidak berguna akan bermunculan terus kedepannya pegang omongan gue
 
 #### orang goblok akan terlihat terus kedepannya ya paham sampai sini lihat saja kedepannya omongan gue di pegang ya. perusahaan tidak berguna akan bermunculan terus kedepannya karena anak informatika itu akan terlihat terus siapa goblok dan suka nipu di dunia kerja
