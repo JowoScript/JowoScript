@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### kalo pengangguran tidak punya uang ya nonton saja kalian ya sadar diri kalo miskin tabungan 
+
 #### orang goblok akan terlihat terus kedepannya ya paham sampai sini lihat saja kedepannya omongan gue di pegang ya. perusahaan tidak berguna akan bermunculan terus kedepannya karena anak informatika itu akan terlihat terus siapa goblok dan suka nipu di dunia kerja
 
 ##### di baca di bawah ya siapa pintar dan dungu selama ini
