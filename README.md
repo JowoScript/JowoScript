@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### kalo pengangguran tidak punya uang untuk beli produk gue ya nonton saja kalian ya sadar diri kalo miskin tabungan di bank
+#### kalo pengangguran tidak punya uang untuk beli produk gue ya nonton saja kalian ya sadar diri kalo miskin tabungan di bank karena gue lebih paham kalo masalah isi tabungan kalian HAHAHHA 
 
 #### orang goblok akan terlihat terus kedepannya ya paham sampai sini lihat saja kedepannya omongan gue di pegang ya. perusahaan tidak berguna akan bermunculan terus kedepannya karena anak informatika itu akan terlihat terus siapa goblok dan suka nipu di dunia kerja
 
