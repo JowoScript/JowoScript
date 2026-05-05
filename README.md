@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### mana ada gagal kingdom technology environment bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus
+#### mana ada gagal kingdom technology environment bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya
 
 #### sesuai judul ya 
 
