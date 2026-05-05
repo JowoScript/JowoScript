@@ -18,7 +18,7 @@
 
 ##### telah di tonton banyak pejabat pemerintah aktif dan pensiun ya github gue dari 2021 dan seterusnya update terus kata kata gue
 
-#### mana ada gagal kingdom technology environment bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya fakta hahahaha 
+#### mana ada gagal kingdom technology environment buat sendiri gue juga ya selama ini bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya fakta hahahaha 
 
 #### sesuai judul ya 
 
