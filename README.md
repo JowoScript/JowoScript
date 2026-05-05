@@ -86,7 +86,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 
 #### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
 
-#### Purchases of licensed products must be paid in full without debt or credit
+#### Purchases of licensed products must be paid in full without debt or credit di baca ya kalo goblok
 <img src="Easy for me.png" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
