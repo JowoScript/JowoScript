@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### gue dulu lulus sekolah tidak dapat jaminan kerja kalian akan merasakan hal yang sama juga apa lagi goblok ya masuk kerja hasil titipan
+
 #### orang banyak bacot di music jeduk jeduk tapi tidak ada skill siapa jadi sampah akan terlihat terus kedepannya 
 
 #### kalo saingan gue pengangguran ya nonton saja kalo tidak punya uang untuk beli produk kingdom technology environment gue biar mampus perusahaan tidak berguna akan bermunculan terus kedepannya pegang omongan gue
