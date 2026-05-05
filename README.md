@@ -20,7 +20,7 @@
 
 #### mana ada gagal kingdom technology environment buat sendiri gue juga ya selama ini tanpa bantuan siapapun ya buat produk nya tidak ada fitnah ya bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya fakta hahahaha 
 
-#### vendor pemenang proyek buat aplikasi di pemerintahan suka perpanjang kontrak akan terlihat terus mereka juga tidak beli produk gue buat dan siapa korupsi juga bukan gue ya
+#### vendor pemenang proyek buat aplikasi sudah selesai dari dulu di pemerintahan suka perpanjang kontrak akan terlihat terus mereka juga tidak beli produk gue buat dan siapa korupsi juga bukan gue ya
 
 #### buat produk semua pakai proses goblok mana ada langsung jadi makane sekolah yang benar kalo goblok dan tidak ada gratisan produk gue buat susah mikirnya kalo tidak punya uang ya nonton saja kalian bukan protes ke gue
 
