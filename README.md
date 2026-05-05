@@ -18,7 +18,7 @@
 
 ##### telah di tonton banyak pejabat pemerintah aktif dan pensiun ya github gue dari 2021 dan seterusnya update terus kata kata gue
 
-#### mana ada gagal kingdom technology environment buat sendiri gue juga ya selama ini tanpa bantuan siapapun ya buat produk nya tidak ada fitnah ya bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya fakta hahahaha dan jowoscript dari 2021 produk aslinya gue juga yg buat untuk pemanasan kepada orang sok pintar sama gue selama ini biar paham skill coding gue sehebat apa
+#### mana ada gagal kingdom technology environment buat sendiri gue juga ya selama ini tanpa bantuan siapapun ya buat produk nya tidak ada fitnah ya bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya fakta hahahaha dan jowoscript dari 2021 produk aslinya gue juga yg buat untuk pemanasan kepada orang sok pintar sama gue selama ini biar paham skill coding gue sehebat apa jelas badai Matahari terbesar sepanjang sejarah 
 
 #### vendor pemenang proyek buat aplikasi sudah selesai dari dulu di pemerintahan suka perpanjang kontrak akan terlihat terus mereka juga tidak beli produk gue buat dan siapa korupsi juga bukan gue ya karena pengusaha bersih dan kotor akan terlihat terus kedepannya 
 
