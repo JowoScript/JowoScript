@@ -18,7 +18,7 @@
 
 ##### telah di tonton banyak pejabat pemerintah aktif dan pensiun ya github gue dari 2021 dan seterusnya update terus kata kata gue
 
-##### produk gue buat mau harganya mahal banget itu hak pribadi gue. tidak ada pesaing yg mampu buat. so uang yg bicara ya
+##### produk gue buat mau harganya mahal banget itu hak pribadi gue. tidak ada pesaing yg mampu buat. sesuai judul ya orang goblok dan perusahaan tidak berguna akan bermunculan terus kedepannya 
 
 ##### bisnis melanggar hukum seperti judi online, narkoba dan sejenisnya tidak ada yang tahan lama bisnis begitu karena uang haram semua gue analisis dengan baik ya
 
