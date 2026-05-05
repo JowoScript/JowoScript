@@ -18,6 +18,8 @@
 
 ##### telah di tonton banyak pejabat pemerintah aktif dan pensiun ya github gue dari 2021 dan seterusnya update terus kata kata gue
 
+##### produk gue buat mau harganya mahal banget itu hak pribadi gue. tidak ada pesaing yg mampu buat. so uang yg bicara ya
+
 ##### bisnis melanggar hukum seperti judi online, narkoba dan sejenisnya tidak ada yang tahan lama bisnis begitu karena uang haram semua gue analisis dengan baik ya
 
 #### mana ada gagal kingdom technology environment buat sendiri gue juga ya selama ini tanpa bantuan siapapun ya buat produk nya tidak ada fitnah ya bisa di lihat versi naik terus dan harga naik terus gue pengalaman biar goblok pada nonton terus terbukti ya fakta hahahaha dan jowoscript dari 2021 produk aslinya gue juga yg buat untuk pemanasan kepada orang sok pintar sama gue selama ini biar paham skill coding gue sehebat apa jelas badai Matahari terbesar sepanjang sejarah 
