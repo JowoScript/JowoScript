@@ -18,6 +18,8 @@
 
 #### gue dulu lulus sekolah tidak dapat jaminan kerja cari sendiri dulu banyak gue apply tidak lulus santai karena goblok siapa selama ini dan kalian akan merasakan hal yang sama juga apa lagi goblok ya masuk kerja hasil titipan. Anak zaman now banyak protes nuntut ini itu ke pemerintah gak tau malu banyak bacot di Facebook buat berita palsu blabla untuk chaos karena gak ada skill goblok fakta semua video reels bisa di download ya dan pelaku penyebar semua bisa track ya id Facebook kalian
 
+#### chipset di kendaraan listrik itu semua pakai bahasa pemrograman ya dan hanya pabrik yang tau
+
 #### dari 2021 sampai sekarang Facebook video reels isinya chaos dan berita palsu terus selama ini karena gue tau goblok tidak ada skill bisanya chaos dan berita palsu. gue tetep santai tinggi terus gue
 
 #### orang banyak bacot di music jeduk jeduk tapi tidak ada skill siapa jadi sampah akan terlihat terus kedepannya 
