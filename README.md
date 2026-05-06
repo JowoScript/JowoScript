@@ -24,7 +24,7 @@
 
 #### sesuai judul ya 
 
-#### kalo saingan gue pengangguran seperti dj nya biar mati sendiri mereka kelompok pecundang
+#### kalo saingan gue pengangguran seperti dj nya biar mati sendiri mereka kelompok pecundang mampus hahahaha
 
 ##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang dungu akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya. sudah banyak masuk media ya perusahaan tutup dan phk karena dungu akan terlihat terus di media online 
 
