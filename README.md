@@ -20,7 +20,7 @@
 
 ##### telah di tonton banyak pejabat pemerintah aktif dan pensiun ya github gue dari 2021 dan seterusnya update terus kata kata gue
 
-##### gue dalam proses development produk sambil blacklist
+##### gue dalam proses development produk sambil blacklist dan aturan tidak akan pernah berubah 
 
 ##### produk gue buat mau harganya mahal banget itu hak pribadi gue. tidak ada pesaing yg mampu buat. sesuai judul ya orang goblok dan perusahaan tidak berguna akan bermunculan terus kedepannya
 
