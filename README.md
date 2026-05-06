@@ -16,7 +16,9 @@
 </div>
 </div>
 
-#### jangan pernah nipu gue kalo mau bisnis karena bisa gue jadiin mainan di akhir cerita
+#### jangan pernah nipu gue kalo mau bisnis karena bisa gue jadiin mainan di akhir cerita ya
+
+#### aturan gue tetap berlaku jelas gue tau suara siapa selama ini di music jeduk jeduk Facebook. harus mati ya mati orang buat music jeduk jeduk selama ini
 
 #### siapa jadi pecundang dan pengangguran DJ kasihan betul hidup kamu HAHAHHA jadi babu selamanya kamu DJ mampus hahaha apa lagi sudah punya anak ya easy for me dan gue tau anaknya tinggal sama siapa gue bukan orang bodoh ya sudah masuk sekolah dasar ya dan algojo gue tunggu perintah gue kapan pun itu siap mental tidak kalian. terlihat biasa saja suka di rumah lebih bahaya paham ya. teman sekolah juga sama gue tau semua bermuka dua. karena goblok akan terlihat terus kedepannya dekat komplek sesuai judul ya yang jahu saja gue tau gimana hanya sekitaran gue ya. kalo tidak punya nyali itu jangan banyak gaya blayer blayer seperti anak ayam mampus pengangguran dan pecundang dan tidak produktif siapa selama ini. 
 
