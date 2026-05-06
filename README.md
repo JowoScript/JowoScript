@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### siapa jadi pecundang dan penganggaran DJ kasihan betul hidup kamu HAHAHHA jadi babu selamanya kamu DJ mampus hahaha apa lagi sudah punya anak ya easy for me dan gue tau anaknya tinggal sama siapa gue bukan orang bodoh ya sudah masuk sekolah dasar ya dan algojo gue tunggu perintah gue kapan pun itu siap mental tidak kalian. terlihat biasa saja lebih bahaya paham ya. teman sekolah juga sama gue tau semua bermuka dua
+#### siapa jadi pecundang dan penganggaran DJ kasihan betul hidup kamu HAHAHHA jadi babu selamanya kamu DJ mampus hahaha apa lagi sudah punya anak ya easy for me dan gue tau anaknya tinggal sama siapa gue bukan orang bodoh ya sudah masuk sekolah dasar ya dan algojo gue tunggu perintah gue kapan pun itu siap mental tidak kalian. terlihat biasa saja lebih bahaya paham ya. teman sekolah juga sama gue tau semua bermuka dua. karena goblok akan terlihat terus kedepannya 
 
 #### belum update foto versi barunya gue karena kasihan lihat orang bego masalahnya sudah bego hidup lagi ya kamu DJ buat music di facebook semua di recording dan bisa download ya
 
