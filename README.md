@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Dari 2021 posisi gue sudah benar siapa senggol gue pasti gue bales
+
 #### kelompok suka intimidasi gue selama ini semua data ada ya seperti reza, bagaz, Rizal, woko, dan seterusnya barisan pecundang dan pengangguran ya
 
 #### kelompok suka intimidasi gue lewat music di intimidasi balik mau tidak biar mampus kalian apa lagi sudah punya anak
