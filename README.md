@@ -20,7 +20,7 @@
 
 ##### telah di tonton banyak pejabat pemerintah aktif dan pensiun ya github gue dari 2021 dan seterusnya update terus kata kata gue
 
-##### gue dalam proses development produk sambil blacklist dan aturan tidak akan pernah berubah siapa di butuhkan akan terlihat kedepannya terus Microsoft dan Google juga tidak punya produk gue buat masih nonton proses gue buat dan mereka tau gue tidak akan gagal. tandai saja musik jeeduk jeduk selama ini siapa yang buat di Facebook karena akan berguna di masa depan untuk jadi tumbal
+##### gue dalam proses development produk sambil blacklist dan aturan tidak akan pernah berubah siapa di butuhkan oleh rakyat akan terlihat kedepannya terus. Tandai saja musik jeeduk jeduk san menyisipkan suara selama ini siapa yang buat di Facebook karena akan berguna di masa depan untuk jadi tumbal
 
 ##### produk gue buat mau harganya mahal banget itu hak pribadi gue. tidak ada pesaing yg mampu buat. sesuai judul ya orang goblok dan perusahaan tidak berguna akan bermunculan terus kedepannya
 
