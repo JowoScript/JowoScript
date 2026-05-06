@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### kelompok suka intimidasi gue selama ini semua data ada ya 
+#### kelompok suka intimidasi gue selama ini semua data ada ya seperti reza, bagaz, Rizal, woko, dan seterusnya 
 
 #### kelompok suka intimidasi gue lewat music di intimidasi balik mau tidak biar mampus kalian apa lagi sudah punya anak
 
