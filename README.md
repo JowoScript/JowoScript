@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### kelompok suka intimidasi gue lewat music di intimidasi balik mau tidak
+#### kelompok suka intimidasi gue lewat music di intimidasi balik mau tidak biar mampus kalian apa lagi sudah punya anak
 
 #### aturan gue tetap berlaku jelas gue tau suara siapa selama ini di music jeduk jeduk Facebook. harus mati ya mati orang buat music jeduk jeduk selama ini. selama masih hidup orang-orang nya buat music jeduk jeduk dan menyisipkan suara di Facebook ya atau nonton saja kalian bego bego dan dungu ya hahaha 
 
