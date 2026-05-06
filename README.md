@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### siapa jadi pecundang dan penganggaran DJ kasihan betul hidup kamu HAHAHHA jadi babu selamanya kamu DJ mampus hahaha apa lagi sudah punya anak ya easy for me dan gue tau anaknya tonggal sama siapa gue bukan orang bodoh ya 
+
 #### belum update foto versi barunya gue karena kasihan lihat orang bego masalahnya sudah bego hidup lagi ya kamu DJ buat music di facebook semua di recording dan bisa download ya
 
 #### sesuai judul ya 
