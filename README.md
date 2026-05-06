@@ -18,7 +18,8 @@
 
 #### Dari 2021 posisi gue sudah benar siapa senggol gue pasti gue bales kalian anak informatika 
 
-#### alamat tinggal asli pejabat dan jendral aktif semua ada di server jadi jangan sok pintar dari gue
+
+#### siapa failed proyek akan terlihat nantinya mampus bego bego dan perusahaan tidak berguna akan terlihat juga 
 
 #### kelompok suka intimidasi gue selama ini semua data ada ya seperti reza, bagaz, Rizal, woko, dan seterusnya barisan pecundang dan pengangguran ya
 
