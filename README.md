@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### belum update foto versi barunya gue karena kasihan lihat orang bego masalahnya 
+#### belum update foto versi barunya gue karena kasihan lihat orang bego masalahnya sudah bego hidup lagi ya kamu DJ buat music di facebook semua di recording 
 
 #### sesuai judul ya 
 
