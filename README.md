@@ -23,6 +23,8 @@
 
 #### kerja di perusahaan sendiri ya tidak nerima gaji sesuai judul perusahaan mana tidak berguna akan terlihat terus kedepannya. harga produk gue buat itu gaji gue sebulan ya. gue bukan orang bodoh siapa tumbang jelas di danai duluan. kalo saingan gue pengangguran ya nonton saja tidak gratis produk gue kalo miskin apa lagi pensiun di pemerintahan 
 
+#### lulus sekolah dan universitas jadi pengangguran itu banyak seperti gue dulu di gitu in juga.
+
 #### gue dulu pengangguran saja uang selalu ada gimana begini mudah menghancurkan orang orang goblok dan perusahaan 
 
 #### gue pengangguran uang selalu ada mampus kau dj jadi sampah selamanya kasihan deh lu bego hidup lagi hahahaha 
