@@ -21,6 +21,8 @@
 </div>
 </div>
 
+#### perusahaan mana suka bohong ke gue selama ini gue diamkan terus dan dollar sampai euro naik terus ke rupiah
+
 #### kerja di perusahaan sendiri ya tidak nerima gaji sesuai judul perusahaan mana tidak berguna akan terlihat terus kedepannya. harga produk gue buat itu gaji gue sebulan ya. gue bukan orang bodoh siapa tumbang jelas di danai duluan. kalo saingan gue pengangguran ya nonton saja tidak gratis produk gue kalo miskin apa lagi pensiun di pemerintahan 
 
 #### lulus sekolah dan universitas jadi pengangguran itu banyak seperti gue dulu di gitu in juga.
