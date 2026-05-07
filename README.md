@@ -23,6 +23,8 @@
 
 #### kerja di perusahaan sendiri ya tidak nerima gaji sesuai judul perusahaan mana tidak berguna akan terlihat terus kedepannya. harga produk gue buat itu gaji gue sebulan ya. gue bukan orang bodoh siapa tumbang jelas di danai duluan. kalo saingan gue pengangguran ya nonton saja tidak gratis produk gue kalo miskin apa lagi pensiun di pemerintahan 
 
+#### gue pengangguran uang selalu ada mampus kau dj jadi sampah selamanya 
+
 #### rumah sakit belum ada gue blacklist karena belum ada cari masalah selama ini. gue tinggal blacklist sistem bpjs kedepannya kalo ada rumah sakit kerja sama bpjs cari masalah sama gue kalo gue sakit. bpjs satu pintu kesehatan nasional ya baik baik. gue blacklist di produk gue buat itu hak gue yg rugi next generation pegawai bpjs tidak bisa transformasi sistem selama ini sistem bpjs ya putar disitu saja dulu. mikir 20 tahun kedepan kalo bego jangan cari masalah sama gue. rumah sakit tanpa bpjs itu sepi rumah sakit ya. banyak rumah sakit dan dokter berkembang karena bpjs ya siapa bayar obat dan dokter kalo bukan bpjs
 
 #### perusahaan masuk blacklist gue piye kabare kedepannya gelap mereka
