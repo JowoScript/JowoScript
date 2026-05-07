@@ -21,11 +21,9 @@
 </div>
 </div>
 
-#### dollar dan euro naik terus gue bodo amat mampus kalian bego sih.
+#### dollar dan euro naik terus sesuai omongan gue ya next dj nya suka nyanyi kepala nya putus pasti suka bacotin gue selama ini.
 
 #### gue boss di perusahaan sendirii jadi ngapain takut sama kalian
-
-#### sini yg banyak bacot dj nya calon mayat
 
 #### perusahaan mana suka bohong ke gue selama ini gue diamkan terus dan dollar sampai euro naik terus ke rupiah
 
