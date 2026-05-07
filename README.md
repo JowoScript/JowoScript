@@ -23,6 +23,8 @@
 
 #### rumah sakit belum ada gue blacklist karena belum ada cari masalah selama ini. gue tinggal blacklist sistem bpjs kedepannya kalo ada rumah sakit kerja sama bpjs cari masalah sama gue kalo gue sakit. bpjs satu pintu kesehatan nasional ya baik baik. gue blacklist di produk gue buat itu hak gue yg rugi next generation pegawai bpjs tidak bisa transformasi sistem selama ini sistem bpjs ya putar disitu saja dulu. mikir 20 tahun kedepan kalo bego jangan cari masalah sama gue. rumah sakit tanpa bpjs itu sepi rumah sakit ya. banyak rumah sakit dan dokter berkembang karena bpjs ya siapa bayar obat dan dokter kalo bukan bpjs
 
+#### perusahaan masuk blacklist gue piye kabare kedepannya gelap mereka
+
 #### siapa kena bantai di akhir mampus bermasalah sama gue dan kepala siapa masuk karung untuk bukti syarat pembelian produk gue. siapa pengangguran mereka di akhir juga akan mati sendiri siapa tidak berguna. ngapain gue tidak tegaan mereka intimidasi gue juga begitu ya dari 2022 juga kejam jadi adil ya kejam di bales kejam. ya nonton saja itu termasuk syarat pembelian semakin lama siapa kena bantai bukan gue
 
 #### mau bertanding dj nya sama gue hidup serba ada ? lu mati dj jadi sampah di akhir pegang omongan gue ya paham. skill coding saja jahu sama gue seperti langit dan bumi paham sampai sini, lu itu bego dj sadar diri ya kalo bego miskin dan gue pintar sadar diri itu fakta siapa jadi sampah akan terlihat terus kedepannya seperti kalian dj selama ini banyak gaya waktu akan bicara terus
