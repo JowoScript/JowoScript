@@ -21,6 +21,8 @@
 </div>
 </div>
 
+#### Gue tambahin lagi support technology inside. Orang pintar dan goblok itu akan terlihat terus nantinya  *) Can restart or shutdown operation system in kingdom technology environment with license business (note this only have key code)
+
 #### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue paham sampai sini kelompok pecundang dan pengangguran kalian fakta rah sah cangkeman ya hahahaha the checkmate forever 
 
 #### Dari 2021 posisi gue sudah benar siapa senggol gue pasti gue bales kalian anak informatika. siapa failed proyek akan bayar hutang kalian bukan gue
