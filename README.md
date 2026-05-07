@@ -21,7 +21,7 @@
 </div>
 </div>
 
-#### siapa kena bantai di akhir mampus bermasalah sama gue
+#### siapa kena bantai di akhir mampus bermasalah sama gue dan kepala siapa masuk karung untuk bukti syarat pembelian produk gue
 
 #### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue paham sampai sini kelompok pecundang dan pengangguran kalian fakta rah sah cangkeman ya hahahaha the checkmate forever 
 
