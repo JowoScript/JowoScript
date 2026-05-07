@@ -14,6 +14,8 @@
 	<br>
 	the value company trillion dollars 
 	<br>
+	Baca status gue naik darah terus lama lama struck hahahaha 
+	<br>
 	Introduction
 </strong>
 </div>
