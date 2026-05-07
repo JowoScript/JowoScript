@@ -21,7 +21,7 @@
 </div>
 </div>
 
-#### Gue tambahin lagi support technology inside. Orang pintar dan goblok itu akan terlihat terus nantinya  *) Can restart or shutdown operation system in kingdom technology environment with license business (note this only have key code)
+#### Gue tambahin lagi support technology inside. Orang pintar dan goblok itu akan terlihat terus nantinya  *) Can restart or shutdown operation system in kingdom technology environment with license business (note this only have key code) *) Can monitor operation system in kingdom technology environment with license business (note this only have key code)
 
 #### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue paham sampai sini kelompok pecundang dan pengangguran kalian fakta rah sah cangkeman ya hahahaha the checkmate forever 
 
