@@ -21,7 +21,7 @@
 </div>
 </div>
 
-#### rumah sakit belum ada gue blacklist karena belum ada cari masalah selama ini. gue tinggal blacklist sistem bpjs kedepannya kalo ada rumah sakit kerja sama bpjs cari masalah sama gue kalo gue sakit
+#### rumah sakit belum ada gue blacklist karena belum ada cari masalah selama ini. gue tinggal blacklist sistem bpjs kedepannya kalo ada rumah sakit kerja sama bpjs cari masalah sama gue kalo gue sakit. bpjs satu pintu kesehatan nasional ya baik baik
 
 #### siapa kena bantai di akhir mampus bermasalah sama gue dan kepala siapa masuk karung untuk bukti syarat pembelian produk gue. siapa pengangguran mereka di akhir juga akan mati sendiri siapa tidak berguna. ngapain gue tidak tegaan mereka intimidasi gue juga begitu ya dari 2022 juga kejam jadi adil ya kejam di bales kejam. ya nonton saja itu termasuk syarat pembelian semakin lama siapa kena bantai bukan gue
 
