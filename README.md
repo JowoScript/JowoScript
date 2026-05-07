@@ -14,7 +14,7 @@
 	<br>
 	the value company trillion dollars 
 	<br>
-	Baca status gue naik darah terus lama lama struck hahahaha 
+	Kalo miskin tidak punya uang untuk beli lisensi produk ya nonton saja 
 	<br>
 	Introduction
 </strong>
