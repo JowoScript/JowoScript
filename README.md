@@ -21,7 +21,7 @@
 </div>
 </div>
 
-#### siapa kena bantai di akhir mampus bermasalah sama gue dan kepala siapa masuk karung untuk bukti syarat pembelian produk gue. siapa pengangguran mereka di akhir juga akan mati sendiri siapa tidak berguna. ngapain gue tidak tegaan mereka intimidasi gue juga begitu ya dari 2022 juga kejam
+#### siapa kena bantai di akhir mampus bermasalah sama gue dan kepala siapa masuk karung untuk bukti syarat pembelian produk gue. siapa pengangguran mereka di akhir juga akan mati sendiri siapa tidak berguna. ngapain gue tidak tegaan mereka intimidasi gue juga begitu ya dari 2022 juga kejam jadi adil ya kejam di bales kejam
 
 #### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue paham sampai sini kelompok pecundang dan pengangguran kalian fakta rah sah cangkeman ya hahahaha the checkmate forever 
 
