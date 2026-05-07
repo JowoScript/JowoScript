@@ -16,6 +16,8 @@
 </div>
 </div>
 
+#### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue
+
 #### Dari 2021 posisi gue sudah benar siapa senggol gue pasti gue bales kalian anak informatika. siapa failed proyek akan bayar hutang kalian bukan gue
 
 #### siapa failed proyek akan terlihat nantinya mampus bego bego dan perusahaan tidak berguna akan terlihat juga sudah jelas mereka bayar hutang kepada pemodal. mampus bego bego
