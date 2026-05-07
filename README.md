@@ -21,6 +21,8 @@
 </div>
 </div>
 
+#### kerja di perusahaan sendiri ya tidak nerima gaji sesuai judul perusahaan mana tidak berguna akan terlihat terus kedepannya 
+
 #### rumah sakit belum ada gue blacklist karena belum ada cari masalah selama ini. gue tinggal blacklist sistem bpjs kedepannya kalo ada rumah sakit kerja sama bpjs cari masalah sama gue kalo gue sakit. bpjs satu pintu kesehatan nasional ya baik baik. gue blacklist di produk gue buat itu hak gue yg rugi next generation pegawai bpjs tidak bisa transformasi sistem selama ini sistem bpjs ya putar disitu saja dulu. mikir 20 tahun kedepan kalo bego jangan cari masalah sama gue. rumah sakit tanpa bpjs itu sepi rumah sakit ya. banyak rumah sakit dan dokter berkembang karena bpjs ya siapa bayar obat dan dokter kalo bukan bpjs
 
 #### perusahaan masuk blacklist gue piye kabare kedepannya gelap mereka
