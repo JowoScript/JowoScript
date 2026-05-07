@@ -14,7 +14,7 @@
 	<br>
 	the value company trillion dollars 
 	<br>
-	Kalo miskin tidak punya uang untuk beli lisensi produk ya nonton saja 
+	sesuai judul ya
 	<br>
 	Introduction
 </strong>
