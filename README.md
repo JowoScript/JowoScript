@@ -21,7 +21,7 @@
 </div>
 </div>
 
-#### dollar dan euro naik terus sesuai omongan gue ya next dj nya suka nyanyi kepala nya putus pasti suka bacotin gue selama ini.
+#### dollar dan euro naik terus sesuai omongan gue ya next dj nya suka nyanyi kepala nya putus pasti suka bacotin gue selama ini. omongan gue di dengar di langit 7 baik baik
 
 #### gue boss di perusahaan sendirii jadi ngapain takut sama kalian
 
