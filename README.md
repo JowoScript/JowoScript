@@ -11,6 +11,7 @@
 </strong>
 <strong>
 	PT JowoScript Technology Indonesia
+	the value company trillion dollars 
 	Introduction
 </strong>
 </div>
