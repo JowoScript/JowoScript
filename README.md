@@ -16,7 +16,7 @@
 </div>
 </div>
 
-#### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue paham sampai sini kelompok pecundang dan pengangguran kalian fakta rah sah cangkeman ya
+#### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue paham sampai sini kelompok pecundang dan pengangguran kalian fakta rah sah cangkeman ya hahahaha the checkmate forever 
 
 #### Dari 2021 posisi gue sudah benar siapa senggol gue pasti gue bales kalian anak informatika. siapa failed proyek akan bayar hutang kalian bukan gue
 
