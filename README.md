@@ -21,7 +21,9 @@
 </div>
 </div>
 
-#### dollar dan euro naik terus gue bodo amat mampus kalian bego sih
+#### dollar dan euro naik terus gue bodo amat mampus kalian bego sih.
+
+#### gue boss di perusahaan sendirii jadi ngapain takut sama kalian
 
 #### perusahaan mana suka bohong ke gue selama ini gue diamkan terus dan dollar sampai euro naik terus ke rupiah
 
