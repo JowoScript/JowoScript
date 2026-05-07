@@ -255,6 +255,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 ### Support Technology with license business :
 <div align="justify">
 <ol>
+<li><b>Can restart or shutdown operation system in kingdom technology environment</b> with license business (note this only have key code)</li>
 <li>JowoScript programing language Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of native code technology for licensing business. This only for jowoscript programing language not for javascript programing language</li>
 <li>Kingdom Technology Environment Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of IDE technology for licensing business.</li>
 <li>Jowo Kingdom Machine Architecture, developer and designed by Muhammad Nurcahyo Pratomo in Java Island of Indonesia and will be the foundation pillar of backend programing language for licensing business.</li>
