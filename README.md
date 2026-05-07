@@ -18,7 +18,7 @@
 
 #### Dari 2021 posisi gue sudah benar siapa senggol gue pasti gue bales kalian anak informatika 
 
-#### siapa failed proyek akan terlihat nantinya mampus bego bego dan perusahaan tidak berguna akan terlihat juga sudah jelas mereka bayar hutang kepada pemodal 
+#### siapa failed proyek akan terlihat nantinya mampus bego bego dan perusahaan tidak berguna akan terlihat juga sudah jelas mereka bayar hutang kepada pemodal. mampus bego bego
 
 #### kelompok suka intimidasi gue selama ini semua data ada ya seperti reza, bagaz, Rizal, woko, dan seterusnya barisan pecundang dan pengangguran ya
 
