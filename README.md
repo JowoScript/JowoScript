@@ -19,6 +19,8 @@
 </div>
 </div> 
 
+#### Psikologi mau bertarung sama gue lebih pintar kelar kamu di masa depan
+
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
