@@ -19,7 +19,7 @@
 </div>
 </div> 
 
-#### Siapa kena pecat dan jadi pengangguran juga bukan gue ya dan perusahaan milik gue sendiri dan produk buat sendiri. Siapa senggol gue pasti gue bales lebih parah kedepannya 
+#### Siapa kena pecat dan jadi pengangguran juga bukan gue ya dan perusahaan milik gue sendiri dan produk buat sendiri. Siapa senggol gue pasti gue bales lebih parah
 
 #### Orang Psikologi mau bertarung sama gue lebih pintar kelar kamu orang psikologi di masa depan lihat siapa gue tekan selama ini orang goblok siapa selama ini dan low iq siapa selama ini. mainan gue siapa selama ini dan siapa jadi babu selama ini dan siapa jadi boss selama ini. Semakin lama semakin asik ya dan perusahaan siapa gagal bayar hutang 
 
