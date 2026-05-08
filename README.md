@@ -23,7 +23,7 @@
 <div>
 	<ul>
 <li>
-	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang dungu akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya. sudah banyak masuk media ya perusahaan tutup dan phk karena dungu akan terlihat terus di media online
+	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too.
 </li>
 		<li>
 			PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
@@ -38,8 +38,9 @@
 			Ownership company, directorship company, Software Architecture, Software Engineer and Software Developer at PT JowoScript Technology Indonesia for mothership product commercial. 
 		</li>
 		<li>Behind Hard Code Software architecture, Software Engineer and developer in product Kingdom Technology Environment, JowoScript programing language, Jowo Kingdom Machine and more</li>
-		<li> Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems. Biar mampus goblok goblok cari kerja makin susah dan pengusaha goblok goblok makin susah bersaing
+		<li> Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems.
 		</li>
+		<li>Lihat saja kedepannya perusahaan mana lagi tutup dan gagal bayar karena kalah bersaing waktu akan bicara ya.</li>
 	</ul>
 </div>
 
