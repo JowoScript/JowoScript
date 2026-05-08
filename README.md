@@ -23,6 +23,8 @@
 
 #### dollar dan euro naik terus sesuai omongan gue ya next dj nya suka nyanyi kepala nya putus pasti suka bacotin gue selama ini semua gue rekam di Facebook musiknya dari tahun 2021 sampai sekarang. Gue juga bodo amat ya waktu akan bicara 
 
+#### Mereka buat music merusak mental gue biar bunuh diri gue kalo gak kuat gantian siapa mati di akhir mampus kau dj
+
 #### gue boss di perusahaan sendirii jadi ngapain takut sama kalian
 
 #### perusahaan mana suka bohong ke gue selama ini gue diamkan terus dan dollar sampai euro naik terus ke rupiah
