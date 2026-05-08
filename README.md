@@ -26,9 +26,9 @@
 	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too.
 </li>
 		<li>
-			PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
+			PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk tidak butuh bantuan ya 
 		</li>
-		<li>PT JowoScript Technology Indonesia tidak menggunakan uang investor dan pemerintah selama ini buat produk sendiri. Baca harga kalo mau beli produk kalo mau nipu gue kalian akan jadi mainan gue di akhir ya. Kalo tidak punya uang untuk beli ya nonton saja karena produk palsu  jika kalian jual dari 2022 jowoscript ya dan tidak berlaku di new version sekarang</li>
+		<li>PT JowoScript Technology Indonesia tidak menggunakan uang investor dan pemerintah selama ini buat produk sendiri. Baca harga kalo mau beli produk kalo mau nipu gue kalian akan jadi mainan gue di akhir ya. Kalo tidak punya uang untuk beli ya nonton saja karena produk palsu  jika kalian jual dari 2022 jowoscript ya dan tidak berlaku di new version berbayar integration kingdom technology environment sekarang</li>
 	</ul>
 </div>	
 
