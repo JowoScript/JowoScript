@@ -19,65 +19,14 @@
 	Introduction
 </strong>
 </div>
-</div>
+</div> 
 
-#### hutang indonesia tembus 10 ribu triliun sekarang jadi santai gue pemerintah Indonesia kalo mau beli produk gue wajib tunduk aturan gue buat kalo tidak suka ya tidak usah beli. essy for me
-
-#### dollar dan euro naik terus sesuai omongan gue ya next dj nya suka nyanyi kepala nya putus pasti suka bacotin gue selama ini semua gue rekam di Facebook musiknya dari tahun 2021 sampai sekarang. Gue juga bodo amat ya waktu akan bicara 
-
-#### naik lebih dari 300 point dalam berapa bulan saja dollar ke rupiah
-
-#### Mereka buat music merusak mental gue biar bunuh diri gue kalo gak kuat gantian siapa mati di akhir mampus kau dj
-
-#### gue boss di perusahaan sendirii jadi ngapain takut sama kalian
-
-#### perusahaan mana suka bohong ke gue selama ini gue diamkan terus dan dollar sampai euro naik terus ke rupiah
-
-#### kerja di perusahaan sendiri ya tidak nerima gaji sesuai judul perusahaan mana tidak berguna akan terlihat terus kedepannya. harga produk gue buat itu gaji gue sebulan ya. gue bukan orang bodoh siapa tumbang jelas di danai duluan. kalo saingan gue pengangguran ya nonton saja tidak gratis produk gue kalo miskin apa lagi pensiun di pemerintahan 
-
-#### lulus sekolah dan universitas jadi pengangguran itu banyak seperti gue dulu di gitu in juga.
-
-#### gue dulu pengangguran saja uang selalu ada gimana begini mudah menghancurkan orang orang goblok dan perusahaan 
-
-#### gue pengangguran uang selalu ada mampus kau dj jadi sampah selamanya kasihan deh lu bego hidup lagi hahahaha 
-
-#### kabar cryptocurrency gimana masih laku apa hahaha 
-
-#### rumah sakit belum ada gue blacklist karena belum ada cari masalah selama ini. gue tinggal blacklist sistem bpjs kedepannya kalo ada rumah sakit kerja sama bpjs cari masalah sama gue kalo gue sakit. bpjs satu pintu kesehatan nasional ya baik baik. gue blacklist di produk gue buat itu hak gue yg rugi next generation pegawai bpjs tidak bisa transformasi sistem selama ini sistem bpjs ya putar disitu saja dulu. mikir 20 tahun kedepan kalo bego jangan cari masalah sama gue. rumah sakit tanpa bpjs itu sepi rumah sakit ya. banyak rumah sakit dan dokter berkembang karena bpjs ya siapa bayar obat dan dokter kalo bukan bpjs
-
-#### perusahaan masuk blacklist gue piye kabare kedepannya gelap mereka
-
-#### siapa kena bantai di akhir mampus bermasalah sama gue dan kepala siapa masuk karung untuk bukti syarat pembelian produk gue. siapa pengangguran mereka di akhir juga akan mati sendiri siapa tidak berguna. ngapain gue tidak tegaan mereka intimidasi gue juga begitu ya dari 2022 juga kejam jadi adil ya kejam di bales kejam. ya nonton saja itu termasuk syarat pembelian semakin lama siapa kena bantai bukan gue
-
-#### mau bertanding dj nya sama gue hidup serba ada ? lu mati dj jadi sampah di akhir pegang omongan gue ya paham. skill coding saja jahu sama gue seperti langit dan bumi paham sampai sini, lu itu bego dj sadar diri ya kalo bego miskin dan gue pintar sadar diri itu fakta siapa jadi sampah akan terlihat terus kedepannya seperti kalian dj selama ini banyak gaya waktu akan bicara terus
-
-#### Kalian juga tidak bisa kembangkan produk gue buat banyak gaya tapi goblok sok pintar dari gue paham sampai sini kelompok pecundang dan pengangguran kalian fakta rah sah cangkeman ya hahahaha the checkmate forever 
-
-#### Dari 2021 posisi gue sudah benar siapa senggol gue pasti gue bales kalian anak informatika. siapa failed proyek akan bayar hutang kalian bukan gue
-
-#### siapa failed proyek akan terlihat nantinya mampus bego bego dan perusahaan tidak berguna akan terlihat juga sudah jelas mereka bayar hutang kepada pemodal. mampus bego bego
-
-#### kelompok suka intimidasi gue selama ini semua data ada ya seperti reza, bagaz, Rizal, woko, dan seterusnya barisan pecundang dan pengangguran ya
-
-#### kelompok suka intimidasi gue lewat music di intimidasi balik mau tidak biar mampus kalian apa lagi sudah punya anak
-
-#### aturan gue tetap berlaku jelas gue tau suara siapa selama ini di music jeduk jeduk Facebook. harus mati ya mati orang buat music jeduk jeduk selama ini. selama masih hidup orang-orang nya buat music jeduk jeduk dan menyisipkan suara di Facebook ya atau nonton saja kalian bego bego dan dungu ya hahaha 
-
-#### buat music jeduk jeduk itu sengaja dan berkelompok gue tau dari awal. lebih dari satu orang mereka namanya berkelompok 
-
-#### siapa jadi pecundang dan pengangguran DJ kasihan betul hidup kamu HAHAHHA jadi babu selamanya kamu DJ mampus hahaha apa lagi sudah punya anak ya easy for me dan gue tau anaknya tinggal sama siapa gue bukan orang bodoh ya sudah masuk sekolah dasar ya dan algojo gue tunggu perintah gue kapan pun itu siap mental tidak kalian. terlihat biasa saja suka di rumah lebih bahaya paham ya. teman sekolah juga sama gue tau semua bermuka dua. karena goblok akan terlihat terus kedepannya dekat komplek sesuai judul ya yang jahu saja gue tau gimana hanya sekitaran gue ya. kalo tidak punya nyali itu jangan banyak gaya blayer blayer seperti anak ayam mampus pengangguran dan pecundang dan tidak produktif siapa selama ini. 
-
-##### mau dollar naik atau turun bukan kerjaan gue juga jadi bodo amat ya siapa goblok akan terlihat terus sama seperti kalian baca ya hahaha 
-
-#### belum update foto versi barunya gue karena kasihan lihat orang bego masalahnya sudah bego hidup lagi ya kamu DJ buat music di facebook semua di recording dan bisa download ya
-
-#### sesuai judul ya 
-
-#### kalo saingan gue pengangguran seperti dj nya biar mati sendiri mereka kelompok pecundang mampus hahahaha
-
-##### PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang dungu akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya. sudah banyak masuk media ya perusahaan tutup dan phk karena dungu akan terlihat terus di media online 
-
-#### PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
+#### PT JowoScript Technology Indonesia small talk
+<div>
+PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang dungu akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya. sudah banyak masuk media ya perusahaan tutup dan phk karena dungu akan terlihat terus di media online
+	<br><br>
+	PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
+</div>	
 
 #### Who Muhammad Nurcahyo Pratomo
 <div>
@@ -91,6 +40,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 	<br><br>
 	The free programing language don't have fundamental of law and easy to be hacking like a phishing (developer cloning website without owner permision) or anything the solution is my product deadlock phishing and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical  (different law and syntax code). The implicit fair the law by law and the legal by legal
 	<br><br>
+	Hutang indonesia tembus 10 ribu triliun sekarang jadi santai gue pemerintah Indonesia kalo mau beli produk gue wajib tunduk aturan gue buat kalo tidak suka ya tidak usah beli. essy for me
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Deep The Browser History
