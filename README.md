@@ -40,7 +40,7 @@
 		<li>Behind Hard Code Software architecture, Software Engineer and developer in product Kingdom Technology Environment, JowoScript programing language, Jowo Kingdom Machine and more</li>
 		<li> Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems.
 		</li>
-		<li>Lihat saja kedepannya perusahaan mana lagi tutup dan gagal bayar karena kalah bersaing waktu akan bicara ya karena minta pendanaan duluan belum tentu hebat ya.</li>
+		<li>Lihat saja kedepannya perusahaan mana lagi tutup dan gagal bayar karena kalah bersaing waktu akan bicara ya karena minta pendanaan duluan belum tentu hebat ya pegang omongan gue.</li>
 	</ul>
 </div>
 
