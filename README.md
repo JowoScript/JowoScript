@@ -21,7 +21,7 @@
 </div>
 </div>
 
-#### hutang indonesia tembus 10 ribu triliun sekarang jadi santai gue pemerintah Indonesia kalo mau beli produk gue wajib tunduk aturan gue
+#### hutang indonesia tembus 10 ribu triliun sekarang jadi santai gue pemerintah Indonesia kalo mau beli produk gue wajib tunduk aturan gue kalo tidak suka ya tidak usah beli. essy for me
 
 #### dollar dan euro naik terus sesuai omongan gue ya next dj nya suka nyanyi kepala nya putus pasti suka bacotin gue selama ini semua gue rekam di Facebook musiknya dari tahun 2021 sampai sekarang. Gue juga bodo amat ya waktu akan bicara 
 
