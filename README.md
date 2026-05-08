@@ -12,9 +12,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	the value company trillion dollars 
-	<br>
-	sesuai judul ya
+	the value company trillion dollars
 	<br>
 	Introduction
 </strong>
@@ -23,9 +21,14 @@
 
 #### PT JowoScript Technology Indonesia small talk
 <div>
-PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang dungu akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya. sudah banyak masuk media ya perusahaan tutup dan phk karena dungu akan terlihat terus di media online
-	<br><br>
-	PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
+	<ul>
+<li>
+	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too. Sesuai judul ya orang dungu akan bermunculan terus di dunia kerja dan perusahaan tidak berguna akan bermunculan terus ya. sudah banyak masuk media ya perusahaan tutup dan phk karena dungu akan terlihat terus di media online
+</li>
+		<li>
+			PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk 
+		</li>
+	</ul>
 </div>	
 
 #### Who Muhammad Nurcahyo Pratomo
