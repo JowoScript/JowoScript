@@ -218,6 +218,7 @@ Ownership company, directorship company, Software Architecture, Software Enginee
 ### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different)
 <div align="justify">
 <ol>
+	<li>Sudah pernah punya SIM atau SIM mati untuk Perpanjang Surat Izin Mengemudi wajib gratis seumur hidup berlakunya seperti KTP dan belum pernah punya SIM wajib bayar 
 	<li>If there is still war, become because provocateur is <b>cryptocurrency and gambling site influencer on social media for money</b>. that's way i blacklist cryptocurrency and gambling</li>
 	<li><b>It is strictly forbidden to wage war between countries without a clear reason based on the unity of nations and this is also i'm agree</b></li>
 	<li>The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical (different law and syntax code). The implicit fair the law by law and the legal by legal</li>
