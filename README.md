@@ -19,7 +19,7 @@
 </div>
 </div> 
 
-#### Psikologi mau bertarung sama gue lebih pintar kelar kamu di masa depan
+#### Orang Psikologi mau bertarung sama gue lebih pintar kelar kamu di masa depan lihat siapa gue tekan selama ini orang goblok siapa selama ini 
 
 #### PT JowoScript Technology Indonesia small talk
 <div>
