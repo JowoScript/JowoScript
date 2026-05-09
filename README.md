@@ -20,7 +20,7 @@
 </div>
 </div> 
 
-#### Bapak gue sakit saja gue yg urus ke IGD mau malam hari atau siang. biar paham kalian suka banyak bacot sama gue dan gue sakit urus sendiri itu bedanya banyak bacot sama gue
+#### Bapak gue sakit saja gue yg urus ke IGD mau malam hari atau siang. biar paham kalian suka banyak bacot sama gue dan gue sakit urus sendiri ke igd itu bedanya banyak bacot sama gue
 
 #### PT JowoScript Technology Indonesia small talk
 <div>
