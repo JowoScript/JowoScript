@@ -20,6 +20,8 @@
 </div>
 </div> 
 
+#### Bapak gue sakit saja gue yg urus ke IGD. biar paham kalian suka banyak bacot sama gue
+
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
