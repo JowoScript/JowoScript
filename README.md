@@ -20,6 +20,8 @@
 </div>
 </div> 
 
+#### Keluarga besar dari ibu dan bapak selama ini lagi ngamatin siapa bermasalah sama Muhammad Nurcahyo Pratomo. paham sampai sini singa tidur lebih berbahaya 
+
 #### pemerintah Indonesia gagal bayar hutang mentok kena embargo dan perusahaan mana lagi di Indonesia mau bermasalah sama gue dan aturan gue tidak akan berubah ya bahkan nambah lagi
 
 #### Embargo adalah larangan resmi dari pemerintah atau organisasi internasional untuk melakukan perdagangan (ekspor/impor) barang atau jasa tertentu dengan negara lain. 
