@@ -20,7 +20,7 @@
 </div>
 </div> 
 
-### file exe format kingdom technology environment, jowoscript dan seterusnya gue buat versi aslinya. perusahaan mana lagi sok pintar dari gue di akhir. sesuai judul gue buat perusahaan siapa tidak berguna akan terlihat oleh waktu dan perusahaan gue tetap move forward terus ya. tidak ada gratisan ya buatnya susah banget ya. gue lebih paham bisnis lu tidak beli juga masih bisa gue gunakan sendiri ya bisa bangun web enterprise pakai bahasa pemrograman gue buat sendiri, bangun sekolah sendiri sudah di jamin pakai produk bahasa baru gue berlisensi, banyak lagi lu tidak perlu tau ya dan perusahaan tidak berguna di danai selama ini di akhir akan mati ya pegang omongan gue.
+### file exe format kingdom technology environment, jowoscript dan seterusnya gue buat versi aslinya. perusahaan mana lagi sok pintar dari gue di akhir. sesuai judul gue buat perusahaan siapa tidak berguna akan terlihat oleh waktu dan perusahaan gue tetap move forward terus ya. tidak ada gratisan ya buatnya susah banget ya. gue lebih paham bisnis lu tidak beli juga masih bisa gue gunakan sendiri ya. kita lihat bertanding anak IT sudah pasti mati
 
 #### PT JowoScript Technology Indonesia small talk
 <div>
