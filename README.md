@@ -37,7 +37,7 @@
 		<li>Gaji dan tunjangan pegawai termasuk menghabiskan anggaran ya itu juga belum tentu ada hasilnya ya sampai sekarang</li>
 		<li>Buat website habiskan triliunan dan ai juga banyak menggunakan bahasa pemrograman gratisan ya siapa goblok selama ini jelas bukan gue ya</li>
 		<li>JowoScript, Kingdom Technology Environment, dan produk masih proses pembuatan oleh Muhammad Nurcahyo Pratomo hasil format adalah file exe produk aslinya dan tidak gratisan</li>
-		<li>Semua ada laporan keuangan dan audit keuangan di pemerintah jadi percuma kalo mau nipu gue ya dan anak muda goblok miskin agama tidak paham semua di catat oleh malaikat</li>
+		<li>Semua ada laporan keuangan dan audit keuangan di pemerintah jadi percuma kalo mau nipu gue ya dan kalian goblok miskin agama tidak paham semua di catat oleh malaikat jsdi gue tetap samtai</li>
 	</ul>
 </div>	
 
