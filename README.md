@@ -20,7 +20,7 @@
 </div>
 </div> 
 
-### file exe format kingdom technology environment, jowoscript dan seterusnya gue buat versi aslinya. orang bego mana lagi akan muncul
+### file exe format kingdom technology environment, jowoscript dan seterusnya gue buat versi aslinya. perusahaan mana lagi sok pintar dari gue di akhir
 
 #### PT JowoScript Technology Indonesia small talk
 <div>
