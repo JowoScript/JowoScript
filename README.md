@@ -20,7 +20,7 @@
 </div>
 </div> 
 
-#### Bapak gue sakit saja gue yg urus ke IGD mau malam hari atau siang. biar paham kalian suka banyak bacot sama gue dan gue sakit urus sendiri ke igd itu bedanya banyak bacot sama gue. Titik tertinggi manusia paham ya 
+### file exe format kingdom technology environment, jowoscript dan seterusnya gue buat versi aslinya. orang bego mana lagi akan muncul
 
 #### PT JowoScript Technology Indonesia small talk
 <div>
