@@ -33,6 +33,7 @@
 		<li>PT JowoScript Technology Indonesia tidak menggunakan uang investor dan pemerintah selama ini buat produk sendiri. Baca harga kalo mau beli produk kalo mau nipu gue kalian akan jadi mainan gue di akhir ya. Kalo tidak punya uang untuk beli ya nonton saja karena produk palsu  jika kalian jual dari 2022 jowoscript ya dan tidak berlaku di new version berbayar integration kingdom technology environment sekarang</li>
 		<li>Aturan di buat oleh Muhammad Nurcahyo Pratomo tetap berlaku jika mau beli produk dan tidak bisa di ganggu gugat oleh pihak manapun (ada hukuman mati ini aturan ya). Hukum kekal dan tetap. Siapa bego jadi sampah abadi setiap tahun nambah lulusan sekolah dan universitas. Muhammad Nurcahyo Pratomo juga santai ya siapa goblok juga</li>
 		<li>Siapa pun itu pemimpin pemerintahan nya selama tidak beli kalian akan nonton terus ya</li>
+		<li>Pemerintah tidak punya uang kenapa selama ini Nerima pegawai ya semua ada datanya dari 2011 keterima pegawai pemerintah jadi pns, polri dan TNI banyak ya so siapa goblok selama ini</li>
 	</ul>
 </div>	
 
