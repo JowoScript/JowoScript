@@ -38,7 +38,7 @@
 			PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk tidak butuh bantuan ya karena skill coding lu masih di bawah gue jahu ya fakta karena akan jadi beban gue nanti ya banyak nanya dan sebagainya nanti minta ajarin ke gue cara buat ini itu goblok namanya ya jadi beban bukan sesuai judul tidak butuh bantuan gue buat produk ya kalo merasa pintar dari gue mampu buat lebih tidak dari gue buat semua ada screenshot di Facebook ya buatan gue sendiri karena orang goblok itu banyak sok pintar di zaman now hasil copy and paste ya itu fakta. Semakin lama akan terlihat orang goblok di dunia kerja waktu akan bicara ya
 		</li>
 		<li>PT JowoScript Technology Indonesia tidak menggunakan uang investor dan pemerintah selama ini buat produk sendiri. Baca harga kalo mau beli produk kalo mau nipu gue kalian akan jadi mainan gue di akhir ya. Kalo tidak punya uang untuk beli ya nonton saja karena produk palsu  jika kalian jual dari 2022 jowoscript ya dan tidak berlaku di new version berbayar integration kingdom technology environment sekarang</li>
-		<li>Aturan di buat oleh Muhammad Nurcahyo Pratomo tetap berlaku jika mau beli produk dan tidak bisa di ganggu gugat oleh pihak manapun. Hukum kekal</li>
+		<li>Aturan di buat oleh Muhammad Nurcahyo Pratomo tetap berlaku jika mau beli produk dan tidak bisa di ganggu gugat oleh pihak manapun. Hukum kekal dan tetap. Siapa bego jadi sampah abadi setiap tahun namabh lulusan sekolah dan universitas</li>
 	</ul>
 </div>	
 
