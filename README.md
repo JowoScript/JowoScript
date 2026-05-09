@@ -1,3 +1,4 @@
+
 <div align="center">
 <a href="https://github.com/JowoScript" target="_self">
 <img src="Logo PT JowoScript Technology Indonesia 128x128.png" 
@@ -19,7 +20,7 @@
 </div>
 </div> 
 
-#### pemerintah Indonesia gagal bayar hutang mentok kena embargo dan perusahaan mana lagi di Indonesia mau bermasalah sama gue
+#### pemerintah Indonesia gagal bayar hutang mentok kena embargo dan perusahaan mana lagi di Indonesia mau bermasalah sama gue dan aturan gue tidak akan berubah ya bahkan nambah lagi
 
 #### Embargo adalah larangan resmi dari pemerintah atau organisasi internasional untuk melakukan perdagangan (ekspor/impor) barang atau jasa tertentu dengan negara lain. 
 
