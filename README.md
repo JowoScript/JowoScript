@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	the value company trillion squared dollars
+	waktu akan bicara terus kedepanya pegang omongan Muhammad Nurcahyo Pratomo.
 	<br>
 	Introduction
 </strong>
