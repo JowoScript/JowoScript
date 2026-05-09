@@ -20,6 +20,8 @@
 </div>
 </div> 
 
+#### 2029 akan terjadi perang besar politik antara MBG dan IKN selama ini masih dalam internal politik
+
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
