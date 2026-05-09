@@ -20,7 +20,7 @@
 </div>
 </div> 
 
-#### Masih banyak negara besar perang demi uang hahaha
+#### Masih banyak negara besar perang demi uang hahaha bukan urusan gue ini.
 
 #### pemerintah Indonesia gagal bayar hutang mentok kena embargo dan perusahaan mana lagi di Indonesia mau bermasalah sama gue dan aturan gue tidak akan berubah ya bahkan nambah lagi
 
