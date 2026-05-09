@@ -19,7 +19,7 @@
 </div>
 </div> 
 
-#### pemerintah Indonesia gagal bayar hutang mentok kena embargo 
+#### pemerintah Indonesia gagal bayar hutang mentok kena embargo dan perusahaan mana lagi di Indonesia mau bermasalah sama gue
 
 #### Embargo adalah larangan resmi dari pemerintah atau organisasi internasional untuk melakukan perdagangan (ekspor/impor) barang atau jasa tertentu dengan negara lain. 
 
