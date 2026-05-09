@@ -22,6 +22,8 @@
 
 #### 2029 akan terjadi perang besar politik antara MBG dan IKN selama ini masih dalam internal politik
 
+#### kelompoknya Prabowo vs kelompoknya jokowi sebenarnya lagi perang internal untuk 2029 menurut prediksi gue
+
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
