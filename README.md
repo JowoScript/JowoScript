@@ -49,7 +49,7 @@
 		<li> Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems.
 		</li>
 		<li>Lihat saja kedepannya perusahaan mana lagi tutup dan gagal bayar karena kalah bersaing waktu akan bicara ya karena minta pendanaan duluan belum tentu hebat ya pegang omongan gue.</li>
-		<li>Gue dulu di persulit test masuk kerja gantian gantian siapapun wajib beli produk gue siapa tidak berguna akan terlihat terus di dunia kerja ya> Siapa kena pecat di dunia kerja akkan terlihat terus kedepannya</li>
+		<li>Gue dulu di persulit test masuk kerja gantian siapapun wajib beli produk gue siapa tidak berguna akan terlihat terus di dunia kerja ya waktu akan bicara. Siapa kena pecat di dunia kerja akan terlihat terus kedepannya</li>
 	</ul>
 </div>
 
