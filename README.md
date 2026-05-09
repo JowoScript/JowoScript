@@ -19,8 +19,7 @@
 </strong>
 </div>
 </div> 
-
-### file exe format kingdom technology environment, jowoscript dan seterusnya gue buat versi aslinya. perusahaan mana lagi sok pintar dari gue di akhir. sesuai judul gue buat, perusahaan siapa tidak berguna akan terlihat oleh waktu dan kerja di pemerintahan selama ini hire pegawai terus siapa goblok buang anggaran tidak jelas 
+ 
 
 #### PT JowoScript Technology Indonesia small talk
 <div>
@@ -33,6 +32,7 @@
 		</li>
 		<li>PT JowoScript Technology Indonesia tidak menggunakan uang investor dan pemerintah selama ini buat produk sendiri. Baca harga kalo mau beli produk kalo mau nipu gue kalian akan jadi mainan gue di akhir ya. Kalo tidak punya uang untuk beli ya nonton saja karena produk palsu  jika kalian jual dari 2022 jowoscript ya dan tidak berlaku di new version berbayar integration kingdom technology environment sekarang</li>
 		<li>Aturan di buat oleh Muhammad Nurcahyo Pratomo tetap berlaku jika mau beli produk dan tidak bisa di ganggu gugat oleh pihak manapun (ada hukuman mati ini aturan ya). Hukum kekal dan tetap. Siapa bego jadi sampah abadi setiap tahun nambah lulusan sekolah dan universitas. Muhammad Nurcahyo Pratomo juga santai ya siapa goblok juga</li>
+		<li>Siapa pun itu pemimpin pemerintahan nya selama tidak beli kalian akan nonton terus ya</li>
 	</ul>
 </div>	
 
