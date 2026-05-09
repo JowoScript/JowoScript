@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	the value company trillion dollars
+	the value company trillion squared dollars
 	<br>
 	Introduction
 </strong>
