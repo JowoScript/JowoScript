@@ -34,6 +34,7 @@
 		<li>Aturan di buat oleh Muhammad Nurcahyo Pratomo tetap berlaku jika mau beli produk dan tidak bisa di ganggu gugat oleh pihak manapun (ada hukuman mati ini aturan ya). Hukum kekal dan tetap. Siapa bego jadi sampah abadi setiap tahun nambah lulusan sekolah dan universitas. Muhammad Nurcahyo Pratomo juga santai ya siapa goblok juga</li>
 		<li>Siapa pun itu pemimpin pemerintahan nya selama tidak beli kalian akan nonton terus ya</li>
 		<li>Pemerintah tidak punya uang kenapa selama ini Nerima pegawai ya semua ada datanya dari 2011 keterima pegawai pemerintah jadi pns, polri dan TNI banyak ya so siapa goblok selama ini. Nasi sudah jadi bubur siapa goblok ya</li>
+		<li>Gaji dan tunjangan pegawai termasuk menghabiskan anggaran ya itu juga belum tentu ada hasilnya ya sampai sekarang</li>
 	</ul>
 </div>	
 
