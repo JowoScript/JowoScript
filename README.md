@@ -36,7 +36,7 @@
 		<li>Pemerintah tidak punya uang kenapa selama ini Nerima pegawai ya semua ada datanya dari 2011 keterima pegawai pemerintah jadi pns, polri dan TNI banyak ya so siapa goblok selama ini. Nasi sudah jadi bubur siapa goblok ya</li>
 		<li>Gaji dan tunjangan pegawai termasuk menghabiskan anggaran ya itu juga belum tentu ada hasilnya ya sampai sekarang</li>
 		<li>Buat website habiskan triliunan dan ai juga banyak menggunakan bahasa pemrograman gratisan ya siapa goblok selama ini jelas bukan gue ya</li>
-		<li>JowoScript, Kingdom Technology Environment, dan produk masih proses pembuatan oleh Muhammad Nurcahyo Pratomo hasil format adalah file exe produk aslinya dan tidak gratisan</li>
+		<li>JowoScript, Kingdom Technology Environment, dan produk masih proses pembuatan oleh Muhammad Nurcahyo Pratomo hasil format adalah file exe produk aslinya butuh installer dan tidak gratisan</li>
 		<li>Semua ada laporan keuangan dan audit keuangan di pemerintah jadi percuma kalo mau nipu gue ya dan kalian goblok miskin ilmu agama tidak paham semua di catat oleh malaikat jadi percuma kalo mau nipu gue ya</li>
 	</ul>
 </div>	
