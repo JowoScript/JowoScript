@@ -35,7 +35,7 @@
 		<li>Siapa pun itu pemimpin pemerintahan nya selama tidak beli kalian akan nonton terus ya</li>
 		<li>Pemerintah tidak punya uang kenapa selama ini Nerima pegawai ya semua ada datanya dari 2011 keterima pegawai pemerintah jadi pns, polri dan TNI banyak ya so siapa goblok selama ini. Nasi sudah jadi bubur siapa goblok ya</li>
 		<li>Gaji dan tunjangan pegawai termasuk menghabiskan anggaran ya itu juga belum tentu ada hasilnya ya sampai sekarang</li>
-		<li>Buat website habiskan triliunan dan ai juga banyak menggunakan bahasa pemrograman gratisan ya siapa goblok selama ini jelas bukan gue ya</li>
+		<li>Buat website habiskan triliunan dan ai juga banyak menggunakan bahasa pemrograman gratisan ya siapa goblok selama ini jelas bukan (Muhammad Nurcahyo Pratomo) ya</li>
 		<li>JowoScript, Kingdom Technology Environment, Jowo Kingdom Machine, JML, JHTML dan produk masih proses pembuatan oleh Muhammad Nurcahyo Pratomo hasil format adalah file exe produk aslinya butuh installer dan tidak gratisan dan hanya Muhammad Nurcahyo Pratomo bisa kembangkan juga semua produknya</li>
 		<li>Semua ada laporan keuangan dan audit keuangan di pemerintah jadi percuma kalo mau nipu gue (Muhammad Nurcahyo Pratomo) ya dan kalian goblok miskin ilmu agama tidak paham semua di catat oleh malaikat jadi percuma kalo mau nipu gue (Muhammad Nurcahyo Pratomo) ya</li>
 	</ul>
@@ -50,7 +50,7 @@
 		<li>Behind Hard Code Software architecture, Software Engineer and developer in product Kingdom Technology Environment, JowoScript programing language, Jowo Kingdom Machine and more</li>
 		<li> Muhammad Nurcahyo Pratomo a part freelance jobs Artificial Intelligence @anonymous not bound by legal contract by systems.
 		</li>
-		<li>Lihat saja kedepannya perusahaan mana lagi tutup dan gagal bayar karena kalah bersaing waktu akan bicara ya karena minta pendanaan duluan belum tentu hebat ya pegang omongan gue.</li>
+		<li>Lihat saja kedepannya perusahaan mana lagi tutup dan gagal bayar karena kalah bersaing waktu akan bicara ya karena minta pendanaan duluan belum tentu hebat ya pegang omongan gue (Muhammad Nurcahyo Pratomo)</li>
 		<li>Gue (Muhammad Nurcahyo Pratomo) dulu di persulit test masuk kerja gantian siapapun wajib beli produk gue (Muhammad Nurcahyo Pratomo) siapa tidak berguna akan terlihat terus di dunia kerja ya waktu akan bicara. Siapa kena pecat di dunia kerja akan terlihat terus kedepannya</li>
 	</ul>
 </div>
