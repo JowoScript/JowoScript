@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>PT JowoSctipt Technology Indonesia dont have partnership distribution products with the permission legals from Muhammad Nurcahyo Pratomo. Note JavaScript is free no need distribution</li>
+		<li>PT JowoSctipt Technology Indonesia dont have partnership distribution products with the permission legals from Muhammad Nurcahyo Pratomo. Note JavaScript, TypeScript, etc is free no need distribution</li>
 <li>
 	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too.
 	</l>
