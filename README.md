@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Banyak bacot miskin, goblok hidup lagi tidak punya perusahaan, produk dan uang selama ini bukan gue ya dan semua itu ada rekaman di medsos ya video reels Facebook dan bisa gue download ya video reels random Facebook kalian</li>
+		<li>Banyak bacot miskin, goblok hidup lagi tidak punya perusahaan, produk dan uang selama ini bukan gue ya dan semua itu ada rekaman di medsos ya video reels Facebook dan bisa gue download ya video reels random Facebook kalian dan fakta di lapangan begitu ya</li>
 <li>
 	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too.
 	</l>
