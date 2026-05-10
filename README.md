@@ -24,10 +24,10 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Banyak bacot tidak punya perusahaan, produk dan uang selama ini bukan gue ya dan semua itu ada rekaman di medsos ya video reels Facebook dan bisa gue download ya video reels random</li>
 <li>
 	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too.
-</li>
-		<li>Banyak bacot tidak punya perusahaan, produk dan uang selama ini bukan gue ya</li>
+	</l>
 		<li>
 			PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk tidak butuh bantuan ya karena skill coding lu masih di bawah gue jahu ya fakta karena akan jadi beban gue nanti ya banyak nanya dan sebagainya nanti minta ajarin ke gue cara buat ini itu goblok namanya ya jadi beban bukan sesuai judul tidak butuh bantuan gue buat produk ya kalo merasa pintar dari gue mampu buat lebih tidak dari gue buat semua ada screenshot di Facebook ya buatan gue sendiri karena orang goblok itu banyak sok pintar di zaman now hasil copy and paste ya itu fakta. Semakin lama akan terlihat orang goblok di dunia kerja waktu akan bicara ya
 		</li>
