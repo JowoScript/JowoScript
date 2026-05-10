@@ -44,7 +44,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Biaya sekolah dan universitas dari dulu naik dari zaman gue sekolah juga begituh terus biarkan saja tidak sekolah biar makin goblok. Produk gue buat bisa dirikan sekolah sendiri tidak gratis emang mereka yayasan doang bisa</li>
+		<li>Biaya sekolah dan universitas dari dulu naik dari zaman gue sekolah juga begituh terus biarkan saja tidak sekolah biar makin goblok. Produk gue buat bisa dirikan sekolah sendiri tidak gratis emang mereka yayasan doang bisa. Sekolah Informatika dan universitas semua menggunakan gratisan jadi beda level sama produk gue buat nanti</li>
 		<li>Semakin lama akan terlihat terus siapa goblok di dunia kerja dan perusahaan mana tidak berguna akan bermunculan terus kedepannya. Lulusan sekolah setiap tahun nambah selama belum beli ya nonton juga mereka</li>
 		<li>
 			Ownership company, directorship company, Software Architecture, Software Engineer and Software Developer at PT JowoScript Technology Indonesia for mothership product commercial. 
