@@ -44,7 +44,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Biaya sekolah dan universitas naik terus biarkan saja tidak sekolah biar makin goblok</li>
+		<li>Biaya sekolah dan universitas dari dulu naik terus biarkan saja tidak sekolah biar makin goblok</li>
 		<li>Semakin lama akan terlihat terus siapa goblok di dunia kerja dan perusahaan mana tidak berguna akan bermunculan terus kedepannya. Lulusan sekolah setiap tahun nambah selama belum beli ya nonton juga mereka</li>
 		<li>
 			Ownership company, directorship company, Software Architecture, Software Engineer and Software Developer at PT JowoScript Technology Indonesia for mothership product commercial. 
