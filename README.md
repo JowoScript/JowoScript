@@ -44,6 +44,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Semakin lama akan terlihat terus siapa goblok di dunia kerja</li>
 		<li>
 			Ownership company, directorship company, Software Architecture, Software Engineer and Software Developer at PT JowoScript Technology Indonesia for mothership product commercial. 
 		</li>
