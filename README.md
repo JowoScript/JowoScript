@@ -47,6 +47,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Harga lisensi mahal kenapa dan uang segitu banyak untuk apa nantinya oleh Muhammad Nurcahyo Pratomo jelas M Nurcahyo Pratomo lebih paham perputaran ekonomi dari pada bergelar doktor dan Professor</li>
 		<li>Perusahaan minta di danai duluan belum tentu beli produk PT JowoScript Technology Indonesia jadi kita lihat semakin lama siapa pailit bayar hutang</li>
 		<li>Mau mata uang asing naik atau turun bukan urusan Muhammad Nurcahyo Pratomo ya dan bukan kerjaan Muhammad Nurcahyo Pratomo juga ya. Siapa kena tekan selama ini orang bermasalah sama Muhammad Nurcahyo Pratomo mereka jelas akan mati sendiri atau berkelompok di akhir. Siapa goblok dan pintar ya</li>
 			<li>Pemerintah jika mau beli produk wajib ikutin aturan Muhammad Nurcahyo Pratomo tidak suka ya tidak usah beli gampang kan dan aturan di buat oleh Muhammad Nurcahyo Pratomo tidak bisa di ganggu gugat oleh pihak manapun baik itu konstitusi pemerintah dan parlementer nya</li>
