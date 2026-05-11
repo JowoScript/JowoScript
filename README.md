@@ -78,7 +78,7 @@
 ### Blacklist data is problematic with its creator based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) 
 <div align="justify">
 <ol>
-	<li>Badan Kepegawaian Negara persulit gue dulu test kerja</li>
+	<li>Badan Kepegawaian Negara persulit gue dulu test kerja lewat CAT berbasis komputer</li>
 	<li>Wikipedia delete my name  Muhammad Nurcahyo Pratomo article  and my company PT JowoScript Technology Indonesia article and my products article (proof archive internet) because i write my name article for biography history alone and my product and my company so i can blacklist too wikipedia in my product. this fair right then my product blacklist domain name server permanent for Wikipedia and no matter how expensive Wikipedia domain name thats be zero by me too thats website running in php i know. kenapa gue harus takut sama orang lebih goblok dari gue ya kalian bisa apa gue tanya persaingan makin berat kedepannya. Gimana produk komersial lainnya perusahaan komersial lainnya menampilkan di Wikipedia tidak di hapus ya</li>
 	<li>Cryptocurrency</li>
 	<li>Holywings Group</li>
