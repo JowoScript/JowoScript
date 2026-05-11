@@ -15,6 +15,8 @@
 	<br>
 	the hasta la vista baby hahahahaha 
 	<br>
+	DJ nya cangkeman meneh hahaha 
+	<br>
 	Introduction
 </strong>
 </div>
