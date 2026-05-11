@@ -45,6 +45,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Apa efek di masa depan jika kena blacklist dari Muhammad Nurcahyo Pratomo jelas ada ya satu mereka tidak akan berkembang dalam teknologi informasi apapun itu kedepannya, kedua mereka akan berputar disitu saja dalam inovasi kreatif, ketiga akan tertinggal pleh perubahan besar teknologi informasi dan seterusnya</li>
 		<li>Muhammad Nurcahyo Pratomo punya kekuasaan penuh blacklist instansi pemerintah, rumah sakit pemerintah atau swasta, perusahaan milik negara, perusahaan go publik, yayasan sekolah atau universitas milik swasta dan sekolah atau universitas milik pemerintah dalam produk PT JowoScript Technology Indonesia</li>
 		<li>Biaya sekolah dan universitas dari dulu naik dari zaman gue sekolah juga begituh terus biarkan saja tidak sekolah biar makin goblok. Produk gue buat bisa dirikan sekolah sendiri tidak gratis emang mereka yayasan doang bisa. Sekolah Informatika dan universitas semua menggunakan gratisan jadi beda level sama produk gue buat tidak gratis</li>
 		<li>Semakin lama akan terlihat terus siapa goblok di dunia kerja dan perusahaan mana tidak berguna akan bermunculan terus kedepannya. Lulusan sekolah setiap tahun nambah selama belum beli ya nonton juga mereka</li>
