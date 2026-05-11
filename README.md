@@ -13,9 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	the hasta la vista baby hahahahaha 
-	<br>
-	DJ nya cangkeman meneh hahaha 
+	Semakin lama semakin asik 
 	<br>
 	Introduction
 </strong>
