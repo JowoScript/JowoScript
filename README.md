@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	waktu akan bicara terus kedepanya pegang omongan Muhammad Nurcahyo Pratomo.
+	the hasta la vista baby hahahahaha 
 	<br>
 	Introduction
 </strong>
