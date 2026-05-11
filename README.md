@@ -205,6 +205,8 @@
 ### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different)
 <div align="justify">
 <ol>
+	<li>Tidak boleh menyekutukan Allah SWT</li>
+	<li>Tidak boleh ada pungutan liar meminta uang untuk kepentingan kelompok organisasi atau pribadi contoh meminta jatah keamananan untuk ruko atau pengusaha, dan seterusnya banyak contoh</li>
 	<li>Tidak boleh korupsi dan nepotisme secara tertutup atau terbuka</li>
 	<li>Sudah pernah punya SIM atau SIM mati untuk Perpanjang Surat Izin Mengemudi wajib gratis seumur hidup berlakunya seperti KTP berlaku seumur hidup tidak ada perpanjangan dan belum pernah punya SIM wajib bayar. Orang punya sim saja kena musib juga ada dari dulu apa bedanya untuk ladang cari uang selama ini padahal sudah di gaji oleh negara selama ini. bikin malu saja. Kenapa KTP buat tidak bayar dari dulu dan KTP tidak perpanjang sekalian 5 tahun sekali wajib bayar juga kalo mau adu argumentasi. Kalo mau nindas rakyat itu mudah ya KTP bayar kelar. SIM mati kena tilang cari uang namanya pemaksaan wajib bayar. Kalo punya SIM hidup ada jaminannya apa selamat orang berkendara di jalan ? tidak ada ya itu kesimpulan selama ini.
 	<li>If there is still war, become because provocateur is <b>cryptocurrency and gambling site influencer on social media for money</b>. that's way i blacklist cryptocurrency and gambling</li>
