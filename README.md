@@ -26,7 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Di lapangan realitas nya instansi pemerintah sudah banyak anggaran closed ya syukur goblok dan penganggaran</li>
+		<li>Di lapangan realitas nya instansi pemerintah sudah banyak anggaran closed ya syukur goblok dan pengangguran dan Muhammad Nurcahyo Pratomo tetap santai buat produk tidak pakai anggaran pemerintah selama ini</li>
 		<li>PT JowoSctipt Technology Indonesia dont have partnership distribution products with the permission legals from Muhammad Nurcahyo Pratomo. Note JavaScript, TypeScript, etc is free no need distribution and permission legals</li>
 <li>
 	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too.
