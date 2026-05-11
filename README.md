@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha syukur yg bego bego di dunia kerja kena pancal endase setiap hari hahahaha dan siapa jadi pengangguran juga bukan Muhammad Nurcahyo Pratomo selama ini
+	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha syukur yg bego bego di dunia kerja kena pancal endase setiap hari hahahaha dan siapa jadi pengangguran juga bukan Muhammad Nurcahyo Pratomo selama ini perusahaan milik sendiri dan produk buat sendiri 
 	<br>
 	Introduction
 </strong>
