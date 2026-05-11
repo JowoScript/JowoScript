@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Jendral jendral aktif suka main proyek di balik layar tidak ada kebal hukum ya kalo salah dan melanggar undang-undang</li>
+		<li>Jendral jendral aktif suka main proyek di balik layar tidak ada kebal hukum ya kalo salah dan melanggar undang-undang apa lagi merugikan negara ya</li>
 		<li>Perusahaan merugikan negara selama ini sikat saja semuanya</li>
 		<li>Di lapangan realitas nya instansi pemerintah sudah banyak anggaran closed ya syukur goblok dan pengangguran dan Muhammad Nurcahyo Pratomo tetap santai buat produk tidak pakai anggaran pemerintah selama ini</li>
 		<li>Kasus koruptor di Mendikbud tetap jalankan sampai sistem buat aplikasi ya dan orang orang IT nya terlibat juga itu semua di data saja pasti banyak kabur yakin gue hahaha kerugian negara wajib ganti mereka sita semua asset nya kelar</li>
