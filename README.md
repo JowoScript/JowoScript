@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha 
+	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha syukur yg bego bego di dunia kerja
 	<br>
 	Introduction
 </strong>
