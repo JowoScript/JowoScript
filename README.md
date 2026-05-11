@@ -47,6 +47,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Orang netral dan pro Muhammad Nurcahyo Pratomo berhak boleh blacklist orang bermasalah sama Muhammad Nurcahyo Pratomo untuk tumbal nantinya</li>
 		<li>Harga lisensi mahal kenapa dan uang segitu banyak untuk apa nantinya oleh Muhammad Nurcahyo Pratomo jelas M Nurcahyo Pratomo lebih paham perputaran ekonomi dari pada orang bergelar doktor ekonomi dan Professor Ekonomi. Selama belum beli ya siapa kena tekanan bukan Muhammad Nurcahyo Pratomo</li>
 		<li>Perusahaan minta di danai duluan belum tentu beli produk PT JowoScript Technology Indonesia jadi kita lihat semakin lama siapa pailit bayar hutang</li>
 		<li>Mau mata uang asing naik atau turun bukan urusan Muhammad Nurcahyo Pratomo ya dan bukan kerjaan Muhammad Nurcahyo Pratomo juga ya. Siapa kena tekan selama ini orang bermasalah sama Muhammad Nurcahyo Pratomo mereka jelas akan mati sendiri atau berkelompok di akhir. Siapa goblok dan pintar ya</li>
