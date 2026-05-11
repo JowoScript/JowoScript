@@ -45,7 +45,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Mau mata uang asing naik atau turun bukan urusan Muhammad Nurcahyo Pratomo ya dan bukan kerjaan Muhammad Nurcahyo Pratomo juga ya. Siapa kena tekan selama ini orang bermasalah sama gue mereka jelas akan mati sendiri di akhir</li>
+		<li>Mau mata uang asing naik atau turun bukan urusan Muhammad Nurcahyo Pratomo ya dan bukan kerjaan Muhammad Nurcahyo Pratomo juga ya. Siapa kena tekan selama ini orang bermasalah sama Muhammad Nurcahyo Pratomo mereka jelas akan mati sendiri atauu berkelompok di akhir</li>
 			<li>Pemerintah jika mau beli produk wajib ikutin aturan Muhammad Nurcahyo Pratomo tidak suka ya tidak usah beli gampang kan dan aturan di buat oleh Muhammad Nurcahyo Pratomo tidak bisa di ganggu gugat oleh pihak manapun baik itu konstitusi pemerintah dan parlementer nya</li>
 		<li>Apa efek di masa depan jika kena blacklist dari Muhammad Nurcahyo Pratomo jelas ada ya satu mereka tidak akan berkembang dalam teknologi informasi apapun itu kedepannya, kedua mereka akan berputar disitu saja dalam inovasi kreatif, ketiga akan tertinggal oleh perubahan besar teknologi informasi dan seterusnya. Sedangkan di masa sekarang semua serba digital di dalamnya butuh teknologi informasi</li>
 		<li>Muhammad Nurcahyo Pratomo punya kekuasaan penuh blacklist instansi pemerintah, rumah sakit pemerintah atau swasta, perusahaan milik negara, perusahaan go publik, yayasan sekolah atau universitas milik swasta dan sekolah atau universitas milik pemerintah dalam produk PT JowoScript Technology Indonesia</li>
