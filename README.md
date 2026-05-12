@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Muhammad Nurcahyo Pratomo tetap jowoscript technology forever mampus goblok goblok dan pengangguran kalian putar disitu saja ya tidak produktif dan berkembang</li>
+		<li>Muhammad Nurcahyo Pratomo tetap jowoscript technology forever mampus goblok goblok dan pengangguran kalian putar disitu saja ya tidak produktif dan berkembang apa lagi baru lulus sekolah 🤣</li>
 		<li>Prediksi Muhammad Nurcahyo Pratomo itu IKN Kalimantan Timur itu untuk kartu Joker nya politik 2029 ya siapa mau pindah ke IKN wahai PNS, Polri dan TNI salah pilih kalian akan pindah</li>
 		<li>Pemerintah Indonesia hutangnya banyak bukan urusan Muhammad Nurcahyo Pratomo siapa berhutang presiden selama ini kepada negara-negara. Pemerintah Indonesia kalo mau beli produk Muhammad Nurcahyo Pratomo ya pemerintah Indonesia wajib hukumnya tunduk apapun jenisnya baik itu perdata, pidana, dan seterusnya oleh aturan hukum Muhammad Nurcahyo Pratomo. Selama ini belum beli juga pemerintah Indonesia jadi biarkan saja hutang Indonesia naik</li>
 		<li>Jendral jendral aktif suka main proyek di balik layar tidak ada kebal hukum ya kalo salah dan melanggar undang-undang apa lagi merugikan negara ya</li>
