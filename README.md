@@ -202,7 +202,7 @@
 <li>SEJAUH YANG DIIZINKAN OLEH HUKUM SETEMPAT, KAMI MENGECUALIKAN JAMINAN TERSIRAT APA PUN, TERMASUK KELAYAKAN UNTUK DIPERDAGANGKAN, KUALITAS YANG MEMUASKAN, KESESUAIAN UNTUK TUJUAN TERTENTU, KECAKAPAN USAHA, DAN KETIADAAN PELANGGARAN.</li>
 </ul>
 
-### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label PT JowoScript Technology Indonesia
+### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label powered PT JowoScript Technology Indonesia so who stupid until now
 <div align="justify">
 <ol>
 	<li>Siapa buat music jeduk jeduk dari 2021 sampai sekarang harus mati manusia nya apa di share Facebook Muhammad Nurcahyo Pratomo karena menyinggung selama ini</li>
