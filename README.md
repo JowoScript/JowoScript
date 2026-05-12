@@ -205,6 +205,7 @@
 ### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label PT JowoScript Technology Indonesia
 <div align="justify">
 <ol>
+	<li>Siapa buat music jeduk jeduuk dari 2021 sampai sekarang harus mati apa di share Facebook Muhammad Nurcahyo Pratomo karena menyinggung selama ini</li>
 	<li>Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing</li>
 	<li>Tidak boleh ada pungutan liar meminta uang untuk kepentingan kelompok organisasi atau pribadi contoh meminta jatah keamananan untuk ruko atau pengusaha, dan seterusnya banyak contoh</li>
 	<li>Tidak boleh korupsi dan nepotisme secara tertutup atau terbuka</li>
