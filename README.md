@@ -274,7 +274,7 @@
 </ol>
 </div>
 
-### Support Technology with license business :
+### Support Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
 <div align="justify">
 <ol>
 <li><b>Can restart or shutdown operation system in kingdom technology environment</b> with license business (note this only have key code)</li>
