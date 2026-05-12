@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Pemerintah Indonesia hutangnya banyak bukan urusan Muhammad Nurcahyo Pratomo siapa berhutang presiden selama ini kepada negara-negara. Pemerintah Indonesia kalo mau beli produk Muhammad Nurcahyo Pratomo ya pemerintah Indonesia wajib hukumnya tunduk oleh aturan Muhammad Nurcahyo Pratomo. Selama ini belum beli juga pemerintah Indonesia jadi biarkan saja hutang Indonesia naik</li>
+		<li>Pemerintah Indonesia hutangnya banyak bukan urusan Muhammad Nurcahyo Pratomo siapa berhutang presiden selama ini kepada negara-negara. Pemerintah Indonesia kalo mau beli produk Muhammad Nurcahyo Pratomo ya pemerintah Indonesia wajib hukumnya tunduk apapun jenisnya oleh aturan hukum Muhammad Nurcahyo Pratomo. Selama ini belum beli juga pemerintah Indonesia jadi biarkan saja hutang Indonesia naik</li>
 		<li>Jendral jendral aktif suka main proyek di balik layar tidak ada kebal hukum ya kalo salah dan melanggar undang-undang apa lagi merugikan negara ya</li>
 		<li>Perusahaan merugikan negara selama ini sikat saja semuanya</li>
 		<li>Di lapangan realitas nya instansi pemerintah sudah banyak anggaran closed ya syukur goblok dan pengangguran dan Muhammad Nurcahyo Pratomo tetap santai buat produk tidak pakai anggaran pemerintah selama ini</li>
