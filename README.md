@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Selama ini masih terbentur sama hukum di Indonesia jadi santai Muhammad Nurcahyo Pratomo kalo di beli wajib baca ya di bawah. selama ini blacklist saja bermasalah sama Muhammad Nurcahyo Pratomo or tommy</li>
+		<li>Selama ini masih terbentur sama hukum di Indonesia jadi santai Muhammad Nurcahyo Pratomo kalo di beli wajib baca ya di bawah. selama ini blacklist saja bermasalah sama Muhammad Nurcahyo Pratomo or tommy paham sampai sini</li>
 		<li>Selama ini Muhammad Nurcahyo Pratomo tidak merugikan (Maling uang kalian juga tidak) dan di rugikan Muhammad Nurcahyo Pratomo selama ini siapa nyerang dan bermasalah pasti di blacklist dulu dan eksekusi nya nanti kalo mau beli termasuk musik jeduk jeduk di medsos lihat saja nanti siapa penyusup dan intimidasi lewat music semua di sengaja. Aturan Muhammad Nurcahyo Pratomo tetap berlaku kalo mau beli. Hukuman mati ada di aturan Muhammad Nurcahyo Pratomo</li>
 		<li>Muhammad Nurcahyo Pratomo tetap jowoscript technology forever mampus goblok goblok dan pengangguran kalian putar disitu saja ya tidak produktif dan berkembang apa lagi baru lulus sekolah makin berat ya persaingan itu jelas. biar pada mati dulu bermasalah sama Muhammad Nurcahyo Pratomo</li>
 		<li>Prediksi Muhammad Nurcahyo Pratomo itu IKN Kalimantan Timur itu untuk kartu Joker nya politik 2029 ya siapa mau pindah ke IKN wahai PNS, Polri dan TNI salah pilih kalian akan pindah</li>
