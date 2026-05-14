@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha kalian kira biat music tidak bisa di track siapa buat
+	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha kalian kira biat music dan menyisip kan suara di music tidak bisa di track siapa buat. Kalo bego itu jangan di publikasikan ya
 	<br>
 	Introduction
 </strong>
