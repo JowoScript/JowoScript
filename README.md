@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha kalian kira buat music dan menyisip kan suara di music tidak bisa di track siapa buat. Kalo bego itu jangan di publikasikan ya kalian contoh suara reza betul ya mau bohong satu keluarga kalian mati kena musibah ya
+	Semakin lama semakin asik bales dendam gue itu nyata siapa goblok selama ini hahaha kalian kira buat music dan menyisip kan suara di music tidak bisa di track siapa buat. Kalo bego itu jangan di publikasikan ya kalian contoh suara reza betul ya mau bohong satu keluarga kalian mati kena musibah ya dan siapa nyuruh buat music selama ini tidak ada ya
 	<br>
 	Introduction
 </strong>
