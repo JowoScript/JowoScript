@@ -13,6 +13,8 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
+	Mau dollar naik tidak ngaruh ke gue ya hahaha siapa pusing pengusaha butuh dollar
+	<br><br>
 	Kingdom Technology Environment is not free too. Bales dendam siapa goblok hello. Gue tidak butuh gelar doktor atau master ya. gue juga tidak butuh beasiswa karena goblok di dunia kerja akan terlihat terus ya. Tidak gratisan jelas produk gue buat. Cukup gelar sarjana tapi skill Professor 
 	<br><br>
 	Universitas tidak punya uang untuk beli kingdom technology environment ya nonton di akhir. penting apa bagi gue gelar doktor dan master gue tanya ? tidak penting ya karena kerja di pemerintahan kalo naik pangkat butuh gelar tinggi biar keren jadi kalo goblok tetap goblok
