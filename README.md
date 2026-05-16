@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Mau dollar naik tidak ngaruh ke gue ya hahaha siapa pusing pengusaha butuh mata uang asing. Kalian kerja di luar negeri kalo goblok tetap saja sengsara ya
+	Mau dollar naik tidak ngaruh ke gue ya hahaha siapa pusing pengusaha butuh mata uang asing. Kalian kerja di luar negeri kalo goblok dan tidak ada skill tetap saja sengsara ya
 	<br><br>
 	Kingdom Technology Environment is not free too. Bales dendam siapa goblok hello. Gue tidak butuh gelar doktor atau master ya. gue juga tidak butuh beasiswa karena goblok di dunia kerja akan terlihat terus ya. Tidak gratisan jelas produk gue buat. Cukup gelar sarjana tapi skill Professor 
 	<br><br>
