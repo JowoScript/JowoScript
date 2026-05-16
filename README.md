@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br>
-	Kingdom Technology Environment is not free too. Bales dendam siapa goblok hello
+	Kingdom Technology Environment is not free too. Bales dendam siapa goblok hello. Gue tidak butuh gelar doktor atau master ya. tidak gratisan jelas produk gue buat
 	<br>
 	Introduction
 </strong>
