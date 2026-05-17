@@ -13,13 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Mau dollar naik tidak ngaruh ke gue ya hahaha siapa pusing pengusaha butuh mata uang asing. pengusaha eksportir barang pakai uang asing juga untung banyak mereka kalian saja bego tidak tau. Kalian kerja di luar negeri kalo goblok dan tidak ada skill tetap saja sengsara ya pasti kena pancal endase setiap hari ya kalian itu resiko dunia kerja ya. emang ada di dunia kerja itu enak gue tanya ? pengalaman anak bayi gue ya mampus kalian
-	<br><br>
-	Kalo goblok dan pengangguran biarkan saja mereka mikir sendiri biasa di manja di kasih modal duluan mau tau hasilnya gimana kalo pailit itu resiko kalian emang gampang bayar hutang dari pemodal. karena goblok itu akan terlihat terus kedepannya kalo gue pintar mampu buat sendiri ya beda kelas ya. biasa copy and paste API Ai juga akan terlihat siapa goblok tidak ada skill ya
-	<br><br>
-	Kingdom Technology Environment is not free too. Bales dendam siapa goblok hello. Gue tidak butuh gelar doktor atau master ya. gue juga tidak butuh beasiswa karena goblok di dunia kerja akan terlihat terus ya. Tidak gratisan jelas produk gue buat. Cukup gelar sarjana tapi skill Professor 
-	<br><br>
-	Universitas swasta atau negeri tidak punya uang untuk beli kingdom technology environment ya nonton di akhir itu resikonya ya. penting apa bagi gue gelar doktor dan master gue tanya ? tidak penting ya karena kerja di pemerintahan kalo naik pangkat butuh gelar tinggi biar keren jadi kalo goblok tetap goblok
+	Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini 
 	<br><br>
 	Introduction
 </strong>
