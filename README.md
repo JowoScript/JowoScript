@@ -15,7 +15,7 @@
 	<br><br>
 	Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini 
 	<br><br>
-Ibu gue mengajar dulu gue di persulit dan di remehkan gantian siapa rata ya paham sampai sini pengusaha mana lagi pailit nantinya dan siapa goblok selama ini
+Ibu gue mengajar dulu gue di persulit dan di remehkan gantian siapa rata ya paham sampai sini pengusaha mana lagi pailit dan siapa goblok selama ini.
 	<br><br>
 	Introduction
 </strong>
