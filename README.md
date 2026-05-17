@@ -15,6 +15,8 @@
 	<br><br>
 	Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini 
 	<br><br>
+Ibu gue mengajar dulu gue di persulit dan remehkan gantian siapa rata ya 
+	<br><br>
 	Introduction
 </strong>
 </div>
