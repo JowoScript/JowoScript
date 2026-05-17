@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Mau dollar naik tidak ngaruh ke gue ya hahaha siapa pusing pengusaha butuh mata uang asing. Kalian kerja di luar negeri kalo goblok dan tidak ada skill tetap saja sengsara ya pasti kena pancal endase setiap hari ya kalian itu resiko dunia kerja ya. emang ada di dunia kerja itu enak gue tanya ? pengalaman anak bayi gue ya mampus kalian
+	Mau dollar naik tidak ngaruh ke gue ya hahaha siapa pusing pengusaha butuh mata uang asing. pengusaha eksportir pakai uang asing juga untung mereka. Kalian kerja di luar negeri kalo goblok dan tidak ada skill tetap saja sengsara ya pasti kena pancal endase setiap hari ya kalian itu resiko dunia kerja ya. emang ada di dunia kerja itu enak gue tanya ? pengalaman anak bayi gue ya mampus kalian
 	<br><br>
 	Kalo goblok dan pengangguran biarkan saja mereka mikir sendiri biasa di manja di kasih modal duluan mau tau hasilnya gimana kalo pailit itu resiko kalian emang gampang bayar hutang dari pemodal. karena goblok itu akan terlihat terus kedepannya kalo gue pintar mampu buat sendiri ya beda kelas ya. biasa copy and paste API Ai juga akan terlihat siapa goblok tidak ada skill ya
 	<br><br>
