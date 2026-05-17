@@ -191,27 +191,27 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Kingdom Machine or JKM History Small talk
 <div>
-	I'm alone behind Code alone Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with knowledge. Build by end to end encryption. not free product 
+	I'm alone behind Code alone Jowo Kingdom Machine or JKM until now, Jowo Kingdom Machine or JKM Build first 2024 until now and build with knowledge. Build by end to end encryption biar mampus kalian tidak bisa mencuri. not free product.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JXML and JHTML History Small talk
 <div>
-	I'm alone behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with knowledge. Build by end to end encryption. not free product 
+	I'm alone behind Code JXML and JHTML until now, JXML and JHTML Build first 2025 until now and build with knowledge. Build by end to end encryption biar mampus kalian tidak bisa mencuri. not free product.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Jowo Object Notation History Small talk
 <div>
-	I'm alone behind Code Jowo Object Notation until now, Jowo Object Notation Build first 2025 until now and build with knowladge. Build by end to end encryption. not free product 
+	I'm alone behind Code Jowo Object Notation until now, Jowo Object Notation Build first 2025 until now and build with knowladge. Build by end to end encryption biar mampus kalian tidak bisa mencuri. not free product.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro JowoScript and JS3 History Small talk
 <div>
-	I'm alone behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with knowladge. Build by end to end encryption. not free product 
+	I'm alone behind Code JowoScript and JS3 until now, JowoScript and JS3 Build first 2021 until now and build with knowladge. Build by end to end encryption biar mampus kalian tidak bisa mencuri. not free product.
 </div>
 
 ### Muhammad Nurcahyo Pratomo Intro Kingdom Technology Environment History Small talk
 <div>
-	I'm alone behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with knowledge. Then I changed the name to Kingdom Technology Environment in 2026. Build by end to end encryption. not free product 
+	I'm alone behind Code Kingdom Studio until now, Kingdom Studio Build first 2025 until now and build with knowledge. Then I changed the name to Kingdom Technology Environment in 2026. Build by end to end encryption biar mampus kalian tidak bisa mencuri. not free product.
 </div>
 
 ### Jaminan Produk (Jika sudah beli)
