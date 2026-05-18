@@ -24,6 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini</li>
 		<li>Perusahaan mana lagi pailit ke pemodal tahun 2026 ya</li>
 		<li>Kingdom Technology Environment not support Artificial Intelligence for new programing language because commercial products easy talk baby hahahaha. why not support Ai in IDE Kingdom Technology Environment simple answer your must learn not like kids copy and paste. Sesuai judul semakin lama orang goblok di dunia kerja akan bermunculan terus mau kerja di pemerintahan atau swasta waktu akan bicara. Kalo saingan gue pengangguran atau pengusaha sampai mati kalian tidak akan mampu buat ya itu resiko kalo miskin tidak punya uang untuk beli ya nonton saja. Kalo mau nipu gue jadi mainan gue di akhir sudah paham skill coding gue jahu berbeda ya.</li>
 		<li>New capabilities in kingdom technology environment having start and stop JavaScript and V8 machines or (JavaScript and WebAssembly engine) My note only IN OS SO YOUR CANNOT EITHER TO OTHER HOST so the machine main no conflicts to other host and only stupid people propaganda to me until now. only in kingdom technology environment fiture interface. cangkem boso English sek biar goblok goblok bermunculan terus di dunia kerja</li>
