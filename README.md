@@ -13,7 +13,9 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini 
+	Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini
+	<br><br>
+	Kalo goblok dan pengangguran itu resiko kalian gue juga dulu digituin 
 	<br><br>
 	Data wanita lonte belum gue sebar saja di Facebook banyak gaya dekat rumah bocil bocil ye
 	<br><br>
