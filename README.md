@@ -21,7 +21,7 @@
 	<br><br>
 	Tidak gratisan produk perusahaan gue sendiri biar mampus bego dan goblok. mau beli lisensi produk perusahaan gue sendiri tinggal gue countdown by serial number siapa goblok selama ini. perusahaan gue sendiri juga tidak nerima lowongan kerja biar goblok jadi pengangguran abadi judulnya saja bales dendam ya biar mampus persulit gue dulu
 	<br><br>
-	Data wanita lonte belum gue sebar saja di Facebook banyak gaya dekat rumah bocil bocil ye
+	Data wanita lonte belum gue sebar saja di Facebook banyak gaya dekat rumah bocil bocil ye dari foto semua ada ya
 	<br><br>
 	Introduction
 </strong>
