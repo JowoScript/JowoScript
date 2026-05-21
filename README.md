@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja merasa paling pintar gimana kabarnya perusahaan nya sekarang. jika alesan aturan so im the rules too in my company and my product. mereka kalo tidak bisa buat produk lebih dari gue paatenin wae</li>
+		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja merasa paling pintar gimana kabarnya perusahaan nya sekarang. jika alesan aturan so im the rules too in my company and my product dan modal sendiri ya. mereka kalo tidak bisa buat produk lebih dari gue paatenin wae</li>
 		<li>Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini</li>
 		<li>Perusahaan mana lagi pailit ke pemodal tahun 2026 ya</li>
 		<li>Kingdom Technology Environment not support Artificial Intelligence for new programing language because commercial products easy talk baby hahahaha. why not support Ai in IDE Kingdom Technology Environment simple answer your must learn not like kids copy and paste. Sesuai judul semakin lama orang goblok di dunia kerja akan bermunculan terus mau kerja di pemerintahan atau swasta waktu akan bicara. Kalo saingan gue pengangguran atau pengusaha sampai mati kalian tidak akan mampu buat ya itu resiko kalo miskin tidak punya uang untuk beli ya nonton saja. Kalo mau nipu gue jadi mainan gue di akhir sudah paham skill coding gue jahu berbeda ya.</li>
