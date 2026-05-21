@@ -15,6 +15,8 @@
 	<br><br>
 	Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini
 	<br><br>
+	siapa pailit proyek bukan perusahaan gue juga selama ini
+	<br><br>
 	Kalo goblok, miskin dan pengangguran itu resiko kalian gue juga dulu digituin jadi kenapa gue harus takut sama goblok dan pengangguran selama ini
 	<br><br>
 	Tidak gratisan produk perusahaan gue sendiri biar mampus bego dan goblok. mau beli lisensi produk perusahaan gue sendiri tinggal gue countdown by serial number siapa goblok selama ini. perusahaan gue sendiri juga tidak nerima lowongan kerja biar goblok jadi pengangguran abadi judulnya saja bales dendam ya biar mampus persulit gue dulu
