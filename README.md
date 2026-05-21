@@ -15,7 +15,7 @@
 	<br><br>
 	Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini
 	<br><br>
-	siapa pailit proyek bukan perusahaan gue juga selama ini
+	siapa pailit proyek bukan perusahaan gue juga selama ini dan siapa makan proyek di pemerintahan buat aplikasi selama ini bukan perusahaan gue sendiri juga jadi siapa goblok selama ini
 	<br><br>
 	Kalo goblok, miskin dan pengangguran itu resiko kalian gue juga dulu digituin jadi kenapa gue harus takut sama goblok dan pengangguran selama ini
 	<br><br>
