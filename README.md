@@ -26,6 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Alamat rumah kalian bermasalah sama gue semua ad di database mudah ratakan kalian nantinya kalo pemerintah jadi beli</li>
 		<li>Kerja di pemerintahan tidak berguna tetap saja kena pancal endase di dunia kerja hahaha mampus kalian hahahaha dan kalian kalo jadi pengangguran bisa apa gue tanya skill juga standar karena gue pengalaman kerja sama orang ya sudah pernah merasakan pahitnya dunia ya. Siapa goblok selama ini kasih gaji dan tunjangan profesi besar besar selama ini bukan gue ya</li>
 		<li><b>Level nya buat website doang dari dulu sampai sekarang siapa goblok dan miskin sebenarnya menggunakan bahasa pemrograman gratisan selama ini ✍️📚</b></li>
 		<li>Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor</li>
