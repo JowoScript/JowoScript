@@ -19,7 +19,7 @@
 	<br><br>
 	Perusahaan di modali hanya buat aplikasi website selama ini apa kabarnya ? siapa goblok selama ini 
 	<br><br>
-	Level HRD di perusahaan punya kuasa apa kalo mau bertanding sama gue lebel pemilik perusahaan sendiri 
+	Level HRD di perusahaan punya kuasa apa kalo mau bertanding sama gue level pemilik perusahaan sendiri 
 	<br><br>
 	Introduction
 </strong>
