@@ -26,7 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Susah sendiri selama ini kalo sukses tidak butuh queen atau pacar ya sorry. wanita zaman now mau enaknya doang biar mampus mereka juga apa lagi miskin dan goblok hanya pewaris doang. thats my rules too</li>
+		<li>Susah sendiri selama ini kalo sukses tidak butuh queen atau pacar ya sorry. wanita zaman now mau enaknya doang biar mampus mereka juga apa lagi miskin dan goblok hanya pewaris doang bangga. hanya cantik doang namanya lonte lebih banyak cantik. thats my rules too</li>
 		<li>Dekat komplek suka mantau gue biar mampus mereka jadi pengangguran abadi dan tidak produktif. Mau gratisan buat sendiri kalo goblok kalian malu sendiri di akhir. perusahaan siapa pailit bayar hutang ke pemodal juga bukan perusahaan gue ini ya</li>
 		<li>Publik figur selama ini hasil kerjanya apa mereka ya gaji + tunjangan besar dan berguna tidak untuk rakyanya kalo hanya bicara saja bukan level Muhammad Nurcahyo Pratomo</li>
 		<li>Jago coding banyak gaya selama ini belum tentu bisa jadi tukang bangunan seperti Muhammad Nurcahyo Pratomo dan M Nurcahyo Pratomo lebih paham buat bahasa pemrograman ya. beda level ya skill nya orang goblok dan pintar.</li>
