@@ -28,7 +28,7 @@
 	<ul>
 		<li>Level nya buat website doang dari dulu sampai sekarang siapa goblok sebenarnya ✍️📚</li>
 		<li>Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor</li>
-		<li><b>PT JowoScript Technology Indonesia modal sendiri dan produk buat sendiri dan tidak gratisan produk nya terbukti siapa goblok selama ini</b></li>
+		<li><b>PT JowoScript Technology Indonesia modal sendiri dan produk buat sendiri dan tidak gratisan produk nya terbukti siapa goblok dan miskin selama ini</b></li>
 		<li>Siapa goblok selama ini ya jaminan nya apa kalian mau beli produk perusahaan gue buat. Selama ini gue juga belum nerima jaminannya ya dari pemerintah Indonesia. Dana asing keluar dari Indonesia bukan urusan gue itu resiko selama gue tidak nerima jaminannya dari pemerintah Indonesia mau berbohong itu urusan kalian waktu akan bicara terus siapa rugi juga bukan gue ya harga produk perusahaan gue sendiri naik terus selama ini</li>
 		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja merasa paling pintar gimana kabarnya perusahaan nya sekarang. jika alesan aturan so im the rules too in my company and my product dan modal sendiri ya. mereka kalo tidak bisa buat produk lebih dari gue paatenin wae</li>
 		<li>Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini</li>
