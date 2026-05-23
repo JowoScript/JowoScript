@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Semakin lama semakin asik ya
+	Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor 
 	<br><br>
 	Introduction
 </strong>
