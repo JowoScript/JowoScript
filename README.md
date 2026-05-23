@@ -26,7 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Kerja di pemerintahan tidak berguna tetap saja kena pancal endase karena gue pengalaman kerja sama orang ya</li>
+		<li>Kerja di pemerintahan tidak berguna tetap saja kena pancal endase di dunia kerja hahaha karena gue pengalaman kerja sama orang ya</li>
 		<li><b>Level nya buat website doang dari dulu sampai sekarang siapa goblok dan miskin sebenarnya menggunakan bahasa pemrograman gratisan selama ini ✍️📚</b></li>
 		<li>Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor</li>
 		<li><b>PT JowoScript Technology Indonesia modal sendiri dan produk buat sendiri dan tidak gratisan produk nya terbukti siapa goblok dan miskin selama ini</b></li>
