@@ -15,6 +15,8 @@
 	<br><br>
 	Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor 
 	<br><br>
+	PT JowoScript Technology Indonesia modal sendiri dan produk buat sendiri
+	<br><br>
 	Introduction
 </strong>
 </div>
