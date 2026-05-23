@@ -26,7 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Publik figur selama ini hasil kerjanya apa mereka ya kalo hanya bicara saja bukan level Muhammad Nurcahyo Pratomo</li>
+		<li>Publik figur selama ini hasil kerjanya apa mereka ya dan berguna tidak untuk rakyanya kalo hanya bicara saja bukan level Muhammad Nurcahyo Pratomo</li>
 		<li>Jago coding banyak gaya selama ini belum tentu bisa jadi tukang bangunan seperti Muhammad Nurcahyo Pratomo dan M Nurcahyo Pratomo lebih paham buat bahasa pemrograman ya. beda level ya skill nya.</li>
 		<li>Tidak ada perlindungan untuk musuhnya Muhammad Nurcahyo Pratomo dan teman bermuka dua dan persulit dulu test dan bullying ya paham sampai sini. baru 4 tahun sudah banyak sampah terlihat berjatuhan dan semakin lama akan terlihat siapa emas asli dan emas busuk</li>
 		<li>Alamat rumah kalian bermasalah sama gue semua ada di database private mudah ratakan kalian nantinya kalo pemerintah jadi beli selama belum beli siapa kena siksa di dunia kerja bukan gue. orang bermasalah sama gue di Indonesia pindah keluar negeri malah mudah mereka mati sendiri di luar negeri. baru 4 tahun sudah banyak sampah terlihat berjatuhan</li>
