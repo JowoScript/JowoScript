@@ -26,7 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Tidak ada perlindungan untuk musuhnya Muhammad Nurcahyo Pratomo dan teman bermuka dua dan persulit dulu test dan bullying ya paham sampai sini</li>
+		<li>Tidak ada perlindungan untuk musuhnya Muhammad Nurcahyo Pratomo dan teman bermuka dua dan persulit dulu test dan bullying ya paham sampai sini. baru 4 tahun sudah banyak sampah terlihat berjatuhan </li>
 		<li>Alamat rumah kalian bermasalah sama gue semua ada di database private mudah ratakan kalian nantinya kalo pemerintah jadi beli selama belum beli siapa kena siksa di dunia kerja bukan gue. orang bermasalah sama gue di Indonesia pindah keluar negeri malah mudah mereka mati sendiri di luar negeri. baru 4 tahun sudah banyak sampah terlihat berjatuhan</li>
 		<li>Kerja di pemerintahan tidak berguna tetap saja kena pancal endase di dunia kerja hahaha mampus kalian hahahaha dan kalian kalo jadi pengangguran bisa apa gue tanya skill juga standar karena gue pengalaman kerja sama orang ya sudah pernah merasakan pahitnya dunia ya. Siapa goblok selama ini kasih gaji dan tunjangan profesi besar besar selama ini bukan gue ya</li>
 		<li><b>Level nya buat website doang dari dulu sampai sekarang siapa goblok dan miskin sebenarnya menggunakan bahasa pemrograman gratisan selama ini ✍️📚</b></li>
