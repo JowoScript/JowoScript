@@ -17,6 +17,8 @@
 	<br><br>
 	PT JowoScript Technology Indonesia modal sendiri dan produk buat sendiri dan tidak gratisan produk nya. sendiri skill codingnya lebih banyak jangan pernah bertanding kalo goblok kalian karena di modali pemerintah atau investor duluan belum tentu hebat bagi gue. Gaji dan tunjangan selama ini kalian dari siapa gue tanya kalo bukan dari pemerintah atau investor ya. kalo saingan gue pengusaha mandiri seperti gue mereka juga mikir skill coding kalo bukan selevel gue
 	<br><br>
+	Perusahaan di modali hanya buat aplikasi website selama ini apa kabarnya ? siapa goblok selama ini 
+	<br><br>
 	Introduction
 </strong>
 </div>
