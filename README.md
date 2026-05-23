@@ -26,7 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li><b>Level nya buat website doang dari dulu sampai sekarang siapa goblok dan miskin sebenarnya ✍️📚</b></li>
+		<li><b>Level nya buat website doang dari dulu sampai sekarang siapa goblok dan miskin sebenarnya menggunakan bahasa pemrograman gratisan selama ini ✍️📚</b></li>
 		<li>Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor</li>
 		<li><b>PT JowoScript Technology Indonesia modal sendiri dan produk buat sendiri dan tidak gratisan produk nya terbukti siapa goblok dan miskin selama ini</b></li>
 		<li>Siapa goblok selama ini ya jaminan nya apa kalian mau beli produk perusahaan gue buat. Selama ini gue juga belum nerima jaminannya ya dari pemerintah Indonesia. Dana asing keluar dari Indonesia bukan urusan gue itu resiko selama gue tidak nerima jaminannya dari pemerintah Indonesia mau berbohong itu urusan kalian waktu akan bicara terus siapa rugi juga bukan gue ya harga produk perusahaan gue sendiri naik terus selama ini</li>
