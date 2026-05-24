@@ -15,7 +15,7 @@
 	<br><br>
 	Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor
 	<br><br>
-	Perusahaan gue sendiri tidak gratis produk gue buat mampus bego dan pengangguran selama ini. Gue direktur di perusahaan gue sendiri baik baik kalian kepala kau gue injak yang ada. Mampus kerja sama perusahaan orang atau di pemerintahan setiap hari kena pancal endase
+	Perusahaan gue sendiri tidak gratis produk gue buat mampus bego dan pengangguran selama ini. Gue direktur di perusahaan gue sendiri baik baik kalian kepala kau gue injak yang ada. Mampus kerja sama perusahaan orang atau di pemerintahan setiap hari kena pancal endase. siapa jadi babu kalian kerja di pemerintahan dan perusahaan selama ini tidak bisa kerja itu resiko kena pecat kalian terus masuk blacklist 
 	<br><br>
 	Introduction
 </strong>
