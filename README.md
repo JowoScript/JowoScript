@@ -28,7 +28,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Siapa jadi babu selama ini kalian kerja di pemerintahan dan perusahaan orang selama ini tidak bisa kerja itu resiko kena pecat kalian terus masuk blacklist. Gue bicara apa adanya mampus. kejar target sekian sekian bukan babu namanya dan masuk wajib jam sekian telat potong gaji</li>
+		<li>Siapa jadi babu selama ini kalian kerja di pemerintahan dan perusahaan orang selama ini tidak bisa kerja itu resiko kena pecat kalian terus masuk blacklist. Gue bicara apa adanya mampus. kejar target sekian sekian bukan babu namanya dan masuk wajib jam sekian telat potong gaji dan lembur tidak di bayar itu kalian jadi babu bukan gue</li>
 		<li><b>Buat aplikasi mahal mahal di bayar menggunakan bahasa pemrograman gratisan mampus siapa goblok selama ini</b></li>
 		<li>Semakin lama setiap tahun nambah lulusan semakin asik siapa goblok abadi dan pengangguran abadi dan tidak produktif abadi kalian ya bukan gue</li>
 		<li><b>Kalo miskin sadar diri kalian tidak punya uang untuk beli produk ya nonton saja kalian siapa pengangguran dan tidak produktif selama ini kalian. banyak gaya tapi goblok itu banyak anak muda zaman now hasil kerja titipan orang tua dan sebagainya tapi skillnya standar saja</b></li>
