@@ -26,6 +26,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li><b>Buat aplikasi mahal mahal di bayar menggunakan bahasa pemrograman gratisan mampus siapa goblok selama ini</b></li>
 		<li>Semakin lama setiap tahun nambah lulusan semakin asik siapa goblok abadi dan pengangguran abadi dan tidak produktif abadi kalian ya bukan gue</li>
 		<li><b>Kalo miskin sadar diri kalian tidak punya uang untuk beli produk ya nonton saja kalian siapa pengangguran dan tidak produktif selama ini kalian. banyak gaya tapi goblok itu banyak anak muda zaman now hasil kerja titipan orang tua dan sebagainya tapi skillnya standar saja</b></li>
 		<li>Perusahaan di danai akhir tahun buat laporan keuangan siapa bilang untung tapi minus aslinya. siapa jadi sampah akan terlihat kedepannya terus</li>
