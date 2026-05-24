@@ -13,7 +13,9 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor 
+	Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor
+	<br>
+	Perusahaan milik sendiri bukan milik orang tua gue ya. biar paham kalian banyak gaya tapi goblok
 	<br><br>
 	Introduction
 </strong>
