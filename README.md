@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Kalo miskin sadar diri kalian tidak punya uang untuk beli produk ya nonton saja kalian siapa pengangguran dan tidak produktif selama ini kalian. banyak gaya tapi goblok itu banyak anak muda zaman now hasil kerja titipan dan sebagainya tapi skillnya standar saja</li>
+		<li>Kalo miskin sadar diri kalian tidak punya uang untuk beli produk ya nonton saja kalian siapa pengangguran dan tidak produktif selama ini kalian. banyak gaya tapi goblok itu banyak anak muda zaman now hasil kerja titipan orang tua dan sebagainya tapi skillnya standar saja</li>
 		<li>Perusahaan di danai akhir tahun buat laporan keuangan siapa bilang untung tapi minus aslinya. siapa jadi sampah akan terlihat kedepannya terus</li>
 		<li>Kalo punya nyali minta sama gue langsung sini mampus kalian jadi banci selamanya</li>
 		<li>Kalian hrd bermasalah sama gue dulu di pecat jadi pengangguran abadi paham dan skill kelebihan kalian apa gue tanya ? mudah di gantikan juga ya. Makan tuh psikotes dulu. mampu sendiri buat perusahaan dan produk sendiri hahaha apa lagi sudah zaman ai makin nyungsep kalian terlihat lebih gobloknya fakta ya mampus jadi robot selamanya hahaha dan iblis pun lebih pintar beribadahnya dulu so paham sampai sini kata kata gue orang orang munafik dan apa iblis di jamin masuk surga oleh allah gue tanya ? tidak ya</li>
