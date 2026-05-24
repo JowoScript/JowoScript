@@ -24,6 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Semakin lama setiap tahun nambah lulusan semakin asik siapa goblok dan penganggaran abadi dan tidak produktif</li>
 		<li>Kalo miskin sadar diri kalian tidak punya uang untuk beli produk ya nonton saja kalian siapa pengangguran dan tidak produktif selama ini kalian. banyak gaya tapi goblok itu banyak anak muda zaman now hasil kerja titipan orang tua dan sebagainya tapi skillnya standar saja</li>
 		<li>Perusahaan di danai akhir tahun buat laporan keuangan siapa bilang untung tapi minus aslinya. siapa jadi sampah akan terlihat kedepannya terus</li>
 		<li>Kalo punya nyali minta sama gue langsung sini mampus kalian jadi banci selamanya</li>
