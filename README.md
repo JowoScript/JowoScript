@@ -24,6 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Kalo miskin tidak punya uang untuk beli produk ya nonton saja kalian siapa pengangguran dan tidak produktif selama ini kalian</li>
 		<li>Perusahaan di danai akhir tahun buat laporan keuangan siapa bilang untung tapi minus aslinya. siapa jadi sampah akan terlihat kedepannya terus</li>
 		<li>Kalo punya nyali minta sama gue langsung sini mampus kalian jadi banci selamanya</li>
 		<li>Kalian hrd bermasalah sama gue dulu di pecat jadi pengangguran abadi paham dan skill kelebihan kalian apa gue tanya ? mudah di gantikan juga ya. Makan tuh psikotes dulu. mampu sendiri buat perusahaan dan produk sendiri hahaha apa lagi sudah zaman ai makin nyungsep kalian terlihat lebih gobloknya fakta ya mampus jadi robot selamanya hahaha dan iblis pun lebih pintar beribadahnya dulu so paham sampai sini kata kata gue orang orang munafik dan apa iblis di jamin masuk surga oleh allah gue tanya ? tidak ya</li>
@@ -32,7 +33,6 @@
 		<li>Publik figur selama ini hasil kerjanya apa mereka ya gaji + tunjangan besar dan berguna tidak untuk rakyanya kalo hanya bicara saja bukan level Muhammad Nurcahyo Pratomo</li>
 		<li>Jago coding banyak gaya selama ini belum tentu bisa jadi tukang bangunan seperti Muhammad Nurcahyo Pratomo dan M Nurcahyo Pratomo lebih paham buat bahasa pemrograman ya. beda level ya skill nya orang goblok dan pintar.</li>
 		<li>Tidak ada perlindungan untuk musuhnya Muhammad Nurcahyo Pratomo dan teman bermuka dua dan persulit dulu test dan bullying ya paham sampai sini. baru 4 tahun sudah banyak sampah terlihat berjatuhan dan semakin lama akan terlihat siapa emas asli dan emas busuk</li>
-		<li>Alamat rumah kalian bermasalah sama gue semua ada di database private mudah ratakan kalian nantinya kalo pemerintah jadi beli selama belum beli siapa kena siksa di dunia kerja bukan gue. orang bermasalah sama gue di Indonesia pindah keluar negeri malah mudah mereka mati sendiri di luar negeri. baru 4 tahun sudah banyak sampah terlihat berjatuhan</li>
 		<li>Kerja di pemerintahan tidak berguna tetap saja kena pancal endase di dunia kerja hahaha mampus kalian hahahaha dan kalian kalo jadi pengangguran bisa apa gue tanya skill juga standar karena gue pengalaman kerja sama orang ya sudah pernah merasakan pahitnya dunia ya. Siapa goblok selama ini kasih gaji dan tunjangan profesi besar besar selama ini bukan gue ya</li>
 		<li><b>Level nya buat website doang dari dulu sampai sekarang siapa goblok dan miskin sebenarnya menggunakan bahasa pemrograman gratisan selama ini ✍️📚</b></li>
 		<li>Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor</li>
