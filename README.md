@@ -15,7 +15,7 @@
 	<br><br>
 	Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor
 	<br><br>
-	Perusahaan milik sendiri dan modal sendiri bukan milik orang tua gue ya. biar paham kalian banyak gaya tapi goblok selama ini
+	Perusahaan gue sendiri tidak gratis produk gue buat mampus bego dan pengangguran selama ini
 	<br><br>
 	Introduction
 </strong>
