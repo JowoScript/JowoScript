@@ -17,6 +17,8 @@
 	<br><br>
 		gue juga santai ya semakin lama kalian menderita bukan gue apa lagi goblok, miskin banyak gaya. siapa pengangguran dan tidak produktif kalian
 	<br><br>
+	Gue takut sama pengangguran dan banyak gaya ? sorry siapa jadi sampah bukan gue cari uang susah syukur kalian
+	<br><br>
 	Introduction
 </strong>
 </div>
