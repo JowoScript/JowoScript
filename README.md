@@ -241,7 +241,7 @@
 <ol>
 	<li>Mahkamah Agung sebagai peninjau dan tangan kanannya Muhammad Nurcahyo Pratomo langsung untuk hukum berkelanjutan dan militer bagian ekseskusi</li>
 	<li>Aturan Hukum Muhammad Nurcahyo Pratomo tidak bisa di ganggu gugat oleh pihak manapun baik itu pidana, perdata, konsitusi, adat, undang undang, trakta, yurisprudensi  dan sejenisnya. Hukum tetap mutlak di atas apapun itu. the checkmate forever</li>
-	<li>Anak umur di bawah 18 tahun wajib kena proses hukum jika melanggar aturan</li>
+	<li>Anak umur di bawah 18 tahun wajib kena proses hukum jika melanggar aturan hukum itu resiko orang tuanya jika tidak bisa mendidik anaknya dengan benar</li>
 	<li>Siapa buat music jeduk jeduk dari 2021 sampai sekarang harus mati manusia nya apa di share Facebook Muhammad Nurcahyo Pratomo karena menyinggung selama ini</li>
 	<li>Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing</li>
 	<li>Tidak boleh ada pungutan liar meminta uang untuk kepentingan kelompok organisasi atau pribadi contoh meminta jatah keamananan untuk ruko atau pengusaha, dan seterusnya banyak contoh</li>
