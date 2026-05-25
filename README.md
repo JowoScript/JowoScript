@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Biar mereka cari uang sendiri goblok goblok selama ini mau minta di modali terus</li>
+		<li>Biar mereka cari uang sendiri goblok goblok selama ini mau minta di modali terus dan jangan lupa bayar hutang ke pemodal kalian gagal bayar mampus</li>
 		<li><b>Muhammad Nurcahyo Pratomo or tomi nama panggilannya direktur sendiri di perusahaan PT JowoScript Technology Indonesia baik baik kalian suka menghina dan remehkan selama ini bisa bisa kepala kau di injak yang ada. Sudah masuk blacklist Muhammad Nurcahyo Pratomo itu derita kalian</b></li>
 		<li>Semakin lama semakin asik baca baik baik kata katanya</li>
 		<li><b>Anak muda sudah tidak ada skill, miskin, pengangguran, goblok, masuk kerja lewat orang dalam, hidup dan banyak gaya akan terlihat terus kedepannya</b></li>
