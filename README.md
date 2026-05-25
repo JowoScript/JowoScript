@@ -15,7 +15,7 @@
 	<br><br>
 	Bapak gue kalo didik gue keras ya beda seperti kalian lemah. bapak gue main tangan dulu kalo didik anaknya. di pukul pakai rotan gue dulu masih kecil rasanya sedap banget pokokne kalian suka males malesan biasa di manja sudah miskin, goblok pula.
 	<br><br>
-		gue juga santai ya semakin lama kalian menderita bukan gue apa lagi goblok
+		gue juga santai ya semakin lama kalian menderita bukan gue apa lagi goblok, miskin banyak gaya
 	<br><br>
 	Introduction
 </strong>
