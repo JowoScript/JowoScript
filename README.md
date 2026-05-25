@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Bapak gue kalo didik gue keras ya beda seperti kalian lemah. bapak gue main tangan dulu kalo didik anaknya. di pukul pakai rotan gue dulu masih kecil
+	Bapak gue kalo didik gue keras ya beda seperti kalian lemah. bapak gue main tangan dulu kalo didik anaknya. di pukul pakai rotan gue dulu masih kecil rasanya sedap banget pokokne kalian suka males malesan biasa di manja sudah miskin, goblok pula
 	<br><br>
 	Introduction
 </strong>
