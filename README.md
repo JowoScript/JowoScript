@@ -22,7 +22,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li><b>Muhammad Nurcahyo Pratomo or tomi nama pendeknya direktur sendiri di perusahaan PT JowoScript Technology Indonesia baik baik kalian suka menghina dan remehkan selama ini bisa bisa kepala kau di injak yang ada. Sudah masuk blacklist Muhammad Nurcahyo Pratomo itu derita kalian</b></li>
+		<li><b>Muhammad Nurcahyo Pratomo or tomi nama panggilannya direktur sendiri di perusahaan PT JowoScript Technology Indonesia baik baik kalian suka menghina dan remehkan selama ini bisa bisa kepala kau di injak yang ada. Sudah masuk blacklist Muhammad Nurcahyo Pratomo itu derita kalian</b></li>
 		<li><b>Anak muda sudah tidak ada skill, miskin, pengangguran, goblok, masuk kerja lewat orang dalam, hidup dan banyak gaya akan terlihat terus kedepannya</b></li>
 		<li>Siapa jadi babu selama ini kalian kerja di pemerintahan dan perusahaan orang selama ini tidak bisa kerja itu resiko kena pecat kalian terus masuk blacklist. Gue bicara apa adanya mampus. kejar target sekian sekian bukan babu namanya dan masuk wajib jam sekian telat potong gaji dan lembur tidak di bayar itu kalian jadi babu bukan gue dan siapa untung atasan lu bego sih</li>
 		<li><b>Buat aplikasi mahal mahal di bayar menggunakan bahasa pemrograman gratisan mampus siapa goblok selama ini</b></li>
