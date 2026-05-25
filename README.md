@@ -28,7 +28,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Muhammad Nurcahyo Pratomo direktur utama di perusahaan PT JowoScript Technology Indonesia baik baik kalian suka menghina dan remehkan selama ini bisa bisa kepala kau di injak yang ada</li>
+		<li>Muhammad Nurcahyo Pratomo direktur sendiri di perusahaan PT JowoScript Technology Indonesia baik baik kalian suka menghina dan remehkan selama ini bisa bisa kepala kau di injak yang ada</li>
 		<li>Siapa jadi babu selama ini kalian kerja di pemerintahan dan perusahaan orang selama ini tidak bisa kerja itu resiko kena pecat kalian terus masuk blacklist. Gue bicara apa adanya mampus. kejar target sekian sekian bukan babu namanya dan masuk wajib jam sekian telat potong gaji dan lembur tidak di bayar itu kalian jadi babu bukan gue dan siapa untung atasan lu bego sih</li>
 		<li><b>Buat aplikasi mahal mahal di bayar menggunakan bahasa pemrograman gratisan mampus siapa goblok selama ini</b></li>
 		<li>Semakin lama setiap tahun nambah lulusan semakin asik siapa goblok abadi dan pengangguran abadi dan tidak produktif abadi kalian ya bukan gue</li>
