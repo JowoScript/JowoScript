@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja bisa lulus test kerja belum tentu kuat kerja dan pintar kerja ya
+	Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya
 	<br><br>
 	Introduction
 </strong>
