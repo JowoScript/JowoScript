@@ -28,6 +28,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya.</li>
 		<li>Namanya orang kaya asli itu tidak punya hutang seperti kalian punya hutang banyak gaya mampus tidak masuk surga kalian. Apa ada jaminan nya orang punya hutang masuk surga ? tidak ada mau nabi Muhammad saja tidak bisa nolong ya. paham kata kata gue ya. jika amal kalian banyak tidak bisa nolong kalo punya hutang ya</li>
 		<li>Biar mereka cari uang sendiri goblok goblok selama ini mau minta di modali terus dan jangan lupa bayar hutang ke pemodal kalian gagal bayar mampus</li>
 		<li><b>Muhammad Nurcahyo Pratomo or tomi nama panggilannya direktur sendiri di perusahaan PT JowoScript Technology Indonesia baik baik kalian suka menghina dan remehkan selama ini bisa bisa kepala kau di injak yang ada. Sudah masuk blacklist Muhammad Nurcahyo Pratomo itu derita kalian. Di baca status hukum pemilik perusahaan PT JowoScript Technology Indonesia jadi penampilan keren tidak menjamim boss ya</b></li>
