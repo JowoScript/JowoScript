@@ -13,6 +13,8 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
+	Gue saja dulu di buat pengangguran ya karena goblok kan so siapa jadi goblok gantian kalian merasakan jadi pengangguran dan tidak berguna ya selama pemerintahan belum beli secara sah hukum dengan gue langsung 
+	<br><br>
 	siapa mau minta gratisan produk perusahaan gue jadi Koba lab hahahha
 	<br><br>
 	Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. 
