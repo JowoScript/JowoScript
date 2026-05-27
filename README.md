@@ -28,7 +28,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Produk tidak ada gratisan ya. Siapa tumbang itu kalian di akhir goblok goblok</li>
+		<li>Produk tidak ada gratisan dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok</li>
 		<li>Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. Resiko kalian kena pecat dan masuk blacklist kalo goblok tidak bisa kerja jadi pengangguran, tidak produktif dan jadi sampah kalian</li>
 		<li>Namanya orang kaya asli itu tidak punya hutang seperti kalian punya hutang banyak gaya mampus tidak masuk surga kalian. Apa ada jaminan nya orang punya hutang masuk surga ? tidak ada mau nabi Muhammad saja tidak bisa nolong ya. paham kata kata gue ya. jika amal kalian banyak tidak bisa nolong kalo punya hutang ya</li>
 		<li>Biar mereka cari uang sendiri goblok goblok selama ini mau minta di modali terus dan jangan lupa bayar hutang ke pemodal kalian gagal bayar mampus</li>
