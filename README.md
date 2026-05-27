@@ -15,7 +15,7 @@
 	<br><br>
 	Gue saja dulu di buat pengangguran ya karena goblok kan menurut anda ya selama ini jadi siapa goblok kalo di lihat selama ini ya biar persulit gue merasakan jadi pengangguran dan tidak berguna ya selama pemerintahan belum beli secara sah hukum dengan gue langsung. selama belum beli siapa koruptor dan sebagian nya bukan gue juga
 	<br><br>
-	Saingan gue pengusaha miskin biar nonton terus kalian. saldo tidak mencukupi untuk beli produk gue ketawain kalian dan gue viralkan di medsos nanti siapa malu di akhir
+	Saingan gue pengusaha miskin biar nonton terus kalian. saldo tidak mencukupi untuk beli produk gue ketawain kalian dan gue viralkan di medsos nanti siapa malu di akhir kalian kalo saldo tidak mencukupi hahahaha 
 	<br><br>
 	siapa mau minta gratisan produk perusahaan gue jadi Koba lab hahahha
 	<br><br>
