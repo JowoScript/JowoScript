@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Gue saja dulu di buat pengangguran ya karena goblok kan menurut anda ya selama ini jadi siapa goblok kalo di lihat selama ini ya biar persulit gue merasakan jadi pengangguran dan tidak berguna ya selama pemerintahan belum beli secara sah hukum dengan gue langsung. selama belum beli siapa koruptor dan sebagian nya bukan gue juga
+	Kalo saingan gue anak informatika skill masih copy and paste dan levelnya masih buat website mending mati saja kalian
 	<br><br>
 	Saingan gue pengusaha miskin biar nonton terus kalian. saldo tidak mencukupi untuk beli produk gue ketawain kalian dan gue viralkan di medsos nanti siapa malu di akhir kalian kalo saldo tidak mencukupi hahahaha paham sampai sini ya karena kaya belum tentu punya uang beli produk ya. gue tinggal countdown berapa bulan berdasarkan serial number jadi sok pintar dari gue. siapa kena pancal endase di dunia kerja juga bukan gue ini tapi kalian ya. kalian mau niru apa gue buat ? level copy annd paste dan bukan sudah terlihat ya
 	<br><br>
