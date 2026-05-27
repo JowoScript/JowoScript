@@ -30,7 +30,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Perusahaan sudah gue blacklist goblok goblok mereka selama ini ya semakin lama perusahaan masuk blacklist akan tumbang tutup di akhir pegang omongan gue</li>
+		<li>Perusahaan sudah gue blacklist goblok goblok mereka selama ini ya semakin lama perusahaan masuk blacklist akan tumbang tutup di akhir pegang omongan gue siapa tidak punya masa depan mereka</li>
 		<li>Produk tidak ada gratisan, buat produk modal sendiri, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok</li>
 		<li>Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. Resiko kalian kena pecat dan masuk blacklist kalo goblok tidak bisa kerja jadi pengangguran, tidak produktif dan jadi sampah kalian</li>
 		<li>Namanya orang kaya asli itu tidak punya hutang seperti kalian punya hutang banyak gaya mampus tidak masuk surga kalian. Apa ada jaminan nya orang punya hutang masuk surga ? tidak ada mau nabi Muhammad saja tidak bisa nolong ya. paham kata kata gue ya. jika amal kalian banyak tidak bisa nolong kalo punya hutang ya</li>
