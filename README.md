@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Gue saja dulu di buat pengangguran ya karena goblok kan so siapa jadi goblok gantian kalian merasakan jadi pengangguran dan tidak berguna ya selama pemerintahan belum beli secara sah hukum dengan gue langsung 
+	Gue saja dulu di buat pengangguran ya karena goblok kan so siapa jadi goblok gantian kalian merasakan jadi pengangguran dan tidak berguna ya selama pemerintahan belum beli secara sah hukum dengan gue langsung. selama belum beli siapa koruptor dan sebagian nya bukan gue juga
 	<br><br>
 	siapa mau minta gratisan produk perusahaan gue jadi Koba lab hahahha
 	<br><br>
