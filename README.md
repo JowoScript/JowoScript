@@ -15,6 +15,8 @@
 	<br><br>
 	Gue saja dulu di buat pengangguran ya karena goblok kan menurut anda ya selama ini jadi siapa goblok kalo di lihat selama ini ya biar persulit gue merasakan jadi pengangguran dan tidak berguna ya selama pemerintahan belum beli secara sah hukum dengan gue langsung. selama belum beli siapa koruptor dan sebagian nya bukan gue juga
 	<br><br>
+	Saingan gue pengusaha miskin biar nonton terus mereka. saldo tidak mencukupi transfer gue ketawain nanti
+	<br><br>
 	siapa mau minta gratisan produk perusahaan gue jadi Koba lab hahahha
 	<br><br>
 	Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. 
