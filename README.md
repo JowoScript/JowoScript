@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	siapa mencuri produk gratisan gue buat dulu jadi koba lab kalian hahaha 
+	siapa mau minta gratisan produk perusahaan gue jadi Koba lab hahahha
 	<br><br>
 	Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. 
 	<br><br>
