@@ -13,7 +13,7 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Buat dari noll mampu tidak kalian ? kalo level edit, copy and paste doang jangan banyak tingkah anak zaman now
+	siapa mencuri produk gratisan gue buat dulu jadi koba lab kalian hahaha 
 	<br><br>
 	Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. 
 	<br><br>
