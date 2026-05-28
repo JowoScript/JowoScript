@@ -13,14 +13,6 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
-	Kalo saingan gue anak informatika skill masih copy and paste dan levelnya masih buat website mending mati saja kalian waktu akan bicara tidak akan mampu kalian buat lebih dari gue buat sekarang walaupun kalian ramai ramai tetap terlihat kelompok pecundang di akhir
-	<br><br>
-	Saingan gue pengusaha miskin biar nonton terus kalian. saldo tidak mencukupi untuk beli produk gue ketawain kalian dan gue viralkan di medsos nanti siapa malu di akhir kalian kalo saldo tidak mencukupi hahahaha paham sampai sini ya karena kaya belum tentu punya uang beli produk ya. gue tinggal countdown berapa bulan berdasarkan serial number jadi sok pintar dari gue. siapa kena pancal endase di dunia kerja juga bukan gue ini tapi kalian ya. kalian mau niru apa gue buat ? level copy annd paste dan bukan sudah terlihat ya
-	<br><br>
-	siapa mau minta gratisan produk perusahaan gue jadi Koba lab hahahha
-	<br><br>
-	Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. 
-	<br><br>
 	Introduction
 </strong>
 </div>
