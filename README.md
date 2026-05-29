@@ -24,7 +24,7 @@
 	<ul>
 		<li><b>Perusahaan merugi terus selama ini biar pada tutup ya biar merasakan jadi pengangguran tidak nerima gaji dan tunjangan bulanan nemenin gue kalian remehkan dulu biar mampus bisa apa kalo goblok ya kalian dan jangan lupa perusahaan merugi terus selama ini bayar hutang ke pemodal ya</b></li>
 		<li><b>PT JowoScript Technology Indonesia produk tidak ada gratisan, buat produk modal sendiri tidak menggunakan uang pemerintah atau investor, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok level nya buat website dan Ai saja selama ini minta di danai besar besar selama ini</b></li>
-		<li>Kerja di pemerintahan belum tentu aman mereka karirnya karena kalo goblok pasti di singkirkan atau di pecat</li>
+		<li>Kerja di pemerintahan belum tentu aman mereka karirnya karena kalo goblok pasti di singkirkan atau di pecat karena pengalaman kerja duluan lebih paham ya</li>
 		<li>Mana ada produk perusahaan gue buat gagal kalian saja bego selama ini ya. Siapa goblok selama ini kalian sebenarnya ya hanya buat soal test masuk kerja bisanya</li>
 		<li>Perusahaan tidak beli produk perusahaan gue pasti akan tumbang di akhir semakin lama akan terlihat siapa suka nipu ya apa lagi minta di danai selama ini ya</li>
 		<li>Kalian bermasalah sama gue kalo di pecat jadi pengangguran bisa apa gue tanya ya ? resiko biar merasakan jadi pengangguran kalian dan gue tidak takut sama orang-orang bermasalah sama gue ya biar mampus kalian jadi pengangguran dan waktu akan bicara ya</li>
