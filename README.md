@@ -22,6 +22,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li><b>Perusahaan merugi terus selama ini biar pada tutup ya</b></li>
 		<li>Kalian bermasalah sama gue kalo di pecat jadi pengangguran bisa apa gue tanya ya ? resiko biar merasakan jadi pengangguran kalian dan gue tidak takut sama orang-orang bermasalah sama gue ya biar mampus kalian jadi pengangguran dan waktu akan bicara ya</li>
 		<li>Perusahaan sudah gue blacklist goblok goblok mereka selama ini ya semakin lama perusahaan masuk blacklist akan tumbang tutup di akhir pegang omongan gue siapa tidak punya masa depan mereka</li>
 		<li><b>Produk tidak ada gratisan, buat produk modal sendiri, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok</b></li>
