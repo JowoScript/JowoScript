@@ -13,6 +13,8 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
+	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
+	<br><br>
 	Introduction
 </strong>
 </div>
