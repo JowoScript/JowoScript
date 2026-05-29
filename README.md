@@ -23,7 +23,7 @@
 <div>
 	<ul>
 		<li><b>Perusahaan merugi terus selama ini biar pada tutup ya biar merasakan jadi pengangguran tidak nerima gaji dan tunjangan bulanan nemenin gue kalian remehkan dulu biar mampus bisa apa kalo goblok ya kalian dan jangan lupa perusahaan merugi terus selama ini bayar hutang ke pemodal ya</b></li>
-		<li><b>PT JowoScript Technology Indonesia produk tidak ada gratisan, buat produk modal sendiri tidak menggunakan uang pemerintah atau investor, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok level nya buat website dan Ai saja selama ini</b></li>
+		<li><b>PT JowoScript Technology Indonesia produk tidak ada gratisan, buat produk modal sendiri tidak menggunakan uang pemerintah atau investor, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok level nya buat website dan Ai saja selama ini minta di danai besar besar selama ini</b></li>
 		<li>Kalian bermasalah sama gue kalo di pecat jadi pengangguran bisa apa gue tanya ya ? resiko biar merasakan jadi pengangguran kalian dan gue tidak takut sama orang-orang bermasalah sama gue ya biar mampus kalian jadi pengangguran dan waktu akan bicara ya</li>
 		<li>Perusahaan sudah gue blacklist goblok goblok mereka selama ini ya semakin lama perusahaan masuk blacklist akan tumbang tutup di akhir pegang omongan gue siapa tidak punya masa depan mereka</li>
 		<li>Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. Resiko kalian kena pecat dan masuk blacklist kalo goblok tidak bisa kerja jadi pengangguran, tidak produktif dan jadi sampah kalian</li>
