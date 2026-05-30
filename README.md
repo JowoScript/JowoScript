@@ -252,15 +252,14 @@
 ### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label powered PT JowoScript Technology Indonesia. Specifically for purchasing licensed products. So whos stupid until now
 <div align="justify">
 <ol>
-	<li>Mahkamah Agung sebagai peninjau dan tangan kanannya Muhammad Nurcahyo Pratomo langsung untuk hukum berkelanjutan dan militer bagian ekseskusi</li>
+	<li>Mahkamah Agung sebagai peninjau dan tangan kanannya Muhammad Nurcahyo Pratomo langsung untuk hukum berkelanjutan dan militer bagian ekseskusi jika sudah ada beli selama belum ya nonton saja</li>
 	<li>Aturan Hukum Muhammad Nurcahyo Pratomo tidak bisa di ganggu gugat oleh pihak manapun baik itu pidana, perdata, konsitusi, adat, undang undang, trakta, yurisprudensi  dan sejenisnya. Hukum tetap mutlak di atas apapun itu. the checkmate forever</li>
 	<li>Anak umur di bawah 18 tahun wajib kena proses hukum jika melanggar aturan hukum itu resiko orang tuanya jika tidak bisa mendidik anaknya dengan benar. Apa lagi suka tawuran ya nyusahin warga disekitar saja ya dan tidak ada jaminan pembebasan wajib jadi tahanan paling lama 1 tahun kerja sosial wajib, paling cepat 6 bulan dan tanpa di gaji ya. Makan atau minum di tanggung orang tuanya masing masing karena tidak bisa mendidik dengan benar</li>
-	<li>Siapa buat music jeduk jeduk dari 2021 sampai sekarang harus mati manusia nya apa di share Facebook Muhammad Nurcahyo Pratomo karena menyinggung selama ini</li>
-	<li>Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing</li>
+	<li>Siapa buat music jeduk jeduk dari 2021 sampai sekarang harus mati manusia nya apa di share Facebook Muhammad Nurcahyo Pratomo or tommy script karena merusak mental di sengaja</li>
+	<li>Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing tidak ada pemaksaan</li>
 	<li>Tidak boleh ada pungutan liar meminta uang untuk kepentingan kelompok organisasi atau pribadi contoh meminta jatah keamananan untuk ruko atau pengusaha, dan seterusnya banyak contoh</li>
-	<li>Tidak boleh korupsi dan nepotisme secara tertutup atau terbuka</li>
+	<li>Tidak boleh korupsi dan nepotisme secara tertutup atau terbuka karena merugikan negara</li>
 	<li>Sudah pernah punya SIM atau SIM mati untuk Perpanjang Surat Izin Mengemudi wajib gratis seumur hidup berlakunya seperti KTP berlaku seumur hidup tidak ada perpanjangan dan belum pernah punya SIM wajib bayar. Orang punya sim saja kena musib juga ada dari dulu apa bedanya untuk ladang cari uang selama ini padahal sudah di gaji oleh negara selama ini. bikin malu saja. Kenapa KTP buat tidak bayar dari dulu dan KTP tidak perpanjang sekalian 5 tahun sekali wajib bayar juga kalo mau adu argumentasi. Kalo mau nindas rakyat itu mudah ya KTP bayar kelar. SIM mati kena tilang cari uang namanya pemaksaan wajib bayar. Kalo punya SIM hidup ada jaminannya apa selamat orang berkendara di jalan ? tidak ada ya itu kesimpulan selama ini.
-	<li>If there is still war, become because provocateur is <b>cryptocurrency and gambling site influencer on social media for money</b>. that's way i blacklist cryptocurrency and gambling</li>
 	<li><b>It is strictly forbidden to wage war between countries without a clear reason based on the unity of nations and this is also i'm agree</b></li>
 	<li>The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical (different law and syntax code). The implicit fair the law by law and the legal by legal</li>
 	<li>My new programming language must use end-to-end encryption and privacy security, return to the rules of Muhammad Nurcahyo Pratomo (law by law) and cannot be sued by any party is a permanent legal form</li>
