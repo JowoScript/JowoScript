@@ -96,7 +96,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Olah raga orang pintar seperti gue jadi tukang bangunan bada gerak semua kalo bosen coding bukan tukang ojek ya tidak butuh keahlian. tukang bangunan butuh keahlian contoh aduk semen, cat ruang an, plester retakan, manjat genteng, pembagian arus listrik pakai sekring MCB (Miniature Circuit Breaker) wajib, instalasi listrik dan sebagainya</li>
+		<li>Olah raga orang pintar seperti gue jadi tukang bangunan badan gerak semua kalo bosen coding bukan tukang ojek atau olah raga gym ya tidak butuh keahlian. tukang bangunan butuh keahlian contoh aduk semen, cat ruang an, plester retakan, manjat genteng, pembagian arus listrik pakai sekring MCB (Miniature Circuit Breaker) wajib, instalasi listrik dan sebagainya</li>
 		<li>Orang netral dan pro Muhammad Nurcahyo Pratomo berhak boleh blacklist orang bermasalah sama Muhammad Nurcahyo Pratomo untuk tumbal nantinya mereka selama ini nyerang gue secara berkelompok juga lewat medsos menggunakan akun palsu tapi mereka bodoh di akhir. semakin lama siapa di butuhkan dan siapa mati</li>
 		<li>Harga lisensi mahal kenapa dan uang segitu banyak untuk apa nantinya oleh Muhammad Nurcahyo Pratomo jelas M Nurcahyo Pratomo lebih paham perputaran ekonomi dari pada orang bergelar doktor ekonomi dan Professor Ekonomi. Selama belum beli ya siapa kena tekanan bukan Muhammad Nurcahyo Pratomo</li>
 		<li>Perusahaan minta di danai duluan belum tentu beli produk PT JowoScript Technology Indonesia jadi kita lihat semakin lama siapa pailit bayar hutang</li>
