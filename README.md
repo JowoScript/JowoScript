@@ -24,6 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Kalian bangun gendung belum tentu ada isinya siapa goblok selama ini bukan Muhammad Nurcahyo Pratomo</li>
 		<li>Selama ini pemerintah juga tidak ada kontribusi besar kepada perusahaan PT JowoScript Technology Indonesia ya dan kepada Muhammad Nurcahyo Pratomo sebagai  pemilik bisnis juga pemerintah tidak punya kontribusi selama ini. Tidak ada gratisan produk ya mau berhitung dan adu argumentasi gue ladenin kalian</li>
 		<li><b>Perusahaan merugi terus selama ini biar pada tutup ya biar merasakan jadi pengangguran tidak nerima gaji dan tunjangan bulanan nemenin gue kalian remehkan dulu biar mampus bisa apa kalo goblok ya kalian dan jangan lupa perusahaan merugi terus selama ini bayar hutang ke pemodal ya</b></li>
 		<li><b>PT JowoScript Technology Indonesia produk tidak ada gratisan, buat produk modal sendiri tidak menggunakan uang pemerintah atau investor, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok level nya buat website dan Ai saja selama ini minta di danai besar besar selama ini</b></li>
