@@ -24,7 +24,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Selama ini pemerintah juga tidak ada kontribusi besar kepada perusahaan PT JowoScript Technology Indonesia ya. Tidak ada gratisan produk ya mau berhitung dan adu argumentasi gue ladenin kalian</li>
+		<li>Selama ini pemerintah juga tidak ada kontribusi besar kepada perusahaan PT JowoScript Technology Indonesia ya dan kepada Muhammad Nurcahyo Pratomo juga pemerintah tidak punya kontribusi selama ini. Tidak ada gratisan produk ya mau berhitung dan adu argumentasi gue ladenin kalian</li>
 		<li><b>Perusahaan merugi terus selama ini biar pada tutup ya biar merasakan jadi pengangguran tidak nerima gaji dan tunjangan bulanan nemenin gue kalian remehkan dulu biar mampus bisa apa kalo goblok ya kalian dan jangan lupa perusahaan merugi terus selama ini bayar hutang ke pemodal ya</b></li>
 		<li><b>PT JowoScript Technology Indonesia produk tidak ada gratisan, buat produk modal sendiri tidak menggunakan uang pemerintah atau investor, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok level nya buat website dan Ai saja selama ini minta di danai besar besar selama ini</b></li>
 		<li>HRD jelas mereka hire orang ya selama ini fakta pegang kunci jawaban soal test masuk kerja hanya HRD saja ya bukan pimpinan hire orang selama ini dan bukan pimpinan pegang kunci jawaban soal test masuk kerja selama ini. HRD harus paling tanggung jawab kalo perusahaan hancur kenapa perusahaan gue tidak butuh HRD kedepannya karena gue belajar semuanya ya. Pimpinan perusahaan harus punya kendali penuh sebagai nahkoda jadi hire sampai test pegawai wajib pimpinan perusahaan ada</li>
