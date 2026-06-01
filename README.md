@@ -16,7 +16,8 @@
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
 	Orang pengecut selalu bilang gue pakai dakingan selama ini itu fakta ya
-	dan gue kemana mana sendiri ya beda sama orang pengecut selalu berkelompok<br><br>
+	dan gue kemana mana sendiri ya beda sama orang pengecut selalu berkelompok itu fakta ya di lapangan 
+	<br><br>
 	Introduction
 </strong>
 </div>
