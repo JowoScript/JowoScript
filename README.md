@@ -29,6 +29,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Bagian Teknologi Informasi mau coba nipu gua di akhir kalian akan kesusahan sendiri ya dan habis kalian di akhir</li>
 		<li>Produk palsu dan asli itu beda siapa goblok dungu kalian</li>
 		<li>Pengusaha suka nipu Muhammad Nurcahyo Pratomo kalian sendiri kena masalah di akhir bukan Muhammad Nurcahyo Pratomo selama belum beli siapa pengangguran itu kalian tapi tidak sadar diri semakin lama semakin asik ya siapa goblok selama ini kalian ya</li>
 		<li>Kalian bangun gedung duluan belum tentu ada isinya mau bisnis apa gue tanya ye kalian siapa goblok selama ini bukan Muhammad Nurcahyo Pratomo dan hanya Muhammad Nurcahyo Pratomo pemilik bisnis bisa kembangkan produk kingdom technology environment dan banyak lagi produk ya</li>
