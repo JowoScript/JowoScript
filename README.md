@@ -18,7 +18,7 @@
 	Orang pengecut selalu bilang gue pakai dakingan selama ini itu fakta ya
 	dan gue kemana mana sendiri ya beda sama orang pengecut selalu berkelompok itu fakta ya di lapangan 
 	<br><br>
-	Kalo gue pengecut selama ini tidak mungkin pasang foto ya seperti kalian foto palsu cemen
+	Kalo gue pengecut selama ini tidak mungkin pasang foto ya seperti kalian foto palsu takut gue buru di akhir
 	<br><br>
 	Introduction
 </strong>
