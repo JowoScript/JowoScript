@@ -162,7 +162,7 @@
 	The free programing language don't have fundamental of law and easy to be crack or anything and different my new programming language and powered by PT Jowoscript Technology Indonesia for commerical (different law and syntax code). The implicit fair the law by law and the legal by legal
 </div>
 
-### Blacklist data is problematic with its creator based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future) 
+### Blacklist data is problematic with its Muhammad Nurcahyo Pratomo based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future). They never think 10 years or more about technology information 
 <div align="justify">
 <ol>
 	<li>Badan Kepegawaian Negara persulit Muhammad Nurcahyo Pratomo dulu test kerja lewat CAT berbasis komputer dan orang hasil titipan bisa lulus CAT berbasis komputer semua bisa di rekayasa dari dulu ya giliran Muhammad Nurcahyo Pratomo tidak bisa dulu so gantian Muhammad Nurcahyo Pratomo blacklist BKN siapa goblok selama ini</li>
