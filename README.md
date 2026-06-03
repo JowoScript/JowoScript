@@ -17,6 +17,8 @@
 	<br><br>
 	Gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi
 	<br><br>
+	Mau di keroyok sstu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta 
+	<br><br>
 	The checkmate forever 
 	<br><br>
 	Introduction
