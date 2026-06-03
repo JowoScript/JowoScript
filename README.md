@@ -17,7 +17,7 @@
 	<br><br>
 	Gue gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi jurusan teknologi informasi hasil copy paste edit 🤣
 	<br><br>
-	Gelar tinggi tinggi kalo skill sekolah dasar untuk apa kalian
+	lulus test kerja tidak menjamin pintar di dunia kerja ya
 	<br><br>
 	tutup saja lowongan kerja nanti juga pada mati lebih goblok dari gue ya biar paham jadi pengusaha gimana ya
  karena orang goblok dari dulu maunya enak doang ya tidak mau mikir dan susah fakta di lapangan begitu bisa nuntut doang tapi goblok ya siapa malu ya
