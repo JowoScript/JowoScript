@@ -17,6 +17,8 @@
 	<br><br>
 	Gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi jurusan teknologi informasi hasil copy paste edit 🤣
 	<br><br>
+	tutup saja lowongan kerja nanti juga pada mati lebih goblok dari gue
+	<br><br>
 	Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta ya sesuai judul di atas 😀😀😀😀 
 	<br><br>
 	The checkmate forever 
