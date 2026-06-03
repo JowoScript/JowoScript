@@ -15,7 +15,7 @@
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
-	Gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi jurusan teknologi informasi hasil copy paste edit 🤣
+	Gue gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi jurusan teknologi informasi hasil copy paste edit 🤣
 	<br><br>
 	tutup saja lowongan kerja nanti juga pada mati lebih goblok dari gue ya biar paham jadi pengusaha gimana ya
  karena orang goblok dari dulu maunya enak doang ya tidak mau mikir dan susah fakta di lapangan begitu bisa nuntut doang tapi goblok ya siapa malu ya
