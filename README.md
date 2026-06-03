@@ -55,7 +55,7 @@
 <div>
 	<ul>
 		<li>Kalo tidak punya uang beli produk ya nonton saja semakin lama semakin asik siapa goblok akan bermunculan terus di dunia kerja</li>
-		<li>Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta karena sendiri pengalaman asli itu beda</li>
+		<li>Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta karena sendiri pengalaman asli itu beda. Orang pintar seperti gue mana mau gaji kecil dan tunjangan kecil biar goblok dari gue jadi pengangguran. Semakin lama terbukti ya siapa goblok dan pintar</li>
 		<li>Lulus test kerja tidak menjamin pintar di dunia kerja ya itu fakta karena pengalaman asli itu beda level dengan pengalaman hanya absensi saja</li>
 		<li>Resiko persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja ya. Biar paham siapa goblok selama ini dan tidak gratis produk selamanya dan semakin lama semakin asik ya akan terlihat siapa gpblok selama ini di dunia kerja dan siapa tidak produktif kalian.</li>
 		<li>Bagian bidang Teknologi Informasi mau coba nipu Muhammad Nurcahyo Pratomo di akhir kalian akan kesusahan sendiri ya dan habis kalian di akhir</li>
