@@ -15,7 +15,7 @@
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
-	Gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi
+	Gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi jurusan teknologi informasi 
 	<br><br>
 	Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta ya sesuai judul di atas 🤪🤣
 	<br><br>
