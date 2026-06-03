@@ -54,7 +54,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Muhammad Nurcahyo Pratomo tidak cari uang ya seperti kalian karena orang pintar mencetak nilai, bisnis dan masa depan</li>
+		<li>Muhammad Nurcahyo Pratomo tidak cari uang ya seperti kalian karena orang pintar mencetak nilai, bisnis dan masa depan. Uang mencari bukan sebaliknya</li>
 		<li>Kalo tidak punya uang beli produk ya nonton saja semakin lama semakin asik siapa goblok akan bermunculan terus di dunia kerja</li>
 		<li>Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta karena sendiri pengalaman asli itu beda. Orang pintar seperti Muhammad Nurcahyo Pratomo mana mau gaji kecil dan tunjangan kecil biar goblok dari Muhammad Nurcahyo Pratomo jadi pengangguran dan tidak produktif. Semakin lama terbukti ya siapa goblok dan pintar</li>
 		<li>Lulus test kerja tidak menjamin pintar di dunia kerja ya itu fakta karena pengalaman asli itu beda level dengan pengalaman hanya absensi saja</li>
