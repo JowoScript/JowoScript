@@ -54,6 +54,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Resiko persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja ya. Biar paham siapa goblok selama ini dan tidak gratid produk selamanya</li>
 		<li>Bagian bidang Teknologi Informasi mau coba nipu Muhammad Nurcahyo Pratomo di akhir kalian akan kesusahan sendiri ya dan habis kalian di akhir</li>
 		<li>Produk palsu dan asli itu beda siapa goblok dungu kalian</li>
 		<li>Pengusaha suka nipu Muhammad Nurcahyo Pratomo kalian sendiri kena masalah di akhir bukan Muhammad Nurcahyo Pratomo selama belum beli siapa pengangguran itu kalian tapi tidak sadar diri semakin lama semakin asik ya siapa goblok selama ini kalian ya</li>
