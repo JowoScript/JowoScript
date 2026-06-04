@@ -19,8 +19,7 @@
 	<br><br>
 	lulus test kerja tidak menjamin pintar di dunia kerja ya itu fakta karena pengalaman asli itu beda level dengan pengalaman hanya absensi saja
 	<br><br>
-	tutup saja lowongan kerja nanti juga pada mati lebih goblok dari gue ya biar paham jadi pengusaha gimana ya
- karena orang goblok dari dulu maunya enak doang ya tidak mau mikir dan susah fakta di lapangan begitu bisa nuntut doang tapi goblok ya siapa malu ya
+	badan kepegawaian negara persulit gue dulu test cat komputer ya so siapa goblok sebenarnya 
 	<br><br>
 	Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta ya sesuai judul di atas 😀😀😀😀 
 	<br><br>
