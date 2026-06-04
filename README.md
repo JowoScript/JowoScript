@@ -19,7 +19,7 @@
 	<br><br>
 	lulus test kerja tidak menjamin pintar di dunia kerja ya itu fakta karena pengalaman asli itu beda level dengan pengalaman hanya absensi saja
 	<br><br>
-	badan kepegawaian negara persulit gue dulu test cat komputer ya so siapa goblok sebenarnya. Skill coding asli gue di atas rata rata dari pada pegawai bkn pemerintah kalian ya
+	badan kepegawaian negara persulit gue dulu test cat komputer ya so siapa goblok sebenarnya. Skill coding asli gue di atas rata rata dari pada pegawai kerja di pemerintah ya
 	<br><br>
 	Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta ya sesuai judul di atas 😀😀😀😀 
 	<br><br>
