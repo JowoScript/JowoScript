@@ -54,6 +54,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Sistem aplikasi di pemerintahan dulu dulu sudah jadi putar disitu saja ya syukur siapa goblok selama ini</li>
 		<li>PT JowoScript Technology Indonesia tidak menerima gabungan perusahaan dan tidak menerima lowongan kerja. Muhammad Nurcahyo Pratomo bekerja sendiri selamanya di perusahaan PT JowoScript Technology Indonesia sebagai pemilik perusahaan dan pembuat produk</li>
 		<li>Muhammad Nurcahyo Pratomo menunggu waktu perusahaan mana lagi bangkrut atau pailit tahun ini ya buktikan saja laporan keuangan perusahaan kalian tahun ini. Bicara untung tapi rugi terus nanti terlihat.</li>
 		<li>Muhammad Nurcahyo Pratomo terus berkembang di rumah siapa goblok selama ini kalian tidak punya uang untuk beli produk pasti nonton terus kalian jadi pengangguran dan tidak produktif fakta ya baca harga lisensinya ya punya uang segitu apa siapa miskin kalo tidak punya uang untuk beli simple logic. Muhammad Nurcahyo Pratomo hidup sederhana Tidak punya hutang setiap hari bisa makan, jajan, udut dan kopi kalian belum tentu bisa kerja terus ya sampai mati di kantor hahahaha fakta itu resiko jadi orang goblok di dunia kerja</li>
