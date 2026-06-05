@@ -53,6 +53,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Semakin lama next generation lebih goblok dari Muhammad Nurcahyo Pratomo akan mati juga mereka akan nonton terus ya selama belum beli bales dendam gue iu nyata</li>
 		<li>Muhammad Nurcahyo Pratomo tidak perlu sekolah lagi ambil gelar tinggi tinggi karena sudah terlihat siapa pintar dan goblok fakta ya</li>
 		<li>Sebuah kejahatan juga bagi Muhammad Nurcahyo Pratomo dulu lamar kerja masuk test kerja di persulit ya gantian mampus siapa goblok sebenernya semakin lama semakin asik ya orang goblok akan bermunculan terus di dunia kerja</li>
 		<li>Proyek Sistem aplikasi di pemerintahan dulu dulu sudah jadi sampai sekarang putar disitu saja ya syukur siapa goblok selama ini</li>
