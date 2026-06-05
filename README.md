@@ -45,6 +45,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Emang bego selama ini terbukti kalian karena orang bego itu tidak mau sadar diri ya</li>
 		<li>Muhammad Nurcahyo Pratomo NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja pada mati suka nipu di akhir semakin lama semakin asik kalian akan mati kena siksa di dunia kerja pegang omongan gue apa perlu gue translate ke inggris biar kalian panik ? sesuai judul siapa goblok sok pintar dari gue jadi mainan gue di akhir makin lama makin asik siapa tumbang kalian</li>
 		<li>PT JowoScript Technology Indonesia NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja</li>
 		<li><b>Jangan ada investasi selama belum beli ya. Awas penipuan investasi dan sejenisnya ya baik baik kalian</b>
