@@ -45,7 +45,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Muhammad Nurcahyo Pratomo NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja pada mati suka nipu di akhir</li>
+		<li>Muhammad Nurcahyo Pratomo NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja pada mati suka nipu di akhir semakin lama semakin asik kalian akan mati kena siksa di dunia kerja</li>
 		<li>PT JowoScript Technology Indonesia NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja</li>
 		<li><b>Jangan ada investasi selama belum beli ya. Awas penipuan investasi dan sejenisnya ya baik baik kalian</b>
 		Don't invest until bought. Beware of investment scams and the like, everyone
