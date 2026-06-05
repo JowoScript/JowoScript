@@ -15,7 +15,7 @@
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
-	Gue gelar sarjana skill doktor itu lebih keren jangan kebalik gelar tinggi master dan doktor di tanya nanti kalian sama atasan di curigai nanti gelar tinggi tinggi jurusan teknologi informasi hasil copy paste edit banyak tingkah sama gue selama ini
+	Semakin lama next generation lebih goblok dari gue akan mati juga mereka akan nonton terus ya selama belum beli
 	<br><br>
 	lulus test kerja tidak menjamin pintar di dunia kerja ya itu fakta karena pengalaman asli itu beda level dengan pengalaman hanya absensi saja
 	<br><br>
