@@ -53,7 +53,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>PT JowoScript Technology Indonesia NO NEED INVESTOR or INVEST</li>
+		<li>PT JowoScript Technology Indonesia NO NEED INVESTOR or INVEST and The Product its not free thats fair</li>
 		<li><b>Jangan ada investasi selama belum beli ya. Awas penipuan investasi dan sejenisnya ya baik baik kalian</b>
 		Don't invest until bought. Beware of investment scams and the like, everyone
 		</li>
