@@ -15,7 +15,7 @@
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
-	apa perlu gue jadi tukang sunat juga kelar nanti kalian
+	apa perlu gue jadi tukang sunat juga kelar nanti kalian kerja 5 menit bayarannya mahal
 	<br><br>
 	The checkmate forever 
 	<br><br>
