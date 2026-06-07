@@ -52,7 +52,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Di akhir di tanyain hasil kerja kalian apa selama ini mampus bego bego di danai pemerintah dan invenstor ya</li>
+		<li>Di akhir di tanyain hasil kerja kalian apa selama ini mampus bego bego di danai pemerintah dan invenstor ya mati kalian di akhir di penjara atau sejenisnya</li>
 		<li>Bales dendam gue itu nyata gelar doktor dan master kerja di pemerintahan atau swasta tidak menjamin pintar bagi gue</li>
 		<li>Gaji dan tunjangan saja selama ini sudah minus banyak kerja di pemerintahan selama ini hanya bisa habiskan anggaran saja tapi tidak berguna untuk rakyatnya</li>
 		<li>Gaji dan tunjangan saja selama ini sudah minus banyak pengeluaran perusahaan go publik seperti asuransi, tambang dan lain lain bicara pemasukan perusahaan lebih besar dari pengeluaran perusahaan akan terlihat terus kedepannya siapa pailit di akhir. Selevel komisaris saja diam mereka kalo gue sudah bicara begini jadi wawasan gue lebih luas ya</li>
