@@ -12,6 +12,8 @@
 <strong>
 	PT JowoScript Technology Indonesia
 	<br><br>
+	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
+	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
 	Bales dendam gue itu nyata gelar doktor dan master kerja di pemerintahan atau swasta tidak menjamin pintar bagi gue
