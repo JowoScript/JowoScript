@@ -16,6 +16,8 @@
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
+	Orang paling kaya di komplek dan di Indonesia itu gue nantinya bisa di baca harga produk gue buat berapa triliun kalo ada punya uang untuk beli semakin lama semakin asik siapa pengangguran dan tidak produktif bukan gue ya
+	<br><br>
 	Bales dendam gue itu nyata gelar doktor dan master kerja di pemerintahan atau swasta tidak menjamin pintar bagi gue
 	<br><br>
 	Semua test ujian itu sudah pernah gue coba dari ujian tertulis dan berbasis komputer gantian siapa goblok seterusnya tidak gratis produk perusahaan gue dan terbukti sampai sekarang tidak gratis kalian nonton terus ya
