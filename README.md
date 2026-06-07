@@ -51,6 +51,7 @@
 <div>
 	<ul>
 		<li>Bales dendam gue itu nyata gelar doktor dan master kerja di pemerintahan atau swasta tidak menjamin pintar bagi gue</li>
+		<li>Gaji dan tunjangan saja selama ini sudah minus banyak kerja di pemerintahan selama ini hanya bisa habiskan anggaran saja tapi tidak berguna untuk rakyatnya</li>
 		<li>Gaji dan tunjangan saja selama ini sudah minus banyak pengeluaran perusahaan go publik seperti asuransi, tambang dan lain lain bicara pemasukan perusahaan lebih besar dari pengeluaran perusahaan akan terlihat terus kedepannya siapa pailit di akhir. Selevel komisaris saja diam mereka kalo gue sudah bicara begini jadi wawasan gue lebih luas ya</li>
 		<li>Emang bego selama ini terbukti kalian karena orang bego itu tidak mau sadar diri ya. Semakin lama semakin asik ya produk gue berkembang terus kalian jadi pecundang nonton terus dan buat juga belum tentu mampu ya mau gelarmu tinggi tetap hasilnya sama ya hahaha makan tuh gila pengakuan gelar tinggi tinggi dari master sampai doktor hahaha that nothing for me hahaha sombong di bales sombong seperti nya adil ya</li>
 		<li>Muhammad Nurcahyo Pratomo NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja pada mati suka nipu di akhir semakin lama semakin asik kalian akan mati kena siksa di dunia kerja pegang omongan gue apa perlu gue translate ke inggris biar kalian panik ? sesuai judul siapa goblok sok pintar dari gue jadi mainan gue di akhir makin lama makin asik siapa tumbang kalian</li>
