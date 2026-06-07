@@ -1,4 +1,3 @@
-
 <div align="center">
 <a href="https://github.com/JowoScript" target="_self">
 <img src="Logo PT JowoScript Technology Indonesia 128x128.png" 
@@ -15,9 +14,7 @@
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya
 	<br><br>
-	Kalian baru bisa buat website dan ai hasil copy and paste then edit saja banyak tingkah sama gue. Siapa goblok itu kalian selama ini 
-	<br><br>
-	apa perlu gue jadi tukang sunat juga kelar nanti kalian kerja 5 menit bayarannya mahal. Gue cukup belajar 1 bulan sudah bisa jadi pakar nanti
+	Semua test ujian itu sudah pernah gue coba dari ujian tertulis dan berbasis komputer gantian siapa goblok seterusnya tidak gratis produk perusahaan gue dan terbukti sampai sekarang masih gue kunci
 	<br><br>
 	The checkmate forever 
 	<br><br>
