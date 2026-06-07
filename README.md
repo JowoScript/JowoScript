@@ -11,6 +11,7 @@
 </strong>
 <strong>
 	PT JowoScript Technology Indonesia
+	 - breakthrough technology, productive technology and capabilities technology 
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
