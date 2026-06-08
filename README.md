@@ -53,6 +53,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Even Microsoft and Google don't want to mess with me because they will lose money in the future</li>
 		<li>Di akhir di tanyain hasil kerja kalian apa selama ini mampus bego bego di danai pemerintah dan invenstor ya  tidak mampu buat produk ya kalian di akhir di penjara atau sejenisnya</li>
 		<li>Bales dendam gue itu nyata gelar doktor dan master kerja di pemerintahan atau swasta tidak menjamin pintar bagi gue</li>
 		<li>Gaji dan tunjangan saja selama ini sudah minus banyak kerja di pemerintahan selama ini hanya bisa habiskan anggaran saja tapi tidak berguna untuk rakyatnya</li>
