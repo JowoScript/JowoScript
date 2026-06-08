@@ -53,6 +53,8 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li><b>Hanya menunggu waktu perusahaan mana pailit kedepannya</b></li>
+		<li><b>Hanya menunggu waktu kerja di pemerintahan kena pecat siapa tidak berguna juga</b></li>
 		<li>Anak teknologi informasi lebih goblok dari gue biar jadi pengangguran abadi bales dendam gue itu nyata ye siapa persulit gue dulu mampus kalian. Semakin lama semakin asik siapa tumbang itu kalian pegang omongan gue ye</li>
 		<li>Even Microsoft and Google don't want to mess with me because they will lose money in the future</li>
 		<li><b>Di akhir di tanyain hasil kerja kalian apa selama ini mampus bego bego di danai pemerintah dan invenstor ya  tidak mampu buat produk ya kalian di akhir di penjara atau sejenisnya</b></li>
