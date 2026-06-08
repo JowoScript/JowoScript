@@ -47,8 +47,6 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Kalo goblok goblok dari gue pengangguran biarkan saja mereka akan mati sendiri di akhir cari kerja ya semakin lama semakin asik ya</li>
-		<li>UMKM pinjam ke bank or pinjol legal taggih in saja gagal bayar hutang ya jalur hukum dulu baru jalur otot ya perlu apa gue ajarin gimana nagih hutang ?</li>
 		<li>Siapa buka lowongan kerja selama ini kalian mampus bayar pesangon pegawai kalo pemutusan hubungan kerja. Perusahaan gue sendiri saja tidak pernah buka lowongan kerja biar pada mati bego bego dari gue ya makan tuh test masuk kerja dulu makin lama makin asik ya</li>
 		<li><b>Saldo sedikit usaha ayam saja kalian jangan beli produk perusahaan gue ya paham kata kata gue. Harganya bisa di baca ya kalo goblok sekolah lagi sana ya</b></li>
 		<li><b>Hanya menunggu waktu perusahaan mana pailit kedepannya</b></li>
