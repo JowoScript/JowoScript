@@ -47,6 +47,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li><b>Saldo sedikit usaha ayam saja kalian jangan beli produk perusahaan gue ya paham kata kata gue. Harganya bisa di baca ya kalo goblok sekolah lagi sana ya</b></li>
 		<li><b>Hanya menunggu waktu perusahaan mana pailit kedepannya</b></li>
 		<li><b>Hanya menunggu waktu kerja di pemerintahan kena pecat siapa tidak berguna juga</b></li>
 		<li>Anak teknologi informasi lebih goblok dari gue biar jadi pengangguran abadi bales dendam gue itu nyata ye siapa persulit gue dulu mampus kalian. Semakin lama semakin asik siapa tumbang itu kalian pegang omongan gue ye</li>
