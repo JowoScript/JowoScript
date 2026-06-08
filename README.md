@@ -15,13 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus kedepannya ya tidak mampu buat produk ya
-	<br><br>
-	Harga naik setiap new version ya mampus bego bego pengangguran 
-	<br><br>
-	Bales dendam gue itu nyata gelar doktor dan master kerja di pemerintahan atau swasta tidak menjamin pintar bagi gue terbukti kalian putar disitu saja ya tidak mampu buat produk ya kalo hanya copy and paste doang itu anak sd juga bisa ya
-	<br><br>
-	Semua test ujian itu sudah pernah gue coba dari ujian tertulis dan berbasis komputer gantian siapa goblok seterusnya tidak gratis produk perusahaan gue dan terbukti sampai sekarang tidak gratis kalian nonton terus ya
+	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus
 	<br><br>
 	The checkmate forever 
 	<br><br>
