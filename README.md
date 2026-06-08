@@ -47,7 +47,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Kalo goblok goblok dari gue pengangguran biarkan saja mereka akan mati sendiri di akhir cari kerja ya</li>
+		<li>Kalo goblok goblok dari gue pengangguran biarkan saja mereka akan mati sendiri di akhir cari kerja ya semakin lama semakin asik ya</li>
 		<li>UMKM pinjam ke bank or pinjol legal taggih in saja gagal bayar hutang ya jalur hukum dulu baru jalur otot ya perlu apa gue ajarin gimana nagih hutang ?</li>
 		<li>Siapa buka lowongan kerja selama ini kalian mampus bayar pesangon pegawai kalo pemutusan hubungan kerja. Perusahaan gue sendiri saja tidak pernah buka lowongan kerja biar pada mati bego bego dari gue ya makan tuh test masuk kerja dulu makin lama makin asik ya</li>
 		<li><b>Saldo sedikit usaha ayam saja kalian jangan beli produk perusahaan gue ya paham kata kata gue. Harganya bisa di baca ya kalo goblok sekolah lagi sana ya</b></li>
@@ -70,7 +70,7 @@
 		<li>Muhammad Nurcahyo Pratomo tidak perlu sekolah lagi ambil gelar tinggi tinggi karena sudah terlihat siapa pintar dan goblok fakta ya</li>
 		<li><b>Sebuah kejahatan juga bagi Muhammad Nurcahyo Pratomo dulu lamar kerja masuk test kerja di persulit ya gantian mampus siapa goblok sebenernya semakin lama semakin asik ya orang goblok akan bermunculan terus di dunia kerja</b></li>
 		<li>Proyek Sistem aplikasi di pemerintahan dulu dulu sudah jadi sampai sekarang putar disitu saja ya syukur siapa goblok selama ini</li>
-		<li>PT JowoScript Technology Indonesia tidak menerima gabungan perusahaan dan tidak menerima lowongan kerja. Muhammad Nurcahyo Pratomo bekerja sendiri selamanya di perusahaan PT JowoScript Technology Indonesia sebagai pemilik perusahaan dan pembuat produk</li>
+		<li><b>PT JowoScript Technology Indonesia tidak menerima gabungan perusahaan dan tidak menerima lowongan kerja. Muhammad Nurcahyo Pratomo bekerja sendiri selamanya di perusahaan PT JowoScript Technology Indonesia sebagai pemilik perusahaan dan pembuat produk</b></li>
 		<li>Muhammad Nurcahyo Pratomo menunggu waktu perusahaan mana lagi bangkrut atau pailit tahun ini ya buktikan saja laporan keuangan perusahaan kalian tahun ini. Bicara untung tapi rugi terus nanti terlihat.</li>
 		<li>Muhammad Nurcahyo Pratomo terus berkembang di rumah siapa goblok selama ini kalian tidak punya uang untuk beli produk pasti nonton terus kalian jadi pengangguran dan tidak produktif fakta ya baca harga lisensinya ya punya uang segitu apa siapa miskin kalo tidak punya uang untuk beli simple logic. Muhammad Nurcahyo Pratomo hidup sederhana Tidak punya hutang setiap hari bisa makan, jajan, udut dan kopi kalian belum tentu bisa kerja terus ya sampai mati di kantor hahahaha fakta itu resiko jadi orang goblok di dunia kerja</li>
 		<li>Produk otomatis terkunci jika pembelian sudah melewati tanggal di tentukan karena orang gpblok selama ini mau niru belum tentu mampu buat produk ya sesuai kata kata gue   semakin lama semakin asik siapa goblok akan bermunculan terus di dunia kerja. Di modalin pemerintah duluan kalian percuma kalo goblok tetap tidak bisa niru buat produk ya siapa pailit selama ini akan terlihat terus menerus</li>
