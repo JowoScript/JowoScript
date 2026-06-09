@@ -15,7 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai
+	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini tapi sadar diri ya 
 	<br><br>
 	The checkmate forever 
 	<br><br>
