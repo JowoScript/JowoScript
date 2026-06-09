@@ -47,7 +47,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye</li>
+		<li><b>Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye</b></li>
 		<li>Siapa buka lowongan kerja selama ini kalian mampus bayar pesangon pegawai kalo pemutusan hubungan kerja. Perusahaan gue sendiri saja tidak pernah buka lowongan kerja biar pada mati bego bego dari gue ya makan tuh test masuk kerja dulu makin lama makin asik ya</li>
 		<li><b>Saldo sedikit usaha ayam saja kalian jangan beli produk perusahaan gue ya paham kata kata gue. Harganya bisa di baca ya kalo goblok sekolah lagi sana ya</b></li>
 		<li><b>Hanya menunggu waktu perusahaan mana pailit kedepannya</b></li>
