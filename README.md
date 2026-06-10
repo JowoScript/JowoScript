@@ -19,7 +19,7 @@
 	<br><br>
 	Gue sudah pernah kerja dulu lebih paham isi di dunia kerja gimana mampus bego bego di dunia kerja. Gantian gue dirikan perusahaan sendiri dan produk sendiri tidak gratis siapa lebih goblok dari gue akan terlihat terus ya
 	<br><br>
-	Emang penting bagi gue gabung pengusaha tidak penting karena susah tidak ada nolong seperti lamar kerja juga begitu bukan. pengalaman gue lebih banyak dari suka muncul di publik
+	Emang penting bagi gue gabung perkumpulan pengusaha ? tidak penting karena susah tidak ada nolong seperti lamar kerja juga begitu bukan. pengalaman gue lebih banyak dari suka muncul di publik
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini tapi tidak sadar diri ya kalian
 	<br><br>
