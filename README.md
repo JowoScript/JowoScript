@@ -23,6 +23,8 @@
 	<br><br>
 	Mereka kalo datang untuk perayaaan kalo gue berhasil mereka lah pecundang sejati karena gue susah selama ini buat produk juga sendiri ya
 	<br><br>
+	manusia pecundang biasanya tidak punya kontribusi sama sekali ke gue tapi mau enaknya doang
+	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini tapi tidak sadar diri ya kalian
 	<br><br>
 	The checkmate forever 
