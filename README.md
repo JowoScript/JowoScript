@@ -59,7 +59,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Selama ini pemerintah dan perusahaan swasta belum ada beli jadi paham ya kalian</li>
+		<li>Selama ini pemerintah , perusahaan swasta dan yayasan sekolah swasta atau sekolah milik negara belum ada beli jadi paham ya kalian</li>
 		<li><b>Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini</b></li>
 		<li>Siapa buka lowongan kerja selama ini kalian mampus bayar pesangon pegawai kalo pemutusan hubungan kerja. Perusahaan gue sendiri saja tidak pernah buka lowongan kerja biar pada mati bego bego dari gue ya makan tuh test masuk kerja dulu makin lama makin asik ya</li>
 		<li><b>Saldo sedikit usaha ayam saja kalian jangan beli produk perusahaan gue ya paham kata kata gue. Harganya bisa di baca ya kalo goblok sekolah lagi sana ya</b></li>
