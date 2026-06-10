@@ -15,7 +15,9 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-	Bertanding tidak bisa buat produk gue di akhir pasti kena pancal endase kalian mampus siapa goblok pegang omongan gue sudah pengalaman kerja dulu ya
+	Bertanding tidak bisa buat produk gue di akhir pasti kena pancal endase kalian mampus siapa goblok pegang omongan gue
+	<br><br>
+	Gue sudah pernah kerja lebih paham isi di dunia kerja gimana mampus bego bego di dunia kerja
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini tapi tidak sadar diri ya kalian
 	<br><br>
