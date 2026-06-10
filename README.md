@@ -56,7 +56,7 @@
 <div>
 	<ul>
 		<li><b>Hanya Muhammad Nurcahyo Pratomo bisa kembangkan produk jadi biar paham siapa jadi sampah selama ini kalian dan goblok selama ini kalian dan siapa tertawa di akhir itu Muhammad Nurcahyo Pratomo ya sesuai judul bukan semakin lama semakin asik ya biar pada mati goblok goblok</b></li>
-		<li>Harga produk tidak bisa kurang dan naik setiap new version biar mampus goblok goblok nanti ganti kekuasaan siapa kena bantai itu kalian tidak beli tapi di danai pemerintah atau invenstor pegang omongan gue lebih paham politik</li>
+		<li>Harga produk tidak bisa kurang dan naik setiap new version biar mampus goblok goblok nanti setiap pemilihan presiden 5 tahun sekali siapa kena bantai itu kalian tidak beli tapi di danai pemerintah atau invenstor pegang omongan gue lebih paham politik</li>
 		<li>Perusahaan nerima subsidi dari pemerintah banyak selama ini tapi tidak sadar diri mereka</li>
 		<li>Siapa di siksa terus kalian bidang bagian teknologi informasi kerja di pemerintahan dan swasta</li>
 		<li>Selama ini pemerintah , perusahaan swasta dan yayasan sekolah swasta atau sekolah milik negara belum ada beli jadi paham ya kalian siapa suka nipu selama ini habis kalian di akhir</li>
