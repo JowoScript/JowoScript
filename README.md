@@ -59,6 +59,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Perusahaan nerima subsidi dari pemerintah banyak selama ini tapi tidak sadar diri mereka</li>
 		<li>Siapa di siksa terus kalian bidang bagian teknologi informasi kerja di pemerintahan dan swasta</li>
 		<li>Selama ini pemerintah , perusahaan swasta dan yayasan sekolah swasta atau sekolah milik negara belum ada beli jadi paham ya kalian siapa suka nipu selama ini habis kalian di akhir</li>
 		<li><b>Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini</b></li>
