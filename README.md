@@ -15,6 +15,8 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
+	whats the revamp hahahaha blablabla easy for me
+	<br><br>
 	Bertanding tidak bisa buat produk gue di akhir pasti kena pancal endase kalian mampus siapa goblok pegang omongan gue
 	<br><br>
 	Gue sudah pernah kerja dulu lebih paham isi di dunia kerja gimana mampus bego bego di dunia kerja. Gantian gue dirikan perusahaan sendiri dan produk sendiri tidak gratis siapa lebih goblok dari gue akan terlihat terus ya
