@@ -21,7 +21,7 @@
 	<br><br>
 	Emang penting bagi gue gabung perkumpulan assosiasi pengusaha ? tidak penting karena susah tidak ada nolong seperti lamar kerja juga begitu bukan. pengalaman gue lebih banyak dari suka muncul di publik paham ya kalian
 	<br><br>
-	Mereka kalo datang untuk perayaaan kalo gue berhasil mereka lah pecundang sejati karena gue susah selama ini juga sendiri ya
+	Mereka kalo datang untuk perayaaan kalo gue berhasil mereka lah pecundang sejati karena gue susah selama ini buat produk juga sendiri ya
 	<br><br>
 	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini tapi tidak sadar diri ya kalian
 	<br><br>
