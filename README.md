@@ -308,6 +308,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 ### Legal Rights of Technology Creators and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label powered PT JowoScript Technology Indonesia. Specifically for purchasing licensed products. So whos stupid until now
 <div align="justify">
 <ol>
+	<li>Jangan buka lowongan kerja dulu biar pada mati lebih goblok dari gue bisa apa mereka kalo skill biasa saja ya</li>
 	<li>Seleksi kerja lulus atau tidak lulus wajib di tentukan sepenuhnya oleh Muhammad Nurcahyo Pratomo dan tidak bisa di ganggu gugat oleh pihak manapun itu karena bermasalah bisa jadi penyusup</li>
 	<li>Mahkamah Agung sebagai peninjau dan tangan kanannya Muhammad Nurcahyo Pratomo langsung untuk hukum berkelanjutan dan militer bagian ekseskusi jika pemerintah sudah beli selama belum beli ya nonton saja sambil blacklist karena tidak rugi blacklist bermasalah dengan Muhammad Nurcahyo Pratomo</li>
 	<li>Aturan Hukum Muhammad Nurcahyo Pratomo tidak bisa di ganggu gugat oleh pihak manapun baik itu pidana, perdata, konsitusi, adat, undang undang, trakta, yurisprudensi  dan sejenisnya. Hukum tetap mutlak di atas apapun itu. the checkmate forever</li>
