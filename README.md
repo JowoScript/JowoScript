@@ -26,7 +26,7 @@ Small company have higher value the future
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
-#### Original product has label powered by PT JowoScript Technology Indonesia. sesuai judul orang mau nipu gue di akhir mati sendiri. Hobinya ngumpulin uang tapi tidak beli mampus di akhir karena orang goblok sok pintar dari gue itu banyak. Sesuai judul orang sok pinter dari gue di akhir jadi bahan hinaan dan amukan banyak orang. Siapa lagi orang goblok dan dungu suka ngarang cerita lagi. Paham sampai sini
+#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya nonton saja kalian ya
 
 #### Purchases of licensed products must be paid in full without debt or credit di baca ya kalo goblok
 <img src="About Kingdom Technology version 1.4.45.png" 
