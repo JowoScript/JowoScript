@@ -34,6 +34,7 @@ Small company have higher value the future
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
 	 <img src="Account License Of Kingdom Technology version 1.4.45.png" height="100%" width="100%"></img>
+<img src="FB_IMG_1781619362766.jpg" height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
@@ -41,7 +42,7 @@ Small company have higher value the future
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
-     alt="PT JowoScript Technology Indonesia"     
+     alt="PT JowoScript Technology Indonesia"    " 
      height="100%" width="100%"></img>
  
 #### PT JowoScript Technology Indonesia small talk
