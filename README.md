@@ -38,7 +38,7 @@ Small company have higher value the future
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
-#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang untuk beli ya nonton saja kaloan
+#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan PT JowoScript Technology Indonesia ya baik baik kalian banyak gaya sama gue selama ini
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
