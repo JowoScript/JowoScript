@@ -15,15 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-	Bertanding tidak bisa buat produk gue di akhir pasti kena pancal endase kalian mampus siapa goblok pegang omongan gue
-	<br><br>
-	Gue sudah pernah kerja dulu lebih paham isi di dunia kerja gimana mampus bego bego di dunia kerja. Gantian gue dirikan perusahaan sendiri dan produk sendiri tidak gratis siapa lebih goblok dari gue akan terlihat terus ya
-	<br><br>
-	Emang penting bagi gue gabung perkumpulan assosiasi pengusaha ? tidak penting karena susah tidak ada nolong seperti lamar kerja juga begitu bukan. pengalaman gue lebih banyak dari suka muncul di publik paham ya kalian
-	<br><br>
-	manusia pecundang biasanya tidak punya kontribusi sama sekali ke gue tapi mau enaknya doang apa lagi minta gratisan ye tidak mau modal apa apa hanya modal cangkem doang seperti dj nya
-	<br><br>
-	Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini tapi tidak sadar diri ya kalian
+Small company have higher value the future 
 	<br><br>
 	The checkmate forever 
 	<br><br>
