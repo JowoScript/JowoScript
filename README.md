@@ -15,7 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-Small company have higher value the future 
+Tetap santai gue dimana perusahaan lain banyak gagal bayar hutang kepada pemodal
 	<br><br>
 	The checkmate forever 
 	<br><br>
