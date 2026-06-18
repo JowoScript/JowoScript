@@ -64,7 +64,7 @@
 	</li>
 	<li>JavaScript Programming Language Free license</li>
 		<li>C and C++ Programming Language Free license</Li>
-		<li>C# Programming Language Free License< </li>
+		<li>C# Programming Language Free License</li>
 </ol>
 		</div>
 			
