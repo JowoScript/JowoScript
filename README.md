@@ -48,6 +48,8 @@
 ### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
 <div align="justify">
 <ol>
+	<li>Assembly Programming Language free license</li>
+	<li>Cobol Programming Language free license</li>
 	<li>JowoScript Programming Language no free license</li>
 		<li>Jowo Kingdom Programming Language no free license</li>
 	<li>Jowo Style Sheets Programing Language no free license</li>
