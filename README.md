@@ -15,7 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-Berfikir untuk 10 tahun kedepan ya kalo goblok kalian dan aturan gue buat tidak akan berubah ya
+Berfikir untuk 10 tahun kedepan ya kalo goblok kalian dan aturan gue buat tidak akan berubah ya gimana bisnis sekarang makin sulit kedepannya kalian tidak berfikir kalo goblok
 	<br><br>
 	The checkmate forever 
 	<br><br>
