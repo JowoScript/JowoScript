@@ -41,9 +41,31 @@
 
 <img src="Kingdom Technology CMD.png" 
      title="PT JowoScript Technology Indonesia"
-     alt="PT JowoScript Technology Indonesia"    " 
+     alt="PT JowoScript Technology Indonesia"
      height="100%" width="100%"></img>
- 
+
+
+### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
+<div align="normal">
+<ol>
+	<li>JowoScript Programming Language<</li>
+		<li>Jowo Kingdom Programming Language</li>
+		<li>JHTML Programming Language</li>
+		<li>HTML Programming Language</li>
+		<li>JML Programming Language</li>
+		<li>XML Programming Language</li>
+		<li>JON Programming Language</li>
+		<li>JSON Programming Language</li>
+		<li>Jowo Query Language or JQL Programming Language</li>
+		<li>SQL Programming Language</li>
+	<li>PHP Programming Language
+	</li>
+	<li>JavaScript Programming Language</li>
+		<li>C and C++ Programming Language</Li>
+		<li>C# Programming Language< </li>
+</ol>
+		</div>
+			
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
@@ -374,6 +396,27 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 </ol>
 </div>
 
+### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
+<div align="justify">
+<ol>
+	<li>JowoScript Programming Language<</li>
+		<li>Jowo Kingdom Programming Language</li>
+		<li>JHTML Programming Language</li>
+		<li>HTML Programming Language</li>
+		<li>JML Programming Language</li>
+		<li>XML Programming Language</li>
+		<li>JON Programming Language</li>
+		<li>JSON Programming Language</li>
+		<li>Jowo Query Language or JQL Programming Language</li>
+		<li>SQL Programming Language</li>
+	<li>PHP Programming Language
+	</li>
+	<li>JavaScript Programming Language</li>
+		<li>C and C++ Programming Language</Li>
+		<li>C# Programming Language< </li>
+</ol>
+		</div>
+			
 ### Support Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
 <div align="justify">
 <ol>
