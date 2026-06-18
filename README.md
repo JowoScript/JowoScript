@@ -15,7 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-Tetap santai gue dimana perusahaan lain banyak gagal bayar hutang kepada pemodal
+Berfikir untuk 10 tahun kedepan ya kalo goblok kalian dan aturan gue buat tidak akan berubah ya
 	<br><br>
 	The checkmate forever 
 	<br><br>
