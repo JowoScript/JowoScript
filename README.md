@@ -17,7 +17,7 @@
 	<br><br>
 Berfikir untuk 10 tahun kedepan ya kalo goblok kalian dan aturan gue buat tidak akan berubah ya gimana persaingan bisnis sekarang makin sulit gimana kedepannya kalian tidak berfikir kalo goblok
 	<br><br>
-	Mahkamah Agung sebagai peninjau hukum gue buat menjadi tangan kanan gue kalo pemerintah yang beli selama belum beli blacklist saja dulu dan tugas TNI menjaga Mahkamah Agung dan gue dari intimidasi pihak luar. Harga lisensi segitu gue bisa makmur kan banyak orang nantinya selama ini gue mau jadi iblis dulu persulit gue dulu dan bermasalah sama gue biar pada mampus
+	Mahkamah Agung sebagai peninjau hukum gue buat menjadi tangan kanan gue kalo pemerintah yang beli selama belum beli blacklist saja dulu dan tugas TNI menjaga Mahkamah Agung dan gue dari intimidasi pihak luar. Harga lisensi segitu gue bisa makmur kan banyak orang nantinya selama ini gue mau jadi iblis dulu bukan malaikat ye paham persulit gue dulu dan bermasalah sama gue biar pada mampus
 	<br><br>
 	The checkmate forever 
 	<br><br>
