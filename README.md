@@ -46,9 +46,9 @@
 
 
 ### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
-<div align="normal">
+<div align="justify">
 <ol>
-	<li>JowoScript Programming Language<</li>
+	<li>JowoScript Programming Language</li>
 		<li>Jowo Kingdom Programming Language</li>
 		<li>JHTML Programming Language</li>
 		<li>HTML Programming Language</li>
