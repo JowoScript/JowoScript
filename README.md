@@ -48,21 +48,23 @@
 ### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
 <div align="justify">
 <ol>
-	<li>JowoScript Programming Language</li>
-		<li>Jowo Kingdom Programming Language</li>
-		<li>JHTML Programming Language</li>
-		<li>HTML Programming Language</li>
-		<li>JML Programming Language</li>
-		<li>XML Programming Language</li>
-		<li>JON Programming Language</li>
-		<li>JSON Programming Language</li>
-		<li>Jowo Query Language or JQL Programming Language</li>
-		<li>SQL Programming Language</li>
-	<li>PHP Programming Language
+	<li>JowoScript Programming Language no free license</li>
+		<li>Jowo Kingdom Programming Language no free license</li>
+	<li>Jowo Style Sheets Programing Language no free license</li>
+	<li>Cascading Style Sheets Programing Language free license</li>
+		<li>JHTML Programming Language no free license</li>
+		<li>HTML Programming Language free license</li>
+		<li>JML Programming Language no free license</li>
+		<li>XML Programming Language free license</li>
+		<li>JON Programming Language no free license</li>
+		<li>JSON Programming Language free license</li>
+		<li>Jowo Query Language or JQL Programming Language no free license</li>
+		<li>SQL Programming Language free license</li>
+	<li>PHP Programming Language free license
 	</li>
-	<li>JavaScript Programming Language</li>
-		<li>C and C++ Programming Language</Li>
-		<li>C# Programming Language< </li>
+	<li>JavaScript Programming Language Free license</li>
+		<li>C and C++ Programming Language Free license</Li>
+		<li>C# Programming Language Free License< </li>
 </ol>
 		</div>
 			
