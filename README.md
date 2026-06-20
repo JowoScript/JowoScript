@@ -13,7 +13,7 @@
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, productive technology and capabilities technology 
 	<br><br>
-	Perusahaan gue sendiri tidak akan tutup sampai kapanpun siapa begi kalian 
+	Perusahaan gue sendiri tidak akan tutup sampai kapanpun siapa bego kalian banyak gaya
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
