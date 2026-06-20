@@ -187,7 +187,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Siapa sudah masuk blacklist gue otomatis perusahaan or istansi mereka akan banned di produk gue buat baik itu domain name dan localhost apa gue pernah becanda ? tidak pernah ya</li>
+		<li>Siapa sudah masuk blacklist gue otomatis perusahaan or istansi mereka akan gue banned secara permanen di produk gue buat baik itu domain name dan localhost apa gue pernah becanda ? tidak pernah ya</li>
 		<li>Gue kalo bego tidak mungkin berani sendiri dari awal buat produk sampai sekarang dan tanpa backing an seperti kalian itu fakta ya. Karena pengecut dan punya nyali beda kelas ya. Mampus bego bego di dunia kerja dan dunia usaha ya</li>
 		<li>Semua test ujian itu sudah pernah gue coba dari ujian tertulis dan berbasis komputer gantian siapa goblok seterusnya tidak gratis produk perusahaan gue dan terbukti sampai sekarang tidak gratis kalian nonton terus</li>
 		<li>Olah raga orang pintar seperti gue jadi tukang bangunan badan gerak semua kalo bosen coding bukan tukang ojek atau olah raga gym ya tidak butuh keahlian kecuali gengsi boleh kalian pilih olah raga gym contoh angkat semen 1 sak itu berat 50 KG dan angkat ember biasa 2 kg itu pasti. tukang bangunan butuh keahlian contoh aduk semen, cat ruang an, plester retakan, manjat genteng, pembagian arus listrik pakai sekring MCB (Miniature Circuit Breaker) wajib, instalasi listrik dan sebagainya</li>
