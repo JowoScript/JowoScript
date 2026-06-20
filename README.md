@@ -15,7 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-	mau gratisan Buat saja sendiri kalian kalo tidak berhasil resiko kalian masing-masing ya kalo kalian bego jangan ya nanti resikonya berat
+	salah siapa buka lowongan kerja kalo bego itu mikir kalian
 	<br><br>
 	The checkmate forever 
 	<br><br>
