@@ -51,24 +51,24 @@
 <ol>
 	<li>Assembly Programming Language free license</li>
 	<li>Cobol Programming Language free license</li>
-	<li>JowoScript Programming Language no free license</li>
-		<li>Jowo Kingdom Programming Language no free license</li>
-	<li>Jowo Style Sheets Programing Language no free license</li>
+	<li>JowoScript Programming Language no free license this part of products</li>
+		<li>Jowo Kingdom Programming Language no free license this part of products</li>
+	<li>Jowo Style Sheets Programing Language no free license this part of products</li>
 	<li>Cascading Style Sheets Programing Language free license</li>
-		<li>JHTML Programming Language no free license</li>
+		<li>JHTML Programming Language no free license this part of products</li>
 		<li>HTML Programming Language free license</li>
-		<li>JML Programming Language no free license</li>
+		<li>JML Programming Language no free license this part of products</li>
 		<li>XML Programming Language free license</li>
-		<li>JON Programming Language no free license</li>
+		<li>JON Programming Language no free license this part of product</li>
 		<li>JSON Programming Language free license</li>
-		<li>Jowo Query Language or JQL Programming Language no free license</li>
+		<li>Jowo Query Language or JQL Programming Language no free license this part of products</li>
 		<li>SQL Programming Language free license</li>
 	<li>PHP Programming Language free license
 	</li>
 	<li>JavaScript Programming Language Free license</li>
 		<li>C and C++ Programming Language Free license</Li>
 		<li>C# Programming Language Free License</li>
-	<li>Chy and Chy++ Programming Language no free license</li>
+	<li>Chy and Chy++ Programming Language no free license this part of products</li>
 </ol>
 		</div>
 			
