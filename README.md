@@ -15,7 +15,7 @@
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
-	tidak punya uang nonton saja siapa miskin kalian tidak puyuang untuk beli di baca harganya 
+	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
 	<br><br>
 	The checkmate forever 
 	<br><br>
