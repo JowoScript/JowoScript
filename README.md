@@ -55,6 +55,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
 </ol>
+
 ### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
 <div align="justify">
 <ol>
