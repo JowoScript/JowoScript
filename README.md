@@ -58,6 +58,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 	<li>Bisa bangun usaha atau perusahaan assuransi baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun usaha atau perusahaan bank baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun kecerdasan buatan baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
+	<li>Bisa bangun e-commerce baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 </ol>
 </div>
 
