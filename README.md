@@ -260,7 +260,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 ### Blacklist data is problematic with its Muhammad Nurcahyo Pratomo based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future). They never think 10 years or more about technology information 
 <div align="justify">
 <ol>
-	<li>Universitas Budi Luhur fosen bermasalah sama gue dan bermuka dua ada ya</li>
+	<li>Universitas Budi Luhur fosen bermasalah sama gue dan bermuka dua ada ya siapa kena pecat juga bukan gue ini ya</li>
 	<li>Nvidia corporate ada penyusup musuh musuh gue kerja disana</li>
 	<li>Meta inc ada penyusup musuh musuh gue kerja disana</li>
 	<li>Badan Kepegawaian Negara persulit Muhammad Nurcahyo Pratomo dulu test kerja lewat CAT berbasis komputer dan orang hasil titipan bisa lulus CAT berbasis komputer semua bisa di rekayasa dari dulu ya giliran Muhammad Nurcahyo Pratomo tidak bisa dulu so gantian Muhammad Nurcahyo Pratomo blacklist BKN siapa goblok selama ini</li>
