@@ -13,7 +13,7 @@
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, productive technology and capabilities technology 
 	<br><br>
-	lulus sekolah kalian tidak menjamin dapat kerja siapa bego
+	lulus sekolah kalian tidak menjamin dapat kerja siapa bego kalian sekolah selama ini ya
 	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
