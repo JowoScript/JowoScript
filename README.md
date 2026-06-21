@@ -13,7 +13,7 @@
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, productive technology and capabilities technology 
 	<br><br>
-	Gelar tinggi sampai doktor banyak tapi menciptakan pengangguran mereka
+	Gelar tinggi sampai doktor banyak di Indonesia tapi menciptakan pengangguran mereka
 	<br><br>
 	lulus sekolah kalian tidak menjamin dapat kerja siapa bego kalian sekolah selama ini ya
 	<br><br>
