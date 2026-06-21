@@ -52,12 +52,12 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 ### Kelebihan bisnis untuk beli produk 
 <div align="justify">
 <ol>
-	<li>Bisa bangun sekolah sendiri </li>
-	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks</li>
+	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
+	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
-	<li>Bisa bangun perusahaan assuransi baru dengan teknologi baru</li>
-	<li>Bisa bangun perusahaan bank baru dengan teknologi baru</li>
-	<li>Bisa bangun kecerdasan buatan baru dengan teknologi baru</li>
+	<li>Bisa bangun usaha atau perusahaan assuransi baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
+	<li>Bisa bangun usaha atau perusahaan bank baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
+	<li>Bisa bangun kecerdasan buatan baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 </ol>
 </div>
 
