@@ -97,7 +97,8 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Pengusaha modal sendiri goblok goblok nonton saja ya kalo miskin semakin lama semakin asik biar pada mati kelaparan di akhir oleh persaingan. Pegang omongan gue</li>
+		<li>Kalo pengangguran dan skill coding di bawah gue biar pada mati bisa usaha apa mereka gue tanya ?</li>
+		<li>Kalo saingan gue Pengusaha modal sendiri goblok goblok nonton saja ya kalo miskin semakin lama semakin asik biar pada mati kelaparan di akhir oleh persaingan. Pegang omongan gue</li>
 		<li>Pengusaha modal sendiri goblok goblok nonton saja ya kalo miskin jangan beli ya</li>
 		<li>Di modali besar duluan oleh pemerintah atau investor belum tentu bisa buat produk gue ya. Waktu akan bicara ya siapa goblok dan pintar akan terlihat</li>
 		<li><b>Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian</b></li>
