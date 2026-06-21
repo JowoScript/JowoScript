@@ -50,11 +50,14 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
      height="100%" width="100%"></img>
 
 ### Kelebihan bisnis untuk beli produk 
+<div align="justify">
 <ol>
 	<li>Bisa bangun sekolah sendiri </li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
 </ol>
+</div>
+
 
 ### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
 <div align="justify">
