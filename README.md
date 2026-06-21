@@ -97,7 +97,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Di modalin besar duluan oleh investor atau pemerintah belum tentu bisa buat produk gue ya</li>
+		<li>Di modali besar duluan oleh pemerintah atau investor belum tentu bisa buat produk gue ya. Waktu akan bicara ya siapa goblok dan pintar akan terlihat</li>
 		<li><b>Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian</b></li>
 		<li>Gelar tinggi sampai doktor dan master banyak di Indonesia tapi menciptakan pengangguran mereka fakta apa bukan ? fakta ya semakin lama akan terlihat nanti</li>
 		<li><b>Hanya Muhammad Nurcahyo Pratomo bisa kembangkan produk jadi biar paham siapa jadi sampah selama ini kalian dan goblok selama ini kalian dan siapa tertawa di akhir itu Muhammad Nurcahyo Pratomo ya sesuai judul bukan semakin lama semakin asik ya biar pada mati goblok goblok</b></li>
