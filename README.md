@@ -55,6 +55,9 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 	<li>Bisa bangun sekolah sendiri </li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
+	<li>Bisa bangun perusahaan assuransi baru dengan teknologi baru</li>
+	<li>Bisa bangun perusahaan bank baru dengan teknologi baru</li>
+	<li>Bisa bangun kecerdasan buatan baru dengan teknologi baru</li>
 </ol>
 </div>
 
