@@ -49,7 +49,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
      alt="PT JowoScript Technology Indonesia"
      height="100%" width="100%"></img>
 
-### Kelebihan bisnis untuk beli produk 
+### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
 <div align="justify">
 <ol>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
