@@ -99,6 +99,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Siapa suka nipu gue main keroyokan nanti gue keroyok balik habis kalian paham kata kata gue tidak pernah becanda ya</li>
 		<li>Tidak punya uang mau beli ya pasti gue ketawain ya tetap gue suruh pulang nanti ya karena produk tidak gratisan ya</li>
 		<li><b>Pembelian produk asli bukan palsu tidak di layani secara online tapi wajib datang ke tempat alamat perusahaan saya di JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten. Produk tidak di jualan online ya. Wajib datang ke tempat untuk beli produk. Tinggal kunci no rekening penipuan kalo ada jual produk perusahaan saya secara online ya. Di luar itu perusahaan tidak akan bertanggung jawab atas produk palsu di jual online. Kalo salah mana berani kalian datang ya simple logic. Semakin lama semakin asik ya biar pada mati suka nipu</b></li>
 		<li>Modal ganteng atau cantik doang tidak berlaku zaman now bisa di lihat persaingan makin berat kedepannya dari dunia kerja atau dunia usaha ya</li>
