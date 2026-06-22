@@ -99,7 +99,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Tidak punya uang mau beli ya pasti gue ketawain ya tetap gue suih pulang nanti ya</li>
+		<li>Tidak punya uang mau beli ya pasti gue ketawain ya tetap gue suruh pulang nanti ya karena produk tidak gratisan ya</li>
 		<li><b>Pembelian produk asli bukan palsu tidak di layani secara online tapi wajib datang ke tempat alamat perusahaan saya di JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten. Produk tidak di jualan online ya. Wajib datang ke tempat untuk beli produk. Tinggal kunci no rekening penipuan kalo ada jual produk perusahaan saya secara online ya. Di luar itu perusahaan tidak akan bertanggung jawab atas produk palsu di jual online</b></li>
 		<li>Modal ganteng atau cantik doang tidak berlaku zaman now bisa di lihat persaingan makin berat kedepannya dari dunia kerja atau dunia usaha ya</li>
 		<li>Kalo pengangguran dan skill coding di bawah gue biar pada mati bisa usaha apa mereka gue tanya ?</li>
