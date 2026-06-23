@@ -99,6 +99,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Orang pintar bicara berisik itu beda ya dengan goblok itu resiko selama belum beli siapa tumbang bukan gue</li>
 		<li>Semakin lama semakin asik ya semua itu ada audit keuangan ya</li>
 		<li>Di danai pemerintah teknologi informasi selama ini mereka kerja hasilnya apa ya. Gue pernah kerja dulu jadi paham siapa kena tekanan kerja terus 🤪 di akhir pada kena pecat dan efesien pegawai ya</li>
 		<li><b>Siapa suka nipu gue main keroyokan nanti gue keroyok balik habis kelompok kalian paham kata kata gue tidak pernah becanda ya</b></li>
