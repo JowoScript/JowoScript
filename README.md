@@ -225,6 +225,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Kalo saingan gue pengangguran dan pensiunan biar nonton terus selama belum beli ya</li>
 		<li>Orang pintar bicara berisik itu beda ya dengan orang goblok ya ✍️📚</li>
 		<li>Siapa sudah masuk blacklist gue otomatis perusahaan or istansi mereka akan gue banned secara permanen di produk gue buat baik itu domain name dan localhost apa gue pernah becanda ? tidak pernah ya</li>
 		<li>Gue kalo bego tidak mungkin berani sendiri dari awal buat produk sampai sekarang dan tanpa backing an seperti kalian itu fakta ya. Karena pengecut dan punya nyali beda kelas ya. Mampus bego bego di dunia kerja dan dunia usaha ya</li>
