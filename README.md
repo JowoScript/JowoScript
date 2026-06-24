@@ -13,6 +13,8 @@
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, productive technology and capabilities technology 
 	<br><br>
+	Pedagang gorengan saja usaha sendiri saja berani kenapa gue tidak bisa ya. Biar mampus goblok goblok tidak ada skill ya
+	<br><br>
 	Gelar tinggi kalo jadi pengangguran untuk apa ya hahahaha kasihan benar ya
 	<br><br>
 	Banyak Universitas menciptakan Gelar tinggi sampai doktor dan master banyak di Indonesia tapi menciptakan pengangguran mereka fakta apa bukan ? fakta ya semakin lama akan terlihat nanti
