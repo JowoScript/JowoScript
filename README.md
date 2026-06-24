@@ -13,7 +13,7 @@
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, productive technology and capabilities technology 
 	<br><br>
-	Pedagang gorengan saja usaha sendiri saja berani kenapa gue tidak bisa ya. Biar mampus goblok goblok tidak ada skill ya
+	Pedagang gorengan saja usaha sendiri saja berani kenapa gue tidak bisa ya. Hobinya suka nipu di online juga pada mati di akhir mampus
 	<br><br>
 	Gelar tinggi kalo jadi pengangguran untuk apa ya hahahaha kasihan benar ya
 	<br><br>
