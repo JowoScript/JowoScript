@@ -13,9 +13,7 @@
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, productive technology and capabilities technology 
 	<br><br>
-	semakin lama semakin asik ya bersih bersih sampah dan orang goblok
-	<br><br>
-	Gelar tinggi kalo jadi pengangguran untuk apa ya hahahaha kasihan benar ya
+	Makin lama makin asik siapa goblok akan terlihat terus ya
 	<br><br>
 	Banyak Universitas menciptakan Gelar tinggi sampai doktor dan master banyak di Indonesia tapi menciptakan pengangguran mereka fakta apa bukan ? fakta ya semakin lama akan terlihat nanti
 	<br><br>
