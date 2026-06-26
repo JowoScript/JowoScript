@@ -15,7 +15,7 @@
 	<br><br>
 	Makin lama makin asik siapa goblok akan terlihat terus ya 
 	<br><br>
-	Perusahaan buat software mana akan pailit tahun ini ya. biasa di manja duluan beda dengan tidak di manja duluan
+	Perusahaan buat software mana akan pailit tahun ini ya. biasa di manja duluan beda dengan tidak di manja duluan ya. di danai duluan setiap tahun belum tentu hebat mereka 
 	<br><br>
 	Banyak Universitas menciptakan Gelar tinggi sampai doktor dan master banyak di Indonesia tapi menciptakan pengangguran mereka fakta apa bukan ? fakta ya semakin lama akan terlihat nanti
 	<br><br>
