@@ -26,7 +26,7 @@
 apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian
 	<br><br>
 	Di dalam keluarga besar gue tidak ada berani atur gue karena gue pemilik perusahaan sendiri ya
-	<br>
+	<br><br>
 	The checkmate forever 
 	<br><br>
 	Introduction
