@@ -21,6 +21,8 @@
 	<br><br>
 	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
 	<br><br>
+	Mahkamah agung akan jadi tangan kanan perusahaan saya jika pemerintah yang beli berfungsi untuk meninjau hukum yang gue buat di dalam produk bukan anggota dewan sebagai peninjau 
+	<br><br>
 apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian
 	<br>
 	The checkmate forever 
