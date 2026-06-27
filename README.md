@@ -21,6 +21,8 @@
 	<br><br>
 	lulus sekolah kalian tidak menjamin dapat kerja siapa bego kalian sekolah selama ini ya
 	<br><br>
+	Alamat kantor
+	<br><br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 	<br><br>
 	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
