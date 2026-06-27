@@ -66,6 +66,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 	<li>Bisa bangun media sosial baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun content management system baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 <li>Bisa bangun media portal berita baru atau media siber baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
+	<li>Bisa bangun new operasi sistem jika kamu tau caranya ya</li>
 </ol>
 </div>
 
