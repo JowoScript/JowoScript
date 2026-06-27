@@ -1036,7 +1036,7 @@ After (license be purchased) to Licensed under privilege of purchaser's legality
 
 #### Alamat kantor usaha
 ```html
-	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
+JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
 ```
 
 
