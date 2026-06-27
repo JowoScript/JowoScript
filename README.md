@@ -24,6 +24,8 @@
 	Mau tidak di beli saja masih bisa gue gunakan sendiri nanti produk gue buat itu rencana gue di baca fungsinya gue bukan orang goblok kalo hanya bicara bisnis
 	<br><br>
 apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian
+	<br><br>
+	Di dalam keluarga besar gue tidak ada berani atur gue karena gue pemilik perusahaan sendiri ya
 	<br>
 	The checkmate forever 
 	<br><br>
