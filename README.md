@@ -17,7 +17,7 @@
 	<br>
 	Business office address
 	<br>
-	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
+	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia 
 	<br><br>
 	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
 	<br><br>
@@ -1028,9 +1028,9 @@ After (license be purchased) to Licensed under privilege of purchaser's license 
 After (license be purchased) to Licensed under privilege of purchaser's legality name. Example your company name or organization name or government name
 ```
 
-#### Alamat kantor usaha
+#### Alamat kantor usaha | Business office address
 ```html
-JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten
+JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia 
 ```
 
 
