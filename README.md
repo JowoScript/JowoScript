@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia 
 	<br><br>
+	badan kepegawaian negara buat soal cat komputer tidak punya uang untuk beli saja wajib nonton ya
+	<br><br>
 	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
 	<br><br>
 apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian
