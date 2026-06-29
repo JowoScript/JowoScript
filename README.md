@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia 
 	<br><br>
-	8 perguruan tinggi negeri buka jalur mandiri pasti sepi peminat karena banyak orang goblok mau gratisan tidak mau bayar pendaftaran sekolah hahahaha fakta
+	kalo hanya sekedar makan saja penerima bansos saja juga bisa makan ya hahaha 
 	<br><br>
 	badan kepegawaian negara buat soal cat komputer tidak punya uang untuk beli saja wajib nonton ya siapa goblok selama ini bukan gue ya hahaha 
 	<br><br>
