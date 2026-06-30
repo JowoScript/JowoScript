@@ -231,6 +231,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Beli produk gue wajib tunduk hukum gue buat ya di baca ya di bawah itu aturannya</li>
 		<li>Kalo saingan gue pengangguran dan pensiunan biar nonton terus selama belum beli ya</li>
 		<li>Orang pintar bicara berisik itu beda ya dengan orang goblok ya ✍️📚</li>
 		<li>Siapa sudah masuk blacklist gue otomatis perusahaan or istansi mereka akan gue banned secara permanen di produk gue buat baik itu domain name dan localhost apa gue pernah becanda ? tidak pernah ya</li>
