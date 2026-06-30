@@ -104,6 +104,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Masih numpang biaya hidup di perusahaan dan pemerintah banyak bacot lewat music terlihat selama ini</li>
 		<li>Perusahaan milik sendiri tidak numpang hidup seperti kalian di perusahaan atau pemerintah fakta ya</li>
 		<li>Pemerintah banyak menerima pegawai baru dari dulu tapi pemasukan keuangan sedikit siapa goblok kalian dari gaji dan tunjangan besar saja sudah buat minus anggaran ya belum yang lain ya</li>
 		<li>Kalo saingan gue pengangguran dan pensiunan biar nonton terus selama belum beli ya</li>
