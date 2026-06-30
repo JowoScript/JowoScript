@@ -19,17 +19,13 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia 
 	<br><br>
-	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi.
-	<br><br>
-	badan kepegawaian negara buat soal cat komputer tidak punya uang untuk beli saja wajib nonton ya siapa goblok selama ini bukan gue ya hahaha 
-	<br><br>
-	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
+	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi. semua ada jejak digital ya
 	<br><br>
 	Komisaris dan direktur di BUMN banyak numpang biaya hidup selama ini ya coba jadi pengusaha sendiri bisa apa gue tanya
 	<br><br>
-	Buat soal di badan kepegawaian negara masih numpang biaya hidup di pemerintahan tapi banyak gaya gue lihat hahahaha fakta rah sah cangkeman biar malu di tonton satu bumi
+	Buat soal di badan kepegawaian negara masih numpang biaya hidup di pemerintahan tapi banyak gaya gue lihat hahahaha fakta rah sah cangkeman biar malu di tonton satu bumi. semua ada jejak digital
 	<br><br>
-Anggota DPR RI terima gaji dan tunjangan selama ini termasuk numpang biaya hidup dari pemerintah banyak gaya rapat juga pakai uang rakyat tapi tidak sadar diri mereka rah sah cangkeman fakta biar malu di tonton satu bumi
+Anggota DPR RI terima gaji dan tunjangan selama ini termasuk numpang biaya hidup dari pemerintah banyak gaya rapat juga pakai uang rakyat tapi tidak sadar diri mereka rah sah cangkeman fakta biar malu di tonton satu bumi. semua ada jejak digital
 	<br><br>
 	Dokter dirumah sakit teriina gaji dan tunjangan selama ini dari pemerintah atau swasta tetap masih numpang biaya hidup coba buka praktek sendiri belum tentu laku mereka ya fakta 
 	<br><br>
