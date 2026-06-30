@@ -25,7 +25,7 @@
 	<br><br>
 	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
 	<br><br>
-	Komisaris dan direktur di BUMN banyak numpang biaya hidup selama ini ya coba suih jadi pengusaha sendiri bisa apa gue tanya
+	Komisaris dan direktur di BUMN banyak numpang biaya hidup selama ini ya coba jadi pengusaha sendiri bisa apa gue tanya
 	<br><br>
 	Buat soal di badan kepegawaian negara masih numpang hidup di pemerintahan tapi banyak gaya gue lihat hahahaha fakta
 	<br><br>
