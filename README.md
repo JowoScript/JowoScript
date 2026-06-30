@@ -29,6 +29,8 @@
 	<br><br>
 	Buat soal di badan kepegawaian negara masih numpang biaya hidup di pemerintahan tapi banyak gaya gue lihat hahahaha fakta rah sah cangkeman biar malu di tonton satu bumi
 	<br><br>
+Anggota DPR RI terima gaji dan tunjangan selama ini termasuk numpang biaya hidup dari pemerintah banyak gaya duduk tapi tidak sadar diri mereka 
+	<br><br>
 	Dokter dirumah sakit teriina gaji dan tunjangan selama ini dari pemerintah atau swasta tetap masih numpang biaya hidup coba buka praktek sendiri belum tentu laku mereka ya fakta 
 	<br><br>
 	dosen dosen terima gaji dan tunjangan dari pemerintah termasuk numpang biaya hidup itu fakta
