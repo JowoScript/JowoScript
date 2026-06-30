@@ -25,6 +25,8 @@
 	<br><br>
 	tidak punya uang nonton saja siapa miskin kalian tidak punya uang untuk beli di baca harganya 
 	<br><br>
+	Komisaris dan direktur di BUMN banyak numpang biaya hidup selama ini ya coba suih jadi pengusaha sendiri bisa apa gue tanya
+	<br><br>
 	Buat soal di badan kepegawaian negara masih numpang hidup di pemerintahan tapi banyak gaya gue lihat hahahaha fakta
 	<br><br>
 apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian
