@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia 
 	<br><br>
-	kalo hanya sekedar makan saja penerima bansos saja juga bisa makan ya hahaha 
+	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi.
 	<br><br>
 	badan kepegawaian negara buat soal cat komputer tidak punya uang untuk beli saja wajib nonton ya siapa goblok selama ini bukan gue ya hahaha 
 	<br><br>
