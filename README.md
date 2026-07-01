@@ -241,7 +241,8 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Gue tidak numpang biaya hidup seperti kalian selama ini tidak nerima gaji dan tunjangan dari pemerintah atau swasta ya biar paham siapa sampah selama ini</li>
+		<li>Bangun produk selama ini tidak pakai uang pemerintah dan investor ya. Tidak gratisan biar mampus siapa goblok</li>
+		<li>Gue tidak numpang biaya hidup seperti kalian selama ini tidak nerima gaji dan tunjangan dari pemerintah atau swasta ya.</li>
 		<li>Tidak ada setir gue ya selama ini karena benar pintar akan terlihat</li>
 		<li>Beli produk gue wajib tunduk hukum gue buat ya di baca ya di bawah itu aturannya</li>
 		<li>Kalo saingan gue pengangguran dan pensiunan biar nonton terus selama belum beli ya</li>
