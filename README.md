@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Gue beli barang di online saja kalo kena tipu pasti gue samperin gudang distributor nya langsung malah ketemu teman jabatan nya tinggi di sana sebagai manager area tugasnya ngawasin gudang area masuk dan keluarnya barang J&T jadi kurirnya kalo aneh aneh bisa gue smackdown ngapain gue bohong 
+	Gue beli barang di online saja kalo kena tipu pasti gue samperin gudang distributor nya langsung malah ketemu teman jabatan nya tinggi di sana sebagai manager area tugasnya ngawasin gudang area masuk dan keluarnya barang J&T jadi kurirnya kalo aneh aneh bisa gue smackdown ngapain gue bohong. kurir di bawahnya kepala gudang dan kepala gudang lapornya ke manager area gue lebih paham SOP
 	<br><br>
 	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi. semua ada jejak digital ya
 	<br><br>
