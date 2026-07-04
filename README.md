@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu
+	Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak 
 	<br><br>
 	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi. semua ada jejak digital ya
 	<br><br>
@@ -114,7 +114,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu</li>
+		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak</li>
 		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja mereka termasuk numpang biaya hidup sebenarnya ya baik di pemerintahan atau swasta. Simple logic</li>
 		<li>Masih numpang biaya hidup di perusahaan dan pemerintah banyak bacot lewat music terlihat selama ini</li>
 		<li>Perusahaan milik sendiri tidak numpang hidup seperti kalian di perusahaan atau pemerintah fakta ya</li>
