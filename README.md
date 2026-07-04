@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Gue beli barang di online saja kalo kena tipu pasti gue samperin gudang distributor nya langsung malah ketemu teman jabatan nya tinggi di sana sebagai manager area tugasnya ngawasin gudang area masuk dan keluarnya barang J&T jadi kurirnya kalo aneh aneh bisa gue smackdown ngapain gue bohong. kurir di bawahnya kepala gudang dan kepala gudang lapornya ke manager area gue lebih paham SOP dan manager area laporan nya ke direksi area pusat ya
+	Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu
 	<br><br>
 	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi. semua ada jejak digital ya
 	<br><br>
@@ -114,6 +114,7 @@ apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu</li>
 		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja mereka termasuk numpang biaya hidup sebenarnya ya baik di pemerintahan atau swasta. Simple logic</li>
 		<li>Masih numpang biaya hidup di perusahaan dan pemerintah banyak bacot lewat music terlihat selama ini</li>
 		<li>Perusahaan milik sendiri tidak numpang hidup seperti kalian di perusahaan atau pemerintah fakta ya</li>
