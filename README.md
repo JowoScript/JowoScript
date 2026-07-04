@@ -25,7 +25,7 @@
 	<br><br>
 Tidak lulus cat komputer wajib kena phk statusnya di cabut dari pegawai tetap berani tidak ? mana berani badan kepegawaian negara chicken chicken
 	<br><br>
-	Gue dulu lamar kerja saja pakai cat komputer tidak lulus tidak keterima cpns. masa tidak berani adil ? baby chicker badan kepegawaian negara ya selama ini
+	Gue dulu lamar kerja saja pakai cat komputer tidak lulus tidak keterima cpns. masa tidak berani adil ? baby chicker badan kepegawaian negara ya selama ini nyalinya gak ada mampus di baca rakyat banyak 
 	<br><br>
 	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi. semua ada jejak digital ya
 	<br><br>
