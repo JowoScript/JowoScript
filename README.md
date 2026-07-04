@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Baru 4 tahun gue buat belum 10 tahun kalian pasti mati lebih goblok dari gue
+	Baru 4 tahun gue buat belum 10 tahun kalian pasti mati lebih goblok dari gue. gue berisik bukan bodoh ya lihat usaha siapa tutup selama ini
 	<br><br>
 	Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak 
 	<br><br>
