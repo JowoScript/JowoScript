@@ -23,6 +23,8 @@
 	<br><br>
 	Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak 
 	<br><br>
+Tidak lulus cat komputer wajib kena phk statusnya di cabut dari pegawai tetap berani tidak ? mana berani badan kepegawaian negara chicken chicken 
+	<br><br>
 	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi. semua ada jejak digital ya
 	<br><br>
 	Komisaris dan direktur di BUMN banyak numpang biaya hidup selama ini ya coba jadi pengusaha sendiri bisa apa gue tanya
