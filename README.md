@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	gue kulitin badan kepegawaian negara sampai malu habis siapa goblok selama ini
+	gue kulitin habis habisan badan kepegawaian negara sampai malu habis siapa goblok selama ini berani tidak pecat pecatin kalo tidak lulus cat komputer ? mana berani nyali anak ayam
 	<br><br>
 	Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak 
 	<br><br>
