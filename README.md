@@ -19,33 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	gue kulitin habis habisan badan kepegawaian negara sampai malu habis siapa goblok selama ini berani tidak pecat pecatin kalo tidak lulus cat komputer ? mana berani nyali anak ayam
-	<br><br>
-	Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak 
-	<br><br>
-Tidak lulus cat komputer wajib kena phk statusnya di cabut dari pegawai tetap berani tidak ? mana berani badan kepegawaian negara chicken chicken
-	<br><br>
-	Gue dulu lamar kerja saja pakai cat komputer tidak lulus tidak keterima cpns. masa tidak berani adil ? baby chicker badan kepegawaian negara ya selama ini nyalinya gak ada mampus di baca rakyat banyak 
-	<br><br>
-	ada nya cat komputer itu tahun 2013 jadi di bawah tahun 2013 itu wajib di test ulang semua ya pakai cat komputer
-	<br><br>
-	selama belum beli nonton saja kalian pecundang pecundang karena numpang biaya hidup di pemerintahan atau swasta itu siapa bukan gue ya. Bisa di lihat di media sosial bergaya gaya banyak dari Facebook, LinkedIn, Twitter or X, Instagram dan banyak lagi. semua ada jejak digital ya
-	<br><br>
-	Komisaris dan direktur di BUMN banyak numpang biaya hidup selama ini ya coba jadi pengusaha sendiri bisa apa gue tanya
-	<br><br>
-	Buat soal di badan kepegawaian negara masih numpang biaya hidup di pemerintahan tapi banyak gaya gue lihat hahahaha fakta rah sah cangkeman biar malu di tonton satu bumi. semua ada jejak digital
-	<br><br>
-Anggota DPR RI terima gaji dan tunjangan selama ini termasuk numpang biaya hidup dari pemerintah banyak gaya rapat juga pakai uang rakyat tapi tidak sadar diri mereka rah sah cangkeman fakta biar malu di tonton satu bumi. semua ada jejak digital
-	<br><br>
-	Dokter dirumah sakit teriina gaji dan tunjangan selama ini dari pemerintah atau swasta tetap masih numpang biaya hidup coba buka praktek sendiri belum tentu laku mereka ya fakta 
-	<br><br>
-	dosen dosen terima gaji dan tunjangan dari pemerintah termasuk numpang biaya hidup itu fakta
-	<br><br>
-	polisi terima gaji dan tunjangan dari pemerintah termasuk numpang biaya hidup itu fakta juga ya
-	<br><br>
-apa perlu gue ulang terus kata kata gue ini Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian
-	<br><br>
-	Di dalam keluarga besar gue tidak ada berani atur gue karena gue pemilik perusahaan sendiri ya
+	fake products have slash script and original ones don't. mau beli produk asli syaratnya di baca. bermasalah sama gue sudah pasti mati ya. semakin lama semakin asik ya 
 	<br><br>
 	The checkmate forever 
 	<br><br>
