@@ -11,7 +11,7 @@
 </strong>
 <strong>
 	PT JowoScript Technology Indonesia
-	 - breakthrough technology, productive technology and capabilities technology. selama belum beli nonton saja goblok goblok ya
+	 - breakthrough technology, productive technology and capabilities technology. selama belum beli nonton saja goblok goblok ya barang asli dan palsu itu beda ya
 	<br><br>
 	Alamat kantor usaha
 	<br>
