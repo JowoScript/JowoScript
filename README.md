@@ -30,7 +30,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
-#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan ya baik baik kalian banyak gaya sama gue selama ini 
+#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan ya baik baik kalian banyak gaya sama gue selama ini. jadi kalo mau nipu gue bukan gue yg rugi
 
 #### Purchases of licensed products must be paid in full without debt or credit di baca ya kalo goblok
 <img src="About Kingdom Technology version 1.4.45.png" 
