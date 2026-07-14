@@ -11,7 +11,7 @@
 </strong>
 <strong>
 	PT JowoScript Technology Indonesia
-	 - breakthrough technology, productive technology and capabilities technology. selama belum beli nonton saja goblok goblok ya barang asli dan palsu itu beda ya
+	 - breakthrough technology, productive technology and capabilities technology
 	<br><br>
 	Alamat kantor usaha
 	<br>
@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	fake products have slash script and original ones don't. mau beli produk asli syaratnya di baca. bermasalah sama gue sudah pasti mati ya. semakin lama semakin asik ya 
+	fake products have slash script and original ones don't. mau beli produk asli syaratnya di baca. bermasalah sama gue sudah pasti mati ya. the checkmate semakin lama semakin asik ya 
 	<br><br>
 	The checkmate forever 
 	<br><br>
