@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	fake products have slash script and original ones don't. mau beli produk asli syaratnya di baca. bermasalah sama gue sudah pasti mati ya. the checkmate semakin lama semakin asik ya 
+	baru 4 tahun berdiri perusahaan gue ya dan siapa tidak berkembang itu kalian ya.
 	<br><br>
 	The checkmate forever 
 	<br><br>
