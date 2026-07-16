@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	musuh musuh gue yang suka jelek jelekin gue lebih rusak itu fakta karena goblok akan terlihat terus ya dan gue lebih suka melihat sampah langsung ya semakin lama semakin asik ya biar jadi bangke musuh musuh gue
+	musuh musuh gue yang suka jelek jelekin gue lebih rusak dan lupa dosa dosanya itu fakta karena goblok akan terlihat terus ya dan gue lebih suka melihat sampah langsung ya semakin lama semakin asik ya biar jadi bangke musuh musuh gue
 	<br><br>
 	The checkmate forever 
 	<br><br>
