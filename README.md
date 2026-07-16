@@ -21,6 +21,8 @@
 	<br><br>
 	Gue emang boss pemilik perusahaan sendiri mau apa lu. Gue hanya melihat perusahaan pailit atau kasus korupsi selama ini. Selama belum beli biar saja kacau balau
 	<br><br>
+	Goblok goblok dari gue jadi pengangguran biarkan saja. Aturan beli sudah ada ya. paham sampai sini
+	<br><br>
 	The checkmate forever 
 	<br><br>
 	Introduction
