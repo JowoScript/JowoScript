@@ -21,7 +21,7 @@
 	<br><br>
 	Gue emang boss pemilik perusahaan sendiri mau apa lu. Gue hanya melihat perusahaan pailit atau kasus korupsi selama ini. Selama belum beli biar saja kacau balau
 	<br><br>
-	Gelar tinggi tinggi banyak itu dari master dan doktor kenapa banyak goblok ya atau hanya mengejar jabatan saja ya selama ini di pemerintahan atau swasta. Fakta ya
+	Gelar tinggi tinggi banyak itu dari master dan doktor kenapa banyak goblok ya atau hanya mengejar naik jabatan saja ya selama ini di pemerintahan atau swasta. Fakta ya
 	<br><br>
 	Goblok goblok dari gue jadi pengangguran biarkan saja. Aturan beli sudah ada ya. paham sampai sini
 	<br><br>
