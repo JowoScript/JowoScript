@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	musuh musuh gue yang suka jelek jelekin gue lebih rusak dan lupa dosa dosanya sendiri mereka itu fakta karena goblok akan terlihat terus ya semakin lama semakin asik ya biar jadi bangke musuh musuh gue
+	Gue emang boss pemilik perusahaan sendiri mau apa lu. Gue hanya melihat perusahaan pailit atau kasus korupsi selama ini. Selama belum beli biar saja kacau balau
 	<br><br>
 	The checkmate forever 
 	<br><br>
