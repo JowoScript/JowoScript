@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	baru 4 tahun berdiri perusahaan gue ya dan siapa tidak berkembang itu kalian ya.
+	musuh musuh gue yang suka jelek jelekin gue lebih rusak itu fakta karena goblok akan terlihat terus ya
 	<br><br>
 	The checkmate forever 
 	<br><br>
