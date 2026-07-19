@@ -100,7 +100,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>datang kesini kalo tidak berani share lokasi tempat kalian. jadi banci saja buat music jeduk jeduk ya selama ini. gue kulitin terus dj nya jadi ayam</li>
+		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk/li>
 		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak</li>
 		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja mereka termasuk numpang biaya hidup sebenarnya ya baik di pemerintahan atau swasta. Simple logic</li>
 		<li>Masih numpang biaya hidup di perusahaan dan pemerintah banyak bacot lewat music terlihat selama ini</li>
@@ -232,6 +232,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk</li>
 		<li>Bangun produk selama ini tidak pakai uang pemerintah dan investor ya. Tidak gratisan biar mampus siapa goblok</li>
 		<li>Gue tidak numpang biaya hidup seperti kalian selama ini tidak nerima gaji dan tunjangan dari pemerintah atau swasta ya.</li>
 		<li>Tidak ada setir gue ya selama ini karena benar pintar akan terlihat</li>
