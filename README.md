@@ -19,9 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Gue emang boss pemilik perusahaan sendiri mau apa lu. Gue hanya melihat perusahaan pailit atau kasus korupsi selama ini. Selama belum beli biar saja kacau balau
-	<br><br>
-	Gelar tinggi tinggi banyak itu dari master dan doktor kenapa banyak goblok ya atau hanya mengejar naik jabatan saja ya selama ini di pemerintahan atau swasta. Fakta ya
+	Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya
 	<br><br>
 	Goblok goblok dari gue jadi pengangguran biarkan saja. Aturan beli sudah ada ya. paham sampai sini
 	<br><br>
@@ -100,7 +98,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk/li>
+		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya/li>
 		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak</li>
 		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja mereka termasuk numpang biaya hidup sebenarnya ya baik di pemerintahan atau swasta. Simple logic</li>
 		<li>Masih numpang biaya hidup di perusahaan dan pemerintah banyak bacot lewat music terlihat selama ini</li>
@@ -232,7 +230,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk</li>
+		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya</li>
 		<li>Bangun produk selama ini tidak pakai uang pemerintah dan investor ya. Tidak gratisan biar mampus siapa goblok</li>
 		<li>Gue tidak numpang biaya hidup seperti kalian selama ini tidak nerima gaji dan tunjangan dari pemerintah atau swasta ya.</li>
 		<li>Tidak ada setir gue ya selama ini karena benar pintar akan terlihat</li>
