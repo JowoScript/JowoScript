@@ -19,9 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya
-	<br><br>
-	Goblok goblok dari gue jadi pengangguran biarkan saja. Aturan beli sudah ada ya. paham sampai sini
+	Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian
 	<br><br>
 	The checkmate forever 
 	<br><br>
