@@ -228,6 +228,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian percaya hukum alam tidak kalian ?</li>
 		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya</li>
 		<li>Bangun produk selama ini tidak pakai uang pemerintah dan investor ya. Tidak gratisan biar mampus siapa goblok</li>
 		<li>Gue tidak numpang biaya hidup seperti kalian selama ini tidak nerima gaji dan tunjangan dari pemerintah atau swasta ya.</li>
