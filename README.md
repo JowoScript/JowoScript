@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian percaya hukum alam kalian ?
+	Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian percaya hukum alam tidak kalian ?
 	<br><br>
 	The checkmate forever 
 	<br><br>
