@@ -261,6 +261,8 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
+	Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian percaya hukum alam tidak kalian ?
+	<br><br>
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	<br><br>
