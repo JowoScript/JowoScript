@@ -103,7 +103,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Aturan Hukum Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat oleh pihak manapun itu baik hukum adat dan pemerintah</li>
+		<li>Aturan Hukum Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat oleh pihak manapun itu baik hukum adat dan pemerintah baik itu bersifat hiraki kerajaan, monarki, komunis, liberal dan seterusnya</li>
 		<li>Kalo hanya buat ulang aplikasi saja itu mudah sekali ya paling susah itu buat bahasa pemrograman dan environment</li>
 		<li>Tidak ada gabungan perusahaan karena produk jadi dan tidak gratisan. Mampus selana ini investasi biar paham siapa pailit</li>
 		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya/li>
