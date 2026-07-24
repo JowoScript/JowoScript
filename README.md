@@ -21,6 +21,8 @@
 	<br><br>
 	Paham monyet monyet di panggung sirkus nah itu seperti kalian selama ini buat music jeduk jeduk pakai suara ya di Facebook. pahan sampai sini
 	<br><br>
+	Kalo saingan pengangguran punya anak sesuai kata kata gue mudah habisin nya
+	<br><br>
 	siapa mau kerja kalo lebih bego dari gue ya paham kata kata gue orang pintar mana mau kerja sama orang goblok karena sendiri saja mampu buat ya
 	<br><br>
 	siapa akan masuk penjara ya jelas bukan gue. selama ini belum ada yang beli ke gue ya
