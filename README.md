@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	siapa akan masuk penjara ya gue tanya jelas bukan gue 
+	siapa akan masuk penjara ya jelas bukan gue. selama ini belum ada yang beli ke gue ya
 	<br><br>
 	The checkmate forever 
 	<br><br>
