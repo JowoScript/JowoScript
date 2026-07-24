@@ -58,7 +58,7 @@
 ### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>Kalo hanya buat aplikasi saja itu mudah lebih susah buat bahasa pemrograman dan environment karena goblok dan pintar akan terlihat terus semakin lama semakin asik ya paham aturan beli produk dan aturan Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat</li>
+	<li>Kalo hanya buat aplikasi saja itu mudah lebih susah buat bahasa pemrograman dan environment karena goblok dan pintar akan terlihat terus semakin lama semakin asik ya paham aturan beli produk dan aturan Hukum Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat oleh pihak manapun itu baik hukum adat dan pemerintah</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
