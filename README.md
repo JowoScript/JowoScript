@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	siapa mau kerja kalo lebih bego dari gue ya paham kata kata gue oesng pintar mana mau kerja sama orang goblok
+	<br><br>
 	siapa akan masuk penjara ya jelas bukan gue. selama ini belum ada yang beli ke gue ya
 	<br><br>
 	The checkmate forever 
