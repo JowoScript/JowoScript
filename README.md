@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Kalo gue goblok mana berani sendiri dari awal dan lebih paham hukum gue ya terbukti sampai sekarang buat music jeduk jeduk jadi ayam selamanya karena goblok ya kalo pintar tidak banyak bacot tidak bersuara ya
+	Kalo gue goblok mana berani sendiri dari awal dan lebih paham hukum gue ya terbukti sampai sekarang buat music jeduk jeduk jadi ayam selamanya karena goblok ya kalo pintar tidak banyak bacot tidak bersuara ya semua ada rekaman suara selana ini ya. itu kenapa jadi bahan ketawaan karena goblok
 	<br><br>
 	siapa mau kerja kalo lebih bego dari gue ya paham kata kata gue orang pintar mana mau kerja sama orang goblok karena sendiri saja mampu buat ya
 	<br><br>
