@@ -98,7 +98,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Tidak ada gabungan perusahaan karena produk jadi dan tidak gratisan. Mampus selana ini investasi</li>
+		<li>Tidak ada gabungan perusahaan karena produk jadi dan tidak gratisan. Mampus selana ini investasi biar paham siapa pailit</li>
 		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya/li>
 		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak</li>
 		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja mereka termasuk numpang biaya hidup sebenarnya ya baik di pemerintahan atau swasta. Simple logic</li>
