@@ -98,7 +98,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian percaya hukum alam tidak kalian ? kalo hanya buat ulang sistem aplikasi gue masih bisa handle dan bisa rekrut orang sendiri ya tidak bermasalah sama gue ya. siapa goblok gue tanya</li>
+		<li>Tidak ada gabungan perusahaan karena produk jadi dan tidak gratisan</li>
 		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya/li>
 		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak</li>
 		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja mereka termasuk numpang biaya hidup sebenarnya ya baik di pemerintahan atau swasta. Simple logic</li>
