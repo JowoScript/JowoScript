@@ -21,7 +21,7 @@
 	<br><br>
 	Paham monyet monyet di panggung sirkus nah itu seperti kalian selama ini buat music jeduk jeduk pakai suara ya di Facebook. pahan sampai sini
 	<br><br>
-	Kalo saingan gue pengangguran punya anak bermasalah sama gue sesuai kata kata gue mudah habisin nya di akhir merasa pintar tidak terlihat bermasalah sama gue ? kita lihat uang bicara di akhir siapa mati dan mayat mayat kalian untuk jadi bahan bukti nanti untuk syarat pembelian produk gue semakin banyak pengangguran siapa kena buru paham kata kata gue semakin lama semakin asik ya
+	Kalo saingan gue pengangguran punya anak bermasalah sama gue sesuai kata kata gue mudah habisin nya di akhir merasa pintar tidak terlihat bermasalah sama gue ? kita lihat uang bicara di akhir siapa mati dan mayat mayat kalian untuk jadi bahan bukti nanti untuk syarat pembelian produk gue semakin banyak pengangguran siapa kena buru paham kata kata gue semakin lama semakin asik ya. produk gue buat emang butuh tumbal bermasalah sama gue dulu.
 	<br><br>
 	siapa mau kerja kalo lebih bego dari gue ya paham kata kata gue orang pintar mana mau kerja sama orang goblok karena sendiri saja mampu buat ya
 	<br><br>
