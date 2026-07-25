@@ -238,6 +238,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Gue tidak buka lowongan kerja selama ini siapa bego gue tanya hahahaha</li>
 		<li>Siapa mau kerja kalo lebih bego dari gue ya paham kata kata gue orang pintar mana mau kerja sama orang goblok karena sendiri saja mampu buat produk sendiri ya dan perusahaan milik sendiri dan produk jadi ya hasilnya</li>
 		<li>Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian percaya hukum alam tidak kalian ?</li>
 		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya</li>
