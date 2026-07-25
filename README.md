@@ -238,6 +238,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>ibu dan bapak gue diam tapi tau selama ini walaupun anaknya diserang terus selama ini. diam bukan bodoh ya</li>
 		<li>Gue tidak buka lowongan kerja selama ini siapa bego gue tanya hahahaha</li>
 		<li>Gue bekerja sendiri selama ini di perusahaan sendiri di PT JowoScript Technology Indonesia</li>
 		<li>Siapa mau kerja kalo lebih bego dari gue ya paham kata kata gue orang pintar mana mau kerja sama orang goblok karena sendiri saja mampu buat produk sendiri ya dan perusahaan milik sendiri dan produk jadi ya hasilnya</li>
