@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	ibu dan bapak gue diam tapi tau selama ini walaupun anaknya diserang terus selama ini. diam bukan bodoh ya 
+	ibu dan bapak gue diam tapi tau selama ini walaupun anaknya diserang terus selama ini. diam bukan bodoh ya. tidak baca aturannya syarat belinya produk. semua lagi kumpul an bukti ya
 	<br><br>
 	Kalo saingan gue pengangguran punya anak bermasalah sama gue sesuai kata kata gue mudah habisin nya di akhir merasa pintar tidak terlihat bermasalah sama gue ? kita lihat uang bicara di akhir siapa mati dan mayat mayat kalian untuk jadi bahan bukti nanti untuk syarat pembelian produk gue semakin banyak pengangguran siapa kena buru paham kata kata gue semakin lama semakin asik ya. produk gue buat emang butuh tumbal teman bermasalah sama gue dulu termasuk suka main judi online ya dulu bermasalah sama gue. Paham aturan hukum Muhammad Nurcahyo Pratomo ya dan syarat beli produk nya
 	<br><br>
