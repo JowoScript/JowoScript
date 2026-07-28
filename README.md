@@ -389,7 +389,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 ### Legal Rights of Technology Muhammad Nurcahyo Pratomo and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label powered PT JowoScript Technology Indonesia. Specifically for purchasing licensed products. So whos stupid until now
 <div align="justify">
 <ol>
-	<li>Trust the god only one name is allah [the bible old not modified, Al-Qur'an, Al-Kitab] and Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing tidak ada pemaksaan</li>
+	<li>Trust the god only one name is allah [the bible old not modified, Al-Qur'an, Al-Kitab] and Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing individu tidak ada pemaksaan</li>
 	<li>Perusahaan pailit wajib bayar hutang kepada pemodal</li>
 	<li>Jangan buka lowongan kerja selama belum di beli produk</li>
 	<li>Mahkamah Agung sebagai peninjau dan tangan kanannya Muhammad Nurcahyo Pratomo langsung untuk hukum berkelanjutan dan militer bagian ekseskusi jika pemerintah sudah beli selama belum beli ya nonton saja sambil blacklist karena tidak rugi blacklist bermasalah dengan Muhammad Nurcahyo Pratomo</li>
