@@ -390,6 +390,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 <div align="justify">
 <ol>
 	<li>Trust the god only one name is allah [the bible old not modified, Al-Qur'an, Al-Kitab] and Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing tidak ada pemaksaan</li>
+	<li>Perusahaan pailit wajib bayar hutang kepada pemodal</li>
 	<li>Jangan buka lowongan kerja selama belum di beli produk</li>
 	<li>Mahkamah Agung sebagai peninjau dan tangan kanannya Muhammad Nurcahyo Pratomo langsung untuk hukum berkelanjutan dan militer bagian ekseskusi jika pemerintah sudah beli selama belum beli ya nonton saja sambil blacklist karena tidak rugi blacklist bermasalah dengan Muhammad Nurcahyo Pratomo</li>
 	<li>Aturan Hukum Muhammad Nurcahyo Pratomo tidak bisa di ganggu gugat oleh pihak manapun baik itu pidana, perdata, konsitusi, adat, undang undang, trakta, yurisprudensi  dan sejenisnya. Hukum tetap mutlak di atas apapun itu. the checkmate forever</li>
