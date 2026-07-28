@@ -19,6 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya
 	<br><br>
 	Introduction
 </strong>
@@ -229,7 +230,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>ibu dan bapak gue diam tapi tau selama ini walaupun anaknya diserang terus selama ini music jeduk jeduk. diam bukan bodoh ya</li>
+		<li>Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya</li>
 		<li>Gue tidak buka lowongan kerja selama ini siapa bego gue tanya hahahaha</li>
 		<li>Gue bekerja sendiri selama ini di perusahaan sendiri di PT JowoScript Technology Indonesia</li>
 		<li>Siapa mau kerja kalo lebih bego dari gue ya paham kata kata gue orang pintar mana mau kerja sama orang goblok karena sendiri saja mampu buat produk sendiri ya dan perusahaan milik sendiri dan produk jadi ya hasilnya</li>
@@ -267,7 +268,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
-	Semakin gue di maki maki lewat jeduk jeduk semakin hancur kalian percaya hukum alam tidak kalian ?
+	Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya
 	<br><br>
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
@@ -390,6 +391,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 <div align="justify">
 <ol>
 	<li>Trust the god only one name is allah [the bible old not modified, Al-Qur'an, Al-Kitab] and Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing individu tidak ada pemaksaan</li>
+	<li>Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya</li>
 	<li>Perusahaan pailit wajib bayar hutang kepada pemodal</li>
 	<li>Jangan buka lowongan kerja selama belum di beli produk</li>
 	<li>Mahkamah Agung sebagai peninjau dan tangan kanannya Muhammad Nurcahyo Pratomo langsung untuk hukum berkelanjutan dan militer bagian ekseskusi jika pemerintah sudah beli selama belum beli ya nonton saja sambil blacklist karena tidak rugi blacklist bermasalah dengan Muhammad Nurcahyo Pratomo</li>
