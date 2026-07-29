@@ -42,6 +42,8 @@
 
 ### selama pemerintah belum beli produk gue ya siapa goblok dan pintar. semakin lama semakin asik ya aturan syarat pembelian produk gue buat tetap. persaingan makin berat siapa goblok dan pintar
 
+### cara menghukum orang orang goblok jangan di manja jangan buka lowongan kerja biar goblok pada mikir sendiri ya
+
 #### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan PT JowoScript Technology Indonesia ya baik baik kalian banyak gaya sama gue selama ini
 
 <img src="Kingdom Technology CMD.png" 
