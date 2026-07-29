@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya itu derita kalian hire orang tapi tidak berkualitas dan semua itu ada audit keuangan siapa korupsi akan terlihat terus kedepannya selain OTT ya. Itu derita kalian buka lowongan kerja tapi hasilnya tidak ada ya. Kalo saingan gue pengangguran ya tidur gue ya apa lagi tidak punya uang untuk beli produk gaya elite isi rekening sulit itu banyak di medsos. tidak baca harga produk ya dengan jelas
+	selama pemerintah belum beli produk gue ya siapa goblok dan pintar.
 	<br><br>
 	Introduction
 </strong>
