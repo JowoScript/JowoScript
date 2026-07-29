@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	selama pemerintah belum beli produk gue ya siapa goblok dan pintar.
+	selama pemerintah belum beli produk gue ya siapa goblok dan pintar. semakin lama semakin asik ya aturan syarat pembelian produk gue buat tetap. persaingan makin berat siapa goblok dan pintar
 	<br><br>
 	Introduction
 </strong>
