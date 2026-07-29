@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya itu derita kalian hire orang tapi tidak berkualitas dan semua itu ada audit keuangan siapa korupsi akan terlihat terus kedepannya selain OTT ya
+	Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya itu derita kalian hire orang tapi tidak berkualitas dan semua itu ada audit keuangan siapa korupsi akan terlihat terus kedepannya selain OTT ya. Itu derita kalian buka lowongan kerja tapi hasilnya tidak ada ya
 	<br><br>
 	Introduction
 </strong>
