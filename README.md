@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	selama pemerintah belum beli produk gue ya siapa goblok dan pintar. semakin lama semakin asik ya aturan syarat pembelian produk gue buat tetap. persaingan makin berat siapa goblok dan pintar
+	selama pemerintah belum beli produk gue ya siapa goblok dan pintar. semakin lama semakin asik ya aturan syarat pembelian produk gue buat tetap. persaingan makin berat siapa goblok dan pintar.
 	<br><br>
 	Introduction
 </strong>
@@ -28,7 +28,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
-#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan ya baik baik kalian banyak gaya sama gue selama ini. jadi kalo mau nipu gue bukan gue yg rugi
+#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan ya baik baik kalian banyak gaya sama gue selama ini. makin lama makin asik ya akan terlihat siapa goblok dan pintar
 
 #### Purchases of licensed products must be paid in full without debt or credit di baca ya kalo goblok
 <img src="About Kingdom Technology version 1.4.45.png" 
@@ -39,6 +39,8 @@
 <img src="FB_IMG_1781619362766.jpg" height="100%" width="100%"></img>
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
+
+### selama pemerintah belum beli produk gue ya siapa goblok dan pintar. semakin lama semakin asik ya aturan syarat pembelian produk gue buat tetap. persaingan makin berat siapa goblok dan pintar
 
 #### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan PT JowoScript Technology Indonesia ya baik baik kalian banyak gaya sama gue selama ini
 
