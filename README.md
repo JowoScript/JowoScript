@@ -99,6 +99,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Hasil nepotisme baik itu di instansi polri, TNI dan PNS jadi pegawai tetap semua akan terlihat di akhir</li>
 		<li>Siapa habiskan uang pemerintah selama ini juga bukan gue ya. Proyek proyek semua ada datanya dan program pemerintah ya sudah habis uang berapa selama ini perpanjang kontrak gue tidak sentuh</li>
 		<li>Aturan Hukum Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat oleh pihak manapun itu baik hukum adat dan pemerintah baik itu bersifat hiraki kerajaan, monarki, komunis, liberal dan seterusnya</li>
 		<li>Kalo hanya buat ulang aplikasi saja itu mudah sekali ya paling susah itu buat bahasa pemrograman dan environment</li>
