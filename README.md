@@ -99,7 +99,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>hasil nepotisme di polri, TNI dan PNS semua wajib di bersihkan ya apa lagi tidak berkompeten habiskan uang pemerintah saja beban anggaran pemerintah</li>
+		<li>Hasil nepotisme di polri, TNI dan PNS semua wajib di bersihkan ya apa lagi tidak berkompeten habiskan uang pemerintah saja atau beban anggaran saja</li>
 		<li>Hasil nepotisme baik itu di instansi polri, TNI dan PNS jadi pegawai tetap semua akan terlihat di akhir baik itu rekrutmen pegawai hasil titipan pejabat atau jendral di daerah maupun pusat</li>
 		<li>Siapa habiskan uang pemerintah selama ini juga bukan gue ya. Proyek proyek semua ada datanya dan program pemerintah ya sudah habis uang berapa selama ini perpanjang kontrak gue tidak sentuh</li>
 		<li>Aturan Hukum Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat oleh pihak manapun itu baik hukum adat dan pemerintah baik itu bersifat hiraki kerajaan, monarki, komunis, liberal dan seterusnya</li>
