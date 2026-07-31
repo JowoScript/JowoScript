@@ -394,7 +394,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 ### Legal Rights of Technology Muhammad Nurcahyo Pratomo and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label powered PT JowoScript Technology Indonesia. Specifically for purchasing licensed products. So whos stupid until now
 <div align="justify">
 <ol>
-	<li>Status manusia atau orang (bukan hewa) bebas dari catatan pidana atau berkedudukan sebagai bukan sebagai terpidana</li>
+	<li>Status manusia atau orang bukan hewan atau binatang memiliki bebas dari catatan pidana atau berkedudukan sebagai bukan sebagai terpidana</li>
 	<li>Trust the god only one name is allah [the bible old not modified, Al-Qur'an, Al-Kitab] and Tidak boleh menyekutukan Allah SWT mau sembahyang atau tidak urusan masing masing individu tidak ada pemaksaan</li>
 	<li>Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya</li>
 	<li>Perusahaan pailit wajib bayar hutang kepada pemodal</li>
