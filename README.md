@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	sok preman daerah gue jadi banci di akhir. gue tidak butuh penjagaan preman di komplek siapa gue tanya
+	sok preman daerah gue jadi banci di akhir. gue tidak butuh penjagaan ya kalian kira nitizen selama ini
 	<br><br>
 	Introduction
 </strong>
