@@ -235,7 +235,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>anak orang kaya saja kerja setiap hari gimana bukan anak orang kaya maunya nuntut doang sok keras kalian nanti di kerasi balik nangis</li>
+		<li>anak orang kaya saja kerja setiap hari gimana bukan anak orang kaya maunya nuntut doang sok keras kalian nanti di kerasin balik nangis</li>
 		<li>Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya</li>
 		<li>Gue tidak buka lowongan kerja selama ini siapa bego gue tanya hahahaha</li>
 		<li>Gue bekerja sendiri selama ini di perusahaan sendiri di PT JowoScript Technology Indonesia</li>
