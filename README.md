@@ -99,6 +99,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Apa orang orang fasih dulu persulit gue lupa apa dengan perbuatannya dan memutar balikan kata kata</li>
 		<li>Other people's blablabla no have results hahahaha</li>
 		<li>Siapa suka hasut meledak pasti habis ya selama ini mau fitnah gue siapa lagi</li>
 		<li>Hasil nepotisme di polri, TNI dan PNS semua wajib di bersihkan ya apa lagi tidak berkompeten habiskan uang pemerintah saja atau beban anggaran saja kalo di negara lain mana berani ya bersih bersih hasil nepotisme di kira gaji dan tunjangan kalian tidak pakai anggaran pemerintah selama ini dan setiap penerimaan pegawai baik itu polri, TNI dan PNS itu semua habiskan uang pemerintah ya. sekolah lagi Sono Ben pinter bukan banyak nuntut doang</li>
@@ -239,7 +240,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>anak orang kaya saja kerja setiap hari gimana bukan anak orang kaya maunya nuntut doang sok keras kalian nanti di kerasin balik nangis</li>
+		<li>Apa orang orang fasih dulu persulit gue lupa apa dengan perbuatannya dan memutar balikan kata kata</li>
 		<li>Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya</li>
 		<li>Gue tidak buka lowongan kerja selama ini siapa bego gue tanya hahahaha</li>
 		<li>Gue bekerja sendiri selama ini di perusahaan sendiri di PT JowoScript Technology Indonesia</li>
