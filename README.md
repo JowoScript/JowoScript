@@ -54,7 +54,7 @@
 ### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>Kalo hanya buat aplikasi saja itu mudah lebih susah buat bahasa pemrograman dan environment karena goblok dan pintar akan terlihat terus semakin lama semakin asik ya paham aturan beli produk dan aturan Hukum Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat oleh pihak manapun itu baik hukum adat dan pemerintah. Selama belum beli kita lihat perusahaan pailit dan kasus korupsi akan terjadi terus</li>
+	<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
@@ -99,7 +99,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use my company's product features.</li>
+		<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features.</li>
 		<li>Apa orang orang fasih dulu persulit gue lupa apa dengan perbuatannya dan memutar balikan kata kata</li>
 		<li>Other people's blablabla no have results hahahaha</li>
 		<li>Siapa suka hasut meledak pasti habis ya selama ini mau fitnah gue siapa lagi</li>
@@ -241,6 +241,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features</li>
 		<li>Apa orang orang fasih dulu persulit gue lupa apa dengan perbuatannya dan memutar balikan kata kata</li>
 		<li>Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya</li>
 		<li>Gue tidak buka lowongan kerja selama ini siapa bego gue tanya hahahaha</li>
