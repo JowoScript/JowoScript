@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	gue tidak butuh penjagaan ya kalian kira nitizen selama ini. siapa suka hasut juga bukan gue
+	It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use my company's product features.
 	<br><br>
 	Introduction
 </strong>
@@ -99,6 +99,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use my company's product features.</li>
 		<li>Apa orang orang fasih dulu persulit gue lupa apa dengan perbuatannya dan memutar balikan kata kata</li>
 		<li>Other people's blablabla no have results hahahaha</li>
 		<li>Siapa suka hasut meledak pasti habis ya selama ini mau fitnah gue siapa lagi</li>
