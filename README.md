@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	orang lebih goblok dari gue hanya bisa jadi provokator dan buat kerusuhan saja selama ini gue tau. Fakta ya makin lama makin asik ya biar mampus kalian
+	<br><br>
 	It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features.
 	<br><br>
 	Introduction
