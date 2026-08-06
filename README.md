@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Gue tetap santai owner perusahaan setiap tahun lulusan sekolah nambah mampus persulit gue test dulu
+	Gue tetap santai owner perusahaan setiap tahun lulusan sekolah nambah mampus persulit gue test dulu itu fungsinya blacklist bermasalah sama gue dulu
 	<br><br>
 	orang lebih goblok dari gue hanya bisa jadi provokator dan buat kerusuhan saja selama ini gue tau. Fakta ya makin lama makin asik ya biar mampus kalian jadi pengangguran dan tidak produktif.
 	<br><br>
