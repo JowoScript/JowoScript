@@ -103,6 +103,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Orang lebih goblok dari gue hanya bisa jadi provokator dan buat kerusuhan saja selama ini gue tau. Fakta ya makin lama makin asik ya biar mampus kalian jadi pengangguran dan tidak produktif.</li>
 		<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features.</li>
 		<li>Apa orang orang fasih dulu persulit gue lupa apa dengan perbuatannya dan memutar balikan kata kata</li>
 		<li>Other people's blablabla no have results hahahaha</li>
