@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Kalian jadi pengangguran bisa usaha apa gue tanya goblok ? Fakta
+	makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Baru 4 tahun gimana 10 tahun end game orang orang bego di dunia kerja
 	<br><br>
 	<br><br>
 	<br><br>
