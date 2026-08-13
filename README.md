@@ -23,6 +23,7 @@
 	<br><br>
 	Your can open console browser in your domain name government or company if don't have like powered by PT JowoScript Technology Indonesia that's still free license or empty license plate
 	<br><br>
+	Di danai pemerintah dan investor berguna tidak mereka untuk bangsa dan negara selama ini ?
 	<br><br>
 	Introduction
 </strong>
