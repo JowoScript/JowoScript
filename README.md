@@ -21,6 +21,7 @@
 	<br><br>
 	makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Terbukti selama ini siapa goblok selama belum di beli ya
 	<br><br>
+	Your can open console browser in your domain name government or company if don't have like powered by PT JowoScript Technology Indonesia that's still free license or empty license plate
 	<br><br>
 	<br><br>
 	Introduction
