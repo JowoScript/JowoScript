@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Orang belum pernah kerja dan nyaman di zona nyaman dunia kerja bicara adab ? pengalaman kalian itu masih sedikit ya pahit dunia.
+	Orang belum pernah kerja dan nyaman di zona nyaman dunia kerja bicara adab ? pengalaman kalian itu masih sedikit ya pahit dunia. karena orang goblok baru bisa bicara adab ketika terlihat goblok nya
 	<br><br>
 	makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Terbukti selama ini siapa goblok selama belum di beli ya
 	<br><br>
