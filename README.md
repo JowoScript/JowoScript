@@ -420,6 +420,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 ### Legal Rights of Technology Muhammad Nurcahyo Pratomo and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label powered PT JowoScript Technology Indonesia. Specifically for purchasing licensed products. So whos stupid until now
 <div align="justify">
 <ol>
+	<l>Harga sewa produk dibaca perbulan nya ya kalo mau beli waktu sewa habis otomatis terkunci</l>
 	<li>Di larang keras Perusahaan pembuat kecerdasan buatan atau artificial intelligence (AI) untuk membuat gambar eksplisit tanpa persetujuan pemilik gambar dalam melakukan pelecehan seksual, kekerasan dan porno merugikan pihak korban dari gambar editan artificial intelligence atau video dari susunan gambar per capture.</li>
 	<li>Bermasalah sama gue dekat komplek juga harus mati ya apa lagi teman bermuka dua</li>
 	<li>Makin lama makin asik ya pemain vs raja Waktu pembelian Wajib ada bukti mayat bermasalah sama Muhammad Nurcahyo Pratomo baik itu teman bermuka dua dan musuh nya ini berlaku di Indonesia dan Malaysia. Tidak bermasalah sama gue aman dan pro sama Muhammad Nurcahyo Pratomo ya.  Bermasalah sama Muhammad Nurcahyo Pratomo dulu pasti mencla mencle ngomongnya pasti ya</li>
