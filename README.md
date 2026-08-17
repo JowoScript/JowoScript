@@ -21,6 +21,8 @@
 	<br><br>
 	Menteri dan komisaris gaji dan tunjangan besar ngapain saja selama ini kerjanya
 	<br><br>
+	Gue sudah pernah rasain di pecat, di buli, di maki maki, lembur tidak dapat uang lembur. beda level ya pengalaman di dunia kerjanya
+	<br><br>
 	Orang belum pernah kerja dan nyaman di zona nyaman dunia kerja bicara adab ? pengalaman kalian itu masih sedikit ya pahit dunia. karena orang goblok baru bisa bicara adab ketika terlihat goblok nya di dunia kerja kalo pintar mana mungkin bicara adab dan etika karena orang goblok, dungu hidup parasit di dunia kerja selalu menutupi kekurangan nya itu jelas
 	<br><br>
 	makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Terbukti selama ini siapa goblok selama belum di beli ya
