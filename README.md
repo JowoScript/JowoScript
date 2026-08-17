@@ -23,7 +23,7 @@
 	<br><br>
 	Level coding kalian di bawah gue jauh bisa apa kalo goblok sadar diri kalian
 	<br><br>
-	Pecat pecatin saja benalu dan goblok di dunia kerja kalo jadi pengangguran bisa apa gue tanya ye apa lagi cari kerja makin susah sekarang...my easy talk
+	Pecat pecatin saja benalu dan goblok di dunia kerja kalo jadi pengangguran bisa apa gue tanya ye apa lagi cari kerja makin susah sekarang.my easy talk
 	<br><br>
 	Gue sudah pernah rasain mengalamin sendiri di dunia kerja dari di pecat, di buli, di maki maki, lembur tidak dapat uang lembur. beda level ya pengalaman di dunia kerjanya kalian belum pernah mengalami jadi pengalaman kalian di bawah gue jahu
 	<br><br>
