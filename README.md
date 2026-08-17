@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Menteri dan komisaris gaji dan tunjangan besar ngapain saja selama ini kerjanya
+	Menteri sampai komisaris gaji dan tunjangan besar ngapain saja selama ini kerjanya
 	<br><br>
 	Gue sudah pernah rasain mengalamin sendiri di dunia kerja dari di pecat, di buli, di maki maki, lembur tidak dapat uang lembur. beda level ya pengalaman di dunia kerjanya
 	<br><br>
