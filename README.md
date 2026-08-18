@@ -19,21 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Menteri sampai komisaris gaji dan tunjangan besar ngapain saja selama ini kerjanya
-	<br><br>
-	Level coding kalian di bawah gue jauh bisa apa kalo goblok sadar diri kalian
-	<br><br>
-	Pecat pecatin saja benalu dan goblok di dunia kerja kalo jadi pengangguran bisa apa gue tanya ye apa lagi cari kerja makin susah sekarang.my easy talk
-	<br><br>
-	Gue sudah pernah rasain mengalamin sendiri di dunia kerja dari di pecat, di buli, di maki maki, lembur tidak dapat uang lembur. beda level ya pengalaman di dunia kerjanya kalian belum pernah mengalami jadi pengalaman kalian di bawah gue jahu
-	<br><br>
-	Orang belum pernah kerja dan nyaman di zona nyaman dunia kerja bicara adab ? pengalaman kalian itu masih sedikit ya pahit dunia. karena orang goblok baru bisa bicara adab ketika terlihat goblok nya di dunia kerja kalo pintar mana mungkin bicara adab dan etika karena orang goblok, dungu hidup parasit di dunia kerja selalu menutupi kekurangan nya itu jelas
-	<br><br>
-	makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Terbukti selama ini siapa goblok selama belum di beli ya
-	<br><br>
-	Your can open console browser in your domain name government or company if don't have like powered by PT JowoScript Technology Indonesia that's still free license or empty license plate
-	<br><br>
-	Di danai pemerintah dan investor berguna tidak mereka untuk bangsa dan negara selama ini ? 17 Agustus nonton lagi kalian ya
+	Do not invest in the Indonesian government or company Indonesia until you have purchased products from the company PT Jowoscript. Tehnology Indonesia 
 	<br><br>
 	Introduction
 </strong>
