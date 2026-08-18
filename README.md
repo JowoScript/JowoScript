@@ -113,7 +113,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Do not invest in the Indonesian government until you have purchased products from the company PT Jowoscript. Tehnology Indonesia </li>
+		<li>Do not invest in the Indonesian government until you have products from the company PT Jowoscript. Tehnology Indonesia </li>
 		<li>Makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Kalian jadi pengangguran bisa usaha apa gue tanya goblok ? Fakta</li>
 		<li>Mau sodara sendiri saja wajib beli gimana orang lain apa lagi hanya teman karena perusahaan gue berstatus legalitas. Percuma kalian mau numpang atau bebanin saja ke sodara gue</li>
 		<li>Orang lebih goblok dari gue hanya bisa jadi provokator dan buat kerusuhan saja selama ini gue tau. Fakta ya makin lama makin asik ya biar mampus kalian jadi pengangguran dan tidak produktif.</li>
@@ -302,7 +302,7 @@
 
 ### Muhammad Nurcahyo Pratomo Intro Small talk of Law (the law by law)
 <div>
-	Di danai pemerintah atau investor selama ini hasil kerjanya apa gue tanya karena goblok dan pintar akan terlihat terus ya
+	Do not invest in the Indonesian government or company Indonesia until you have purchased products from the company PT Jowoscript. Tehnology Indonesia 
 	<br><br>
 	I use Indonesian language everyday, so if you are a foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
 	foreigner who doesn't understand Indonesian language, that's your problem right simple logic.
