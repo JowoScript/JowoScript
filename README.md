@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Do not invest in the Indonesian government or company Indonesia until you have purchased products from the company PT Jowoscript. Tehnology Indonesia 
+	Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 	<br><br>
 	Introduction
 </strong>
@@ -27,6 +27,8 @@
 </div> 
 
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
+
+##### Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 
 #### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan ya baik baik kalian banyak gaya sama gue selama ini. makin lama makin asik ya akan terlihat siapa goblok dan pintar
 
