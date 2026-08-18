@@ -99,7 +99,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Do not invest in the Indonesian government or company Indonesia until you have purchased products from the company PT Jowoscript. Tehnology Indonesia</li>
+		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia </li>
 		<li>Makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Kalian jadi pengangguran bisa usaha apa gue tanya goblok ? Fakta</li>
 		<li>Mau sodara sendiri saja wajib beli gimana orang lain apa lagi hanya teman karena perusahaan gue berstatus legalitas. Percuma kalian mau numpang atau bebanin saja ke sodara gue</li>
 		<li>Orang lebih goblok dari gue hanya bisa jadi provokator dan buat kerusuhan saja selama ini gue tau. Fakta ya makin lama makin asik ya biar mampus kalian jadi pengangguran dan tidak produktif.</li>
@@ -245,7 +245,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Do not invest in the Indonesian government or company Indonesia until you have purchased products from the company PT Jowoscript. Tehnology Indonesia</li>
+		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia</li>
 		<li>Gue sudah pernah rasain mengalamin sendiri di dunia kerja dari di pecat, di buli, di maki maki, lembur tidak dapat uang lembur. beda level ya pengalaman di dunia kerjanya</li>
 		<li>Orang lebih goblok dari gue hanya bisa jadi provokator dan buat kerusuhan saja selama ini gue tau. Fakta ya makin lama makin asik ya biar mampus kalian jadi pengangguran dan tidak produktif</li>
 		<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features</li>
