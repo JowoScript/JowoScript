@@ -30,7 +30,7 @@
 
 ##### Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 
-#### Original product has label powered by PT JowoScript Technology Indonesia. Kalo miskin tidak punya uang nonton saja kalian ya di baca harganya ya dan status gue apa di perusahaan ya baik baik kalian banyak gaya sama gue selama ini. makin lama makin asik ya akan terlihat siapa goblok dan pintar
+###### Original product has label powered by PT JowoScript Technology Indonesia. 
 
 #### Purchases of licensed products must be paid in full without debt or credit di baca ya kalo goblok
 <img src="About Kingdom Technology version 1.4.45.png" 
