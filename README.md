@@ -101,6 +101,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>pengusaha modalnya dari investor selama ini tunggu saja jatuh tempo. Gue santai perusahaan milik sendiri dan modal sendiri selama ini buat produk. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini</li>
 		<li>Perusahaan bangkrut itu urusan masing-masing kepada pemodal masing-masing. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini</li>
 		<li>Perusahaan go publik pailit jatuh tempo kepada investor wajib bayar hutang yaitu modal dari investor. Beda kalo perusahaan sendiri tidak go publik dan modal sendiri. itu sudah aturan dari dulu. Sekolah lagi kalian masyarakat kalo goblok jangan bikin malu saja kalian kalian di lihat lebih pintar. gue kasih tau contoh kecilnya kalian buka warung sendiri pakai modal sendiri dengan buka warung besar dengan modal investor</li>
 		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia </li>
