@@ -32,7 +32,7 @@
 
 ##### Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 
-##### Do you think the blow ? read difference and capabilities my products company. in write indonesia because i'm from indonesia from blue of blood java
+##### Do you think the blow ? read difference and capabilities my products company. im talk before write indonesia because i'm from indonesia blood of Javanese
 
 ##### Perusahaan go publik pailit jatuh tempo kepada investor wajib bayar hutang yaitu modal dari investor. Beda kalo perusahaan sendiri tidak go publik dan modal sendiri. itu sudah aturan dari dulu. 
 
