@@ -484,6 +484,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 ### Legal Rights of Technology Creators and The regulatory requirements for purchase license tokens
 <div align="justify">
 <ol>
+	<li>Suka berkendara motor atau mobil kenalpot tidak standar atau bising lewat depan rumah tinggal di komplek sekarang termasuk blacklist di produk perusahaan gue ya. Plat no kendaraan kalian nitizen gue foto selama ini lewat depan rumah</li>
 	<li>Makin lama makin asik ya pemain vs raja Waktu pembelian Wajib ada bukti mayat bermasalah sama Muhammad Nurcahyo Pratomo baik itu teman bermuka dua dan musuh nya ini berlaku di Indonesia dan Malaysia. Tidak bermasalah sama gue aman dan pro sama Muhammad Nurcahyo Pratomo ya.  Bermasalah sama Muhammad Nurcahyo Pratomo dulu pasti mencla mencle ngomongnya pasti ya</li>
 <li>Must follow and obey basic regulatory requirements in registration license agreement</li>
 <li>Payment and purchase of the license is carried out by both parties with witnesses from the technology maker by Muhammad Nurcahyo Pratomo and a lawyer or legal entity</li>
