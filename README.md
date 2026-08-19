@@ -30,6 +30,8 @@
 
 ##### Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 
+##### Do you think the blow ? read difference and capabilities my products company 
+
 ###### Original product has label powered by PT JowoScript Technology Indonesia. 
 
 #### Purchases of licensed products must be paid in full without debt or credit di baca ya kalo goblok
