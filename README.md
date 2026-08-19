@@ -424,7 +424,7 @@ SMK Budi Luhur Ciledug pernah lamar kerja disana gue ya dan siapa goblok selama 
 ### Legal Rights of Technology Muhammad Nurcahyo Pratomo and Basic Regulatory Requirements for Registration and Purchase (if you buy and if you don't buy, just watch because the real stuff and fake stuff is different) the real stuff have label powered PT JowoScript Technology Indonesia. Specifically for purchasing licensed products. So whos stupid until now
 <div align="justify">
 <ol>
-	<li>Suka motor atau mobil kenalpot tidak standar atau bising lewat depan rumah tinggal sekarang termasuk blacklist di produk perusahaan gue ya</li>
+	<li>Suka berkendara motor atau mobil kenalpot tidak standar atau bising lewat depan rumah tinggal di komplek sekarang termasuk blacklist di produk perusahaan gue ya. Plat no kendaraan kalian gue foto selama ini lewat</li>
 	<li>Harga sewa produk dibaca perbulan nya ya kalo mau beli waktu sewa habis otomatis terkunci</li>
 	<li>Di larang keras Perusahaan pembuat kecerdasan buatan atau artificial intelligence (AI) untuk membuat gambar eksplisit tanpa persetujuan pemilik gambar dalam melakukan pelecehan seksual, kekerasan dan porno merugikan pihak korban dari gambar editan artificial intelligence atau video dari susunan gambar per capture.</li>
 	<li>Bermasalah sama gue dekat komplek juga harus mati ya apa lagi teman bermuka dua</li>
