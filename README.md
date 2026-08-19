@@ -21,6 +21,8 @@
 	<br><br>
 	Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 	<br><br>
+	Pengusaha modalnya dari investor selama ini tunggu saja jatuh tempo. Gue santai perusahaan milik sendiri dan modal sendiri selama ini buat produk.
+	<br><br>
 	Introduction
 </strong>
 </div>
