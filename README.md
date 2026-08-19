@@ -101,6 +101,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Your can open console browser in your domain name government or company if don't have like powered by PT JowoScript Technology Indonesia that's still free license or empty license plate</li>
 		<li>Pengusaha modalnya dari investor selama ini tunggu saja jatuh tempo. Gue santai perusahaan milik sendiri dan modal sendiri selama ini buat produk. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini sombong siapa dulu sama persulit gue dan gue boss sendiri di perusahaan sendiri siapa lu mau atur atur gue</li>
 		<li>Perusahaan bangkrut itu urusan masing-masing kepada pemodal masing-masing. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini</li>
 		<li>Perusahaan go publik pailit jatuh tempo kepada investor wajib bayar hutang yaitu modal dari investor. Beda kalo perusahaan sendiri tidak go publik dan modal sendiri. itu sudah aturan dari dulu. Sekolah lagi kalian masyarakat kalo goblok jangan bikin malu saja kalian kalian di lihat lebih pintar. gue kasih tau contoh kecilnya kalian buka warung sendiri pakai modal sendiri dengan buka warung besar dengan modal investor</li>
