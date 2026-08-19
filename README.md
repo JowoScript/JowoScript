@@ -101,7 +101,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Perusahaan go publik pailit jatuh tempo kepada investor wajib bayar hutang yaitu modal dari investor. Beda kalo perusahaan sendiri tidak go publik dan modal sendiri. itu sudah aturan dari dulu. Sekolah lagi kalian masyarakat kalo goblok jangan bikin malu saja kalian kalian di lihat lebih pintar</li>
+		<li>Perusahaan go publik pailit jatuh tempo kepada investor wajib bayar hutang yaitu modal dari investor. Beda kalo perusahaan sendiri tidak go publik dan modal sendiri. itu sudah aturan dari dulu. Sekolah lagi kalian masyarakat kalo goblok jangan bikin malu saja kalian kalian di lihat lebih pintar. gue kasih tau contoh kecilnya kalian buka warung sendiri pakai modal sendiri dengan buka warung besar dengan modal investor</li>
 		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia </li>
 		<li>Makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Kalian jadi pengangguran bisa usaha apa gue tanya goblok ? Fakta</li>
 		<li>Mau sodara sendiri saja wajib beli gimana orang lain apa lagi hanya teman karena perusahaan gue berstatus legalitas. Percuma kalian mau numpang atau bebanin saja ke sodara gue</li>
