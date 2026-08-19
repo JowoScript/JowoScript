@@ -249,7 +249,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
-		<li>Gue juga lebih paham politik, hukum dan ekonomi bukan hanya teknologi informasi saja ya</li>
+		<li>Gue juga lebih paham politik, hukum dan ekonomi bukan hanya teknologi informasi saja ya baik baik sok pintar dari gue</li>
 		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia</li>
 		<li>selama ini belum ada berani bicara langsung ke gue siapa  pengecut selama ini bukan gue ya dan gue boss di perusahaan sendiri selama ini</li>
 		<li>Gue sudah pernah rasain mengalamin sendiri di dunia kerja dari di pecat, di buli, di maki maki, lembur tidak dapat uang lembur. beda level ya pengalaman di dunia kerjanya</li>
