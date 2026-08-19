@@ -30,7 +30,7 @@
 
 ##### Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 
-##### Do you think the blow ? read difference and capabilities my products company 
+##### Do you think the blow ? read difference and capabilities my products company. in write indonesia because i'm from indonesia from blue of blood java
 
 ###### Original product has label powered by PT JowoScript Technology Indonesia. 
 
