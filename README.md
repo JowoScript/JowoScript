@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ?
+	<br><br>
 	Do you think I don't know English speak like baby hahhaha
 	<br><br>
 	Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
@@ -64,7 +66,6 @@
 ### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
@@ -109,6 +110,9 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>
+			Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ?
+		</li>
 		<li>Your can open console browser in your domain name government or company if don't have like powered by PT JowoScript Technology Indonesia that's still free license or empty license plate</li>
 		<li>Pengusaha modalnya dari investor selama ini tunggu saja jatuh tempo. Gue santai perusahaan milik sendiri dan modal sendiri selama ini buat produk. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini sombong siapa dulu sama persulit gue dan gue boss sendiri di perusahaan sendiri siapa lu mau atur atur gue</li>
 		<li>Perusahaan bangkrut itu urusan masing-masing kepada pemodal masing-masing. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini</li>
