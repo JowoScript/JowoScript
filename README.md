@@ -112,6 +112,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Gue tambahin lagi aturan baru kalo mau beli lisensi produk perusahaan gue wajib data sumber daya manusia wajib gue periksa siapa tau ada orang bermasalah sama gue</li>
 		<li>
 			Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ?
 		</li>
@@ -265,6 +266,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Gue tambahin lagi aturan baru kalo mau beli lisensi produk perusahaan gue wajib data sumber daya manusia wajib gue periksa siapa tau ada orang bermasalah sama gue</li>
 		<li>Gue juga lebih paham politik, hukum dan ekonomi bukan hanya teknologi informasi saja ya baik baik sok pintar dari gue</li>
 		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia</li>
 		<li>selama ini belum ada berani bicara langsung ke gue siapa  pengecut selama ini bukan gue ya dan gue boss di perusahaan sendiri selama ini</li>
