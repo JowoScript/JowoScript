@@ -112,6 +112,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Asset perusahaan atau instansi pemerintah kalian apa selevel sama produk perusahaan gue sekarang ? Selama belum beli secara legal kalian tetap nonton</li>
 		<li>Gue tambahin lagi aturan baru kalo mau beli lisensi produk perusahaan gue wajib data sumber daya manusia wajib gue periksa siapa tau ada orang bermasalah sama gue. Kalo jadi pengangguran bisa apa dan kerja apa mereka atau usaha apa mereka</li>
 		<li>
 			Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ?
