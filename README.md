@@ -112,6 +112,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Cari uang benar itu susah malah usik gue goblok. Di baca harganya kalo tidak punya uang jangan usik gue goblok. Harganya segitu ya pasti halal gue nentuin harga</li>
 		<li>Siksa saja punya hutang pinjol dan bank selama ini salah sendiri usik gue. Senggol gue pasti gue ratain ya senggol gue karena gue berbadan hukum</li>
 		<li>Asset perusahaan atau instansi pemerintah kalian apa selevel sama produk perusahaan gue sekarang ? Selama belum beli secara legal kalian tetap nonton</li>
 		<li>Gue tambahin lagi aturan baru kalo mau beli lisensi produk perusahaan gue wajib data sumber daya manusia wajib gue periksa siapa tau ada orang bermasalah sama gue. Kalo jadi pengangguran bisa apa dan kerja apa mereka atau usaha apa mereka</li>
