@@ -34,6 +34,8 @@
 </div>
 </div> 
 
+##### PT JowoScript Technology Indonesia do publication if customer buy
+
 ###### Purchase list license products customers 
 <ol>
 	<li>Empty</li>
