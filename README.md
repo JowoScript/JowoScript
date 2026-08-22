@@ -34,7 +34,7 @@
 </div>
 </div> 
 
-###### Purchase list customers 
+###### Purchase list license products customers 
 <ol>
 	<li>Empty</li>
 </ol>
