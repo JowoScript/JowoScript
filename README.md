@@ -34,6 +34,11 @@
 </div>
 </div> 
 
+###### Purchase list customers 
+<ol>
+	<li>Empty</li>
+</ol>
+
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
 ##### Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
