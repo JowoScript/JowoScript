@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic
+	Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
 	<br><br>
 	Seumur an gue kalo jadi pengangguran jelas susah cari kerja ya hahahhaha. gue santai perusahaan milik sendiri.
 	<br><br>
