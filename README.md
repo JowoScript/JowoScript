@@ -123,7 +123,8 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic</li>
+		<li>Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
+</li>
 		<li>Cari uang benar itu susah malah usik gue goblok. Di baca harganya kalo tidak punya uang jangan usik gue goblok. Harganya segitu ya pasti halal gue nentuin harga mau cair atau tidak urusan nanti itu siapa butuh juga bukan gue di akhir</li>
 		<li>Siksa saja punya hutang pinjol dan bank selama ini salah sendiri usik gue. Senggol gue pasti gue ratain ya senggol gue karena gue berbadan hukum</li>
 		<li>Asset perusahaan atau instansi pemerintah kalian apa selevel sama produk perusahaan gue sekarang ? Selama belum beli secara legal kalian tetap nonton</li>
