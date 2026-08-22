@@ -38,7 +38,7 @@
 
 ##### PT JowoScript Technology Indonesia do publication if customer buy (to prevent criminal acts and corruption) this fair enough
 
-###### Purchase list license products customers 
+###### Purchase list license products customers (Original product has label powered by PT JowoScript Technology Indonesia)
 <ol>
 	<li>Empty</li>
 </ol>
