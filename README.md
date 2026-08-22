@@ -34,7 +34,9 @@
 </div>
 </div> 
 
-##### PT JowoScript Technology Indonesia do publication if customer buy (to prevent criminal acts and corruption) this fair enough 
+##### Did you know PT JowoScript Technology Indonesia is Muhammad Nurcahyo Pratomo this one body of a law.
+
+##### PT JowoScript Technology Indonesia do publication if customer buy (to prevent criminal acts and corruption) this fair enough
 
 ###### Purchase list license products customers 
 <ol>
