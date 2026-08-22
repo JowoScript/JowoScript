@@ -274,6 +274,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Selama belum beli ya nonton saja kalian judul saja bales dendam sampai kiamat gue tetap PT JowoScript Technology Indonesia</li>
 		<li>Gue tambahin lagi aturan baru kalo mau beli lisensi produk perusahaan gue wajib data sumber daya manusia wajib gue periksa siapa tau ada orang bermasalah sama gue. Kalo jadi pengangguran bisa apa dan kerja apa mereka atau usaha apa mereka</li>
 		<li>Gue juga lebih paham politik, hukum dan ekonomi bukan hanya teknologi informasi saja ya baik baik sok pintar dari gue</li>
 		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia</li>
