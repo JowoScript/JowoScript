@@ -21,6 +21,8 @@
 	<br><br>
 	Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
 	<br><br>
+	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
+	<br><br>
 	Seumur an gue kalo jadi pengangguran jelas susah cari kerja ya hahahhaha. gue santai perusahaan milik sendiri.
 	<br><br>
 	Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ?
