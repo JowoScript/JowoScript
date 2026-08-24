@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Gue jarang nonton berita karena tidak penting juga bagi gue. 
+	<br><br>
 	Kalah bertanding buat produk suruh bayar hutang ke investor mampus bego bego ya di dunia kerja. penjara masih luas ya untuk kalian bego bego
 	<br><br>
 	Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
