@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Kalah bertanding buat produk suruh bayar hutang ke investor mampus bego bego
+	<br><br>
 	Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
 	<br><br>
 	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
