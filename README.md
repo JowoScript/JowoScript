@@ -129,7 +129,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Di danai pemerintah dan investor hasil kerjanya apa selama ini kalo mau debat kusir sama gue ya selama belum beli biar lebih goblok dari gue jadi pengangguran</li>
+		<li>Di danai pemerintah dan investor hasil kerjanya apa selama ini kalo mau debat kusir sama gue ya selama belum beli biar lebih goblok dari gue jadi pengangguran. Gue juga dulu si gituin di baca perusahaan gue blacklist</li>
 		<li>Long Time ago I'm boring read and learn mastermind series books so I create doctormind series books not free</li>
 		<li>Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
 </li>
