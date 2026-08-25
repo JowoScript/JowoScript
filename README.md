@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Di danau pemerintah dan investor hasil kerjanya apa selama ini kalo mau debat kusir sama gue ya selama belum beli biar lebih goblok dari gue jadi pengangguran 
+	Di danai pemerintah dan investor hasil kerjanya apa selama ini kalo mau debat kusir sama gue ya selama belum beli biar lebih goblok dari gue jadi pengangguran 
 	<br><br>
 	Kalah bertanding buat produk suruh bayar hutang ke investor mampus bego bego ya di dunia kerja. penjara masih luas ya untuk kalian bego bego
 	<br><br>
