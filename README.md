@@ -129,6 +129,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Long Time ago I'm boring read and learn mastermind series books so I create doctormind series books not free</li>
 		<li>Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
 </li>
 		<li>Cari uang benar itu susah malah usik gue goblok. Di baca harganya kalo tidak punya uang jangan usik gue goblok. Harganya segitu ya pasti halal gue nentuin harga mau cair atau tidak urusan nanti itu siapa butuh juga bukan gue di akhir</li>
