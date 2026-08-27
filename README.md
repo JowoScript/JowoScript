@@ -21,7 +21,7 @@
 	<br><br>
 	Selama belum beli nonton saja kalian. demonya salah tempat kalian bego. demo tempat gue blacklist dan bermasalah sama gue ya
 	<br><br>
-	Kalah bertanding buat produk suruh bayar hutang ke investor mampus bego bego ya di dunia kerja. penjara masih luas ya untuk kalian bego bego
+	Blacklist data is problematic with its Muhammad Nurcahyo Pratomo based on name company (This will update in kingdom technology environment, jowoscript, js3, etc)
 	<br><br>
 	Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
 	<br><br>
