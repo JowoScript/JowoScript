@@ -11,7 +11,7 @@
 </strong>
 <strong>
 	PT JowoScript Technology Indonesia
-	 - breakthrough technology, productive technology and capabilities technology
+	 - breakthrough technology, manufacturing information technology, productive technology and capabilities technology
 	<br><br>
 	Alamat kantor usaha
 	<br>
