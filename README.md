@@ -123,7 +123,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Selama belum beli nonton saja kalian. Kalo saingan gue pengangguran dan skill coding di bawah gue ya tidur gue ya. kalo mau hitung hitungan jelas perhitungan gue lebih besar karena selama ini gue juga tidak Nerima gaji dan tunjangan dari pemerintah atau investor.</li>
+		<li>Selama belum beli nonton saja kalian. Kalo saingan gue pengangguran dan skill coding di bawah gue ya tidur gue ya. kalo mau hitung hitungan jelas perhitungan gue lebih besar karena selama ini gue juga tidak Nerima gaji dan tunjangan dari pemerintah atau investor. Apa lagi fasilitas negara selama ini juga gue tidak Nerima ya</li>
 		<li>Di danai pemerintah dan investor hasil kerjanya apa selama ini kalo mau debat kusir sama gue ya selama belum beli biar lebih goblok dari gue jadi pengangguran. Gue juga dulu di gituin lebih parah lagi ya bisa di baca perusahaan gue blacklist dan gue pengalaman lebih paham isi dunia kerja ya dari pada kalian pengangguran bego bego hidup lagi hahaha</li>
 		<li>Long Time ago I'm boring read and learn mastermind series books so I create doctormind series books not free</li>
 		<li>Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
