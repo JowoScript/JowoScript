@@ -19,12 +19,6 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Selama belum beli nonton saja kalian. demonya salah tempat kalian bego. demo tempat gue blacklist dan bermasalah sama gue ya
-	<br><br>
-	Blacklist data is problematic with its Muhammad Nurcahyo Pratomo based on name company (This will update in kingdom technology environment, jowoscript, js3, etc)
-	<br><br>
-	Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
-	<br><br>
 	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
 	<br><br>
 	Seumur an gue kalo jadi pengangguran jelas susah cari kerja ya hahahhaha. gue santai perusahaan milik sendiri.
