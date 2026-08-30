@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Cara matiin orang lebih goblok dari gue itu mudah jangan di kasih makan kelar. mati kelaparan di akhir ya end game. sudah dibkasih makan duluan selama ini tidak ada hasil kerjanya baru patenin 
+	Cara matiin orang lebih goblok dari gue itu mudah jangan di kasih makan kelar. mati kelaparan di akhir ya end game. sudah dikasih makan duluan selama ini tidak ada hasil kerjanya baru patenin mudah bukan 
 	<br><br>
 	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
 	<br><br>
