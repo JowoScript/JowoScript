@@ -25,7 +25,7 @@
 	<br><br>
 	Seumur an gue kalo jadi pengangguran jelas susah cari kerja ya hahahhaha. gue santai perusahaan milik sendiri.
 	<br><br>
-	Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ?
+	Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ? lulus setiap tahun nambah baik baik kalian
 	<br><br>
 	Do you think I don't know English speak like baby hahhaha
 	<br><br>
