@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Selama belum beli nonton saja kalian. Kalo saingan gue pengangguran dan skill coding di bawah gue ya tidur gue ya. kalo mau hitung hitungan jelas perhitungan gue lebih besar karena selama ini gue juga tidak Nerima gaji dan tunjangan dari pemerintah atau investor. Apa lagi fasilitas negara selama ini juga gue tidak Nerima ya
+	<br><br>
 	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
 	<br><br>
 	Seumur an gue kalo jadi pengangguran jelas susah cari kerja ya hahahhaha. gue santai perusahaan milik sendiri.
