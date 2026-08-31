@@ -40,7 +40,7 @@
 
 ##### Did you know PT JowoScript Technology Indonesia is Muhammad Nurcahyo Pratomo this one body of a law.
 
-### Orang bermasalah sama gue dekat nearby tempat tinggal gue belum gue publik ya selama ini karena suhu itu beda mainnya dan pendatang bukan pribumi asli juga sana ya baik baik kalian
+### Orang bermasalah sama gue dekat nearby tempat tinggal belum gue publik ya selama ini karena suhu itu beda mainnya  Apa lagi bukan pribumi asli hanya pendatang ya
 
 ##### PT JowoScript Technology Indonesia do publication if customer buy (to prevent criminal acts and corruption) this fair enough
 
