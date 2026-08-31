@@ -40,6 +40,8 @@
 
 ##### Did you know PT JowoScript Technology Indonesia is Muhammad Nurcahyo Pratomo this one body of a law.
 
+### Orang bermasalah sama gue dekat nearby tempat tinggal gue belum gue publik ya selama ini karena suhu itu beda mainnya 
+
 ##### PT JowoScript Technology Indonesia do publication if customer buy (to prevent criminal acts and corruption) this fair enough
 
 ###### Purchase list license products customers (Original product has label powered by PT JowoScript Technology Indonesia and license product write by name customers)
