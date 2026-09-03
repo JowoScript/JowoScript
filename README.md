@@ -293,6 +293,8 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Mau berhitung perhitungan gue lebih besar ya</li>
+		<li>orang lebih bego dari gue di danai dulu oleh negara mana bisa kembangankan orang lain dan sebaliknya. simple logic</li>
 		<li>Lebih bego dari gue di kasih makan terus oleh negara ya nonton saja kalian netizen. Anggota dewan, menteri, komisaris, pejabat, jendral berbintang gaji dan tunjangan besar banyak ya belum fasilitas negara mereka dapat selama ini</li>
 		<li>Tidak punya sopan santun sama gue selama ini masuk blacklist produk perusahaan gue. my easy talk</li>
 		<li>Gue kalo bukan owner perusahaan mana berani blacklist perusahaan atau instansi. Paham sampai sini kalian</li>
