@@ -291,6 +291,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Lebih bego dari gue di kasih makan terus oleh negara ya nonton saja kalian netizen. Anggota dewan, menteri, komisaris, pejabat gaji dan tunjangan besar banyak ya belum fasilitas negara mereka dapat selama ini</li>
 		<li>Tidak punya sopan santun sama gue selama ini masuk blacklist produk perusahaan gue. my easy talk</li>
 		<li>Gue kalo bukan owner perusahaan mana berani blacklist perusahaan atau instansi. Paham sampai sini kalian</li>
 		<li>Selama belum beli ya nonton saja kalian judul saja bales dendam sampai kiamat gue tetap PT JowoScript Technology Indonesia</li>
