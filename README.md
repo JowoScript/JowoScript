@@ -129,6 +129,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Paling enak nyiksa suka mainin Muhammad Nurcahyo Pratomo dulu ya dari lamar kerja, test kerja dan sejenisnya.</li>
 		<li>Harga produk tidak bisa di intervensi oleh aturan hukum di mana pun berada ya karena bukan hak kalian ya</li>
 		<li>Citizen miskin miskin tidak punya uang untuk beli produk nonton saja kalian nitizen. my easy talk. Mau adu argumentasi ?</li>
 		<li>Selama belum beli nonton saja kalian nitizen. Kalo mau hitung hitungan jelas perhitungan gue lebih besar karena selama ini gue juga tidak Nerima gaji dan tunjangan dari pemerintah atau investor. Apa lagi fasilitas negara selama ini juga gue tidak Nerima ya</li>
