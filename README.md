@@ -19,9 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	orang lebih bego dari gue di danai dulu oleh negara mana bisa kembangan orang lain dan sebaliknya. simple logic
-	<br><br>
-	Lebih bego dari gue di kasih makan terus oleh negara ya nonton saja kalian netizen. Anggota dewan, menteri, komisaris, pejabat, jendral berbintang gaji dan tunjangan besar banyak ya belum fasilitas negara mereka dapat selama ini
+	Di catat untuk debat kusir. Mereka dulu kasih soal test ke gue juga tidak peduli sakit kepala gimana
 	<br><br>
 	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
 	<br><br>
