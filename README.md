@@ -382,7 +382,7 @@
 	<li>MetroData Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja | Setiap perusahaan gue datengin pasti gue catat) so the relationship with IBM partners is tied up</li>
 	<li>Whatever type of cryptocurrency (global) is ilegal currency (case closed)</li>
 	<li>Infosys india is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue lewat test masuk kerja | Setiap perusahaan gue datengin pasti gue catat)</li>
-	<li>Polisi Indonesia suka nilang gue dulu karena sim mati tidak mau bayar perpanjangan sim. masuk blacklist produk perusahaan gue gantian polisi Indonesia. Sim mati bukan berarti tidak punya sim ya kalian hanya cari uang gue juga bisa bermain/li>
+	<li>Polisi Indonesia suka nilang gue dulu karena sim mati tidak mau bayar perpanjangan sim. masuk blacklist produk perusahaan gue gantian polisi Indonesia. Sim mati bukan berarti tidak punya sim ya kalian hanya cari uang gue juga bisa bermain. Surat surat gue lengkap dulu hanya SIM mati kena tilang ? Cari masalah gue juga bisa cari masalah /li>
 	<li>IBM Indonesia</li>
 	<li>MNC Group Indonesia (see point number 22 / mainin gue lewat test masuk kerja | Setiap perusahaan gue datengin pasti gue catat)</li>
 	<li>Transcorp (PT Trans Corpora) (see point number 22 / mainin gue lewat test masuk kerja | Semua perusahaan gue datengin pasti gue catat)</li>
