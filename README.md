@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	bumi tidak perlu di jaga karena goblok itu akan terlihat terus di dunia kerja. paham kata kata gue karena orang goblok selalu menutupi kekurangan nya di dunia kerja itu fakta
+	<br><br>
 	Di catat untuk debat kusir. Mereka dulu kasih soal test ke gue juga tidak peduli sakit kepala gimana
 	<br><br>
 	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
