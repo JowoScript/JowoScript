@@ -129,6 +129,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Modal kecil jualan ayam saja atau jualan air galon saja ya kalian ya hahaha</li>
 		<li>Bumi tidak perlu di jaga karena goblok itu akan terlihat terus di dunia kerja. paham kata kata gue karena orang goblok selalu menutupi kekurangan nya itu fakta</li>
 		<li>Di catat untuk debat kusir. Mereka dulu kasih soal test ke Muhammad Nurcahyo Pratomo juga tidak peduli sakit kepala gimana</li>
 		<li>Paling enak nyiksa suka mainin Muhammad Nurcahyo Pratomo dulu ya dari lamar kerja, test kerja dan sejenisnya.</li>
