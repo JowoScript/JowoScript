@@ -19,21 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	bumi tidak perlu di jaga karena goblok itu akan terlihat terus di dunia kerja. paham kata kata gue karena orang goblok selalu menutupi kekurangan nya di dunia kerja itu fakta
-	<br><br>
-	Di catat untuk debat kusir. Mereka dulu kasih soal test ke gue juga tidak peduli sakit kepala gimana
-	<br><br>
-	teknologi informasi di danai pemerintah dan investor selama ini hasil kerjanya apa
-	<br><br>
-	Seumur an gue kalo jadi pengangguran jelas susah cari kerja ya hahahhaha. gue santai perusahaan milik sendiri.
-	<br><br>
-	Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ? lulus setiap tahun nambah baik baik kalian
-	<br><br>
-	Do you think I don't know English speak like baby hahhaha
-	<br><br>
-	Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
-	<br><br>
-	Pengusaha modalnya dari investor selama ini tunggu saja jatuh tempo. setiap perusahaan itu manajemen keuangan nya beda beda ya. Gue santai perusahaan milik sendiri dan modal sendiri selama ini buat produk.
+	Gue tetap santai skill coding top level dan perusahaan milik sendiri. kalah proyek bayar hutang 
 	<br><br>
 	Introduction
 </strong>
