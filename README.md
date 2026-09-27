@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Gue tetap santai skill coding top level dan perusahaan milik sendiri. kalah proyek bayar hutang 
+	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
 	Introduction
 </strong>
