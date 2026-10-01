@@ -71,6 +71,7 @@
 ### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
 <div align="justify">
 <ol>
+	<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
@@ -115,6 +116,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
 		<li>Modal kecil jualan ayam saja atau jualan air galon saja ya kalian ya hahaha</li>
 		<li>Bumi tidak perlu di jaga karena goblok itu akan terlihat terus di dunia kerja. paham kata kata gue karena orang goblok selalu menutupi kekurangan nya itu fakta</li>
 		<li>Di catat untuk debat kusir. Mereka dulu kasih soal test ke Muhammad Nurcahyo Pratomo juga tidak peduli sakit kepala gimana</li>
