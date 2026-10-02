@@ -360,8 +360,9 @@
 ### Blacklist data is problematic with its Muhammad Nurcahyo Pratomo based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future). They never think 10 years or more about technology information 
 <div align="justify">
 <ol>
+	<li>Teman gue bermasalah sama gue harus mati dengan bukti mayit nya jika mau beli produk perusahaan gue ya</li>
 	<li>Polisi Indonesia masuk blacklist lagi</li>
-	<li>Bank BRI lulusan dari Fasilkom Universitas Indonesia pernah bermasalah sama gue hutang uang tidak bayar kelahiran 1985-1986 nama Mega Puspitasari</li>
+	<li>Bank BRI lulusan dari Fasilkom Universitas Indonesia pernah bermasalah sama gue hutang uang tidak bayar kelahiran 1985-1986 nama Mega Puspitasari dan Muhammad rizalul haq dan bule lingkaran setan semua mereka must die</li>
 	<li>Universitas Budi Luhur dosen bermasalah sama gue dan bermuka dua ada ya siapa kena pecat juga bukan gue ini ya</li>
 	<li>Nvidia corporate ada penyusup musuh musuh gue kerja disana orang Indonesia dan Malaysia siapa kena pecat juga bukan gue ini ya</li>
 	<li>Meta inc ada penyusup musuh musuh gue kerja disana orang Indonesia dan Malaysia siapa kena pecat juga bukan gue ini ya</li>
