@@ -363,7 +363,7 @@
 	<li>Di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain tetap ketahuan di akhir</li>
 	<li>Teman gue bermasalah sama gue harus mati dengan bukti mayit nya jika mau beli produk perusahaan gue ya</li>
 	<li>Polisi Indonesia masuk blacklist lagi</li>
-	<li>Bank BRI lulusan dari Fasilkom Universitas Indonesia pernah bermasalah sama gue hutang uang tidak bayar kelahiran 1985-1986 nama Mega Puspitasari dan Muhammad rizalul haq dan bule lingkaran setan semua mereka must die</li>
+	<li>Bank BRI lulusan dari Fasilkom Universitas Indonesia pernah bermasalah sama gue hutang uang tidak bayar kelahiran 1985-1986 nama Mega Puspitasari dan Muhammad rizalul haq dan bule lingkaran setan semua mereka must die hobi main judi online dulu mereka</li>
 	<li>Universitas Budi Luhur dosen bermasalah sama gue dan bermuka dua ada ya siapa kena pecat juga bukan gue ini ya</li>
 	<li>Nvidia corporate ada penyusup musuh musuh gue kerja disana orang Indonesia dan Malaysia siapa kena pecat juga bukan gue ini ya</li>
 	<li>Meta inc ada penyusup musuh musuh gue kerja disana orang Indonesia dan Malaysia siapa kena pecat juga bukan gue ini ya</li>
