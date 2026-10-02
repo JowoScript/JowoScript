@@ -21,7 +21,7 @@
 	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
-	Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian. apa zaman dulu pimpinan pernah ekseskusi orang bermasalah ? tidak ya pasti algojo. di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain
+	Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian. apa zaman dulu pimpinan pernah ekseskusi orang bermasalah ? tidak ya pasti algojo. di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain tetap ketahuan di akhir
 	<br><br>
 	Introduction
 </strong>
@@ -360,6 +360,7 @@
 ### Blacklist data is problematic with its Muhammad Nurcahyo Pratomo based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future). They never think 10 years or more about technology information 
 <div align="justify">
 <ol>
+	<li>Di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain tetap ketahuan di akhir</li>
 	<li>Teman gue bermasalah sama gue harus mati dengan bukti mayit nya jika mau beli produk perusahaan gue ya</li>
 	<li>Polisi Indonesia masuk blacklist lagi</li>
 	<li>Bank BRI lulusan dari Fasilkom Universitas Indonesia pernah bermasalah sama gue hutang uang tidak bayar kelahiran 1985-1986 nama Mega Puspitasari dan Muhammad rizalul haq dan bule lingkaran setan semua mereka must die</li>
