@@ -21,7 +21,7 @@
 	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
-	Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian. apa zaman dulu pimpinan pernah ekseskusi orang bermasalah ? tidak ya pasti algojo. di dalam blacklist belum di luar blacklist tidak terlihat 
+	Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian. apa zaman dulu pimpinan pernah ekseskusi orang bermasalah ? tidak ya pasti algojo. di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain
 	<br><br>
 	Introduction
 </strong>
