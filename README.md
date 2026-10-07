@@ -23,6 +23,8 @@
 	<br><br>
 	Partai mana mau bermasalah sama perusahaan gue di produk gue nantinya. kinerja politik butuh uang ya dan perputaran uang dengan baik ya tanpa bermasalah dengan hukum that's rules baby
 	<br><br>
+	Banyak anggota partai bermasalah dengan hukum karena partai butuh uang. Mereka tidak pernah menciptakan solusi selama ini hanya tumbal in anggotanya untuk kepentingan partai
+	<br><br>
 	Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian. apa zaman dulu pimpinan pernah ekseskusi orang bermasalah ? tidak ya pasti algojo. di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain tetap ketahuan di akhir
 	<br><br>
 	Introduction
