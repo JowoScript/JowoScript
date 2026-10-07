@@ -291,6 +291,7 @@
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Orang bermasalah sama gue biar pada mati dulu dengan bukti mayat. makin lama siapa rugi bukan gue. Gue tidak perlu adab untuk bersih bersih kuman dan hewan</li>
 		<li>Makin lama makin asik ya kuman kuman pengangguran di luar sana biar pada mati tidak berguna</li>
 		<li>Dulu gue nawarin diri baik baik kerja dengan gaji dan tunjangan kecil banyak tingkah kalian masih di danai pemerintah dan investor. Sekarang siapa jadi sampah di dunia kerja seterusnya. Tetap santai gue bukan orang pelupa ya</li>
 		<li>Mau berhitung perhitungan gue lebih besar ya</li>
