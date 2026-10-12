@@ -73,7 +73,6 @@
 ### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>Gue hanya menunggu setiap tahun perusahaan dan pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency</li>
 	<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
@@ -119,6 +118,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Gue hanya menunggu setiap tahun perusahaan dan pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency</li>
 		<li>Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian</li>
 		<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
 		<li>Modal kecil jualan ayam saja atau jualan air galon saja ya kalian ya hahaha</li>
