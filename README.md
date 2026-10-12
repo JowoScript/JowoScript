@@ -54,7 +54,7 @@
 ###### Original product has label powered by PT JowoScript Technology Indonesia. 
 
 #### Purchases of licensed products must be paid in full without debt or credit di baca ya kalo goblok
-<img src="About Kingdom Technology version 1.4.45.png" 
+<img src="FB_IMG_1791800646170.jpg" 
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
