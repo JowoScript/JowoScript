@@ -59,8 +59,6 @@
      alt="PT JowoScript Technology Indonesia"     
      height="100%" width="100%"></img>
 	 <img src="FB_IMG_1791800639586.jpg" height="100%" width="100%"></img>
-<img src="FB_IMG_1791800639586.jpg" height="100%" width="100%"></img>
-
 ### Muhammad Nurcahyo Pratomo Intro Product PT JowoScript Technology Indonesia
 
 ### selama pemerintah belum beli produk gue ya siapa goblok dan pintar. semakin lama semakin asik ya aturan syarat pembelian produk gue buat tetap. persaingan makin berat siapa goblok dan pintar
