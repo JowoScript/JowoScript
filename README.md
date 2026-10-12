@@ -119,6 +119,7 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian</li>
 		<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
 		<li>Modal kecil jualan ayam saja atau jualan air galon saja ya kalian ya hahaha</li>
 		<li>Bumi tidak perlu di jaga karena goblok itu akan terlihat terus di dunia kerja. paham kata kata gue karena orang goblok selalu menutupi kekurangan nya itu fakta</li>
