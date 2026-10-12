@@ -21,7 +21,7 @@
 	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
-	Gue hanya menunggu setiap tahun perusahaan modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency
+	Gue hanya menunggu setiap tahun perusahaan atau pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency
 	<br><br>
 	Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian. apa zaman dulu pimpinan pernah ekseskusi orang bermasalah ? tidak ya pasti algojo. di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain tetap ketahuan di akhir
 	<br><br>
