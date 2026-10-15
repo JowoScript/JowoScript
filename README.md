@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya
+	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
 	Gue hanya menunggu setiap tahun perusahaan atau pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency
