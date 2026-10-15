@@ -23,7 +23,7 @@
 	<br><br>
 	The rules is rules and the law by law
 	<br>
-	Tidak baca bermasalah sama muhammad nurcahyo pratomo the owner. suhu itu beda mainnya di akhir ya siapa di buru itu kalian
+	Tidak baca bermasalah sama muhammad nurcahyo pratomo the owner. suhu itu beda mainnya di akhir ya siapa di buru itu kalian. semua itu harus ada bukti mayit kalo mau beli produk. Hidup adalah pilihan ya
 	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
