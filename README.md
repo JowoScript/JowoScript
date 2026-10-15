@@ -22,6 +22,8 @@
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
 	<br><br>
 	The rules is rules and the law by law
+	<br>
+	Tidak baca bermasalah sama muhammad nurcahyo pratomo the owner. suhu itu beda mainnya di akhir ya siapa di buru itu kalian
 	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
