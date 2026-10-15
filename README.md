@@ -19,7 +19,9 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. The rules is rules and the law by law
+	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
+	<br><br>
+	The rules is rules and the law by law
 	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
