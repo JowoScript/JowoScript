@@ -23,7 +23,7 @@
 	<br><br>
 	The rules is rules and the law by law
 	<br>
-	Tidak baca bermasalah sama muhammad nurcahyo pratomo atau tommy the owner (tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba termasuk daftar nama perusahaan masuk blacklist ya). suhu itu beda mainnya di akhir ya siapa di buru itu kalian kuman kuman. semua itu harus ada bukti mayit kalo mau beli produk. Hidup adalah pilihan ya. Setiap tahun persaingan di dunia bisnis makin berat paham ya dan lulusan sekolah atau universitas itu pasti nambah setiap tahunnya
+	Tidak baca bermasalah sama muhammad nurcahyo pratomo atau tommy the owner (tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba termasuk daftar nama perusahaan masuk blacklist ya). suhu itu beda mainnya di akhir ya siapa di buru itu kalian kuman kuman. semua itu harus ada bukti mayit kalo mau beli produk. Hidup adalah pilihan ya. Setiap tahun persaingan di dunia bisnis makin berat paham ya dan lulusan sekolah atau universitas itu pasti nambah setiap tahunnya. Kita lihat siapa butuh uang di akhir pasti bunuh bermasalah sama gue di akhir
 	<br><br>
 	Perusahaan milik gue sendiri biar saja kuman kuman pengangguran pada mati bersaing sama Ai
 	<br><br>
