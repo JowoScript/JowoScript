@@ -36,6 +36,8 @@
 </div>
 </div> 
 
+##### Status pemilik 100% PT JowoScript Technology Indonesia yaitu Muhammad Nurcahyo Pratomo dan statusnya tidak go publik bukan milik orang lain
+
 ##### Status keuangan PT JowoScript Technology Indonesia aman sampai akhir zaman tidak memiliki hutang dengan modal sendiri.
 
 ##### Did you know PT JowoScript Technology Indonesia is Muhammad Nurcahyo Pratomo this one body of a law.
