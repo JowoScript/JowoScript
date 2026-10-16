@@ -79,7 +79,7 @@
 ### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
+	<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha siapa suka nipu akan terlihat di dunia kerja siapa jadi sampah</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
 	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
