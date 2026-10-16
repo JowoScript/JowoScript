@@ -21,7 +21,7 @@
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 		<br>
-		Owner, Director, Developer New Programing Technology Product (New shell script, new script, new library, new API and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
+		Owner, Director, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
 	<br><br>
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
 	<br><br>
