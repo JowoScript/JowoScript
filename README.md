@@ -76,9 +76,10 @@
      alt="PT JowoScript Technology Indonesia"
      height="100%" width="100%"></img>
 
-### Kelebihan bisnis untuk beli produk Kingdom Technology Environment
+### Kelebihan bisnis untuk beli produk lisensi Kingdom Technology Environment
 <div align="justify">
 <ol>
+	<li>Uang dan hukum bicara untuk beli produk lisensinya</li>
 	<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha siapa suka nipu akan terlihat di dunia kerja siapa jadi sampah</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
 	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
