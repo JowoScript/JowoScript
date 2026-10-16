@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Hidup sederhana tidak punya hutang itu termasuk kaya ya. Makin lama makin asik ya lebih goblok dan skill coding di bawah gue jadi tai mereka
+	Hidup sederhana tidak punya hutang itu termasuk kaya ya. Makin lama makin asik ya lebih goblok dan skill coding di bawah gue jadi tai mereka. Kalo miskin jangan beli produk lisensi perusahaan gue ya jangan ikutin sok kaya
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 		<br>
