@@ -19,6 +19,10 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
+		<br>
+		Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia
+	<br><br>
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
 	<br><br>
 	The rules is rules and the law by law
