@@ -36,9 +36,9 @@
 </div>
 </div> 
 
-##### Did you know PT JowoScript Technology Indonesia is Muhammad Nurcahyo Pratomo this one body of a law.
+##### Status keuangan PT JowoScript Technology Indonesia aman sampai akhir zaman tidak memiliki hutang dengan modal sendiri.
 
-### Gue tetap santai skill coding top level dan perusahaan milik sendiri. kalah proyek bayar hutang 
+##### Did you know PT JowoScript Technology Indonesia is Muhammad Nurcahyo Pratomo this one body of a law.
 
 ##### PT JowoScript Technology Indonesia do publication if customer buy (to prevent criminal acts and corruption) this fair enough
 
