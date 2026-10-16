@@ -124,7 +124,8 @@
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
-		<li>Gue hanya menunggu setiap tahun perusahaan dan pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency</li>
+		<li>Muhammad Nurcahyo Pratomo bukan jago coding saja tapi jago masalah keuangan finansial. Di luar ilmu professor</li>
+		<li>Muhammad Nurcahyo Pratomo hanya menunggu setiap tahun perusahaan dan pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency</li>
 		<li>Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian</li>
 		<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
 		<li>Modal kecil jualan ayam saja atau jualan air galon saja ya kalian ya hahaha</li>
