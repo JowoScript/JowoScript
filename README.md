@@ -23,7 +23,7 @@
 	<br><br>
 	Gue tidak akan ngaruh siapapun presidennya dan siapun penguasanya beda kelas. case closed. Tanya pakar hukum di manapun dan negara manapun apa gue berbadan hukum satu dengan perusahaan gue dan produk gue buat ? pasti jawabanya ya
 	<br><br>
-	Kalo skill coding di bawah gue jauh goblok hidup lagi bisa apa anjing gue tanya dekat komplek jd sampah masyarakat abadi saja mampus bisa apa kau anjing jalanan. Namanya anjing suka menggonggong hanya lewat depan rumah saja selama ini. tidak punya nyali bicara langsung depan gue. namanya anjing dari dulu begituu menggonggong di belakangku dan anjing anjing bergerombolan hina hina gue jadi apa mereka ? jadi banci di luar sana sampai sekarang 
+	Presiden amerika Thrump kalo sudah pensiun 2029 jadi presiden like baby before, my prediction
 	<br><br>
 	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya
 	<br><br>
