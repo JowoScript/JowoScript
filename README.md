@@ -21,6 +21,8 @@
 	<br><br>
 	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya
 	<br><br>
+	Selama ini masih hidup mereka ya bermasalah sama gue dulu tidak jauh dari teman main gue dulu ya.
+	<br>
 	Biaya hidup naik terus ya setiap tahunnya kepala cenut cenut ya kalian. Siapa butuh di akhir juga bukan Muhammad Nurcahyo Pratomo. Makin lama makin asik ya siapa mati di luar sana di akhir. Waktu akan bicara biaya hidup naik terus ya kepala cenut cenut ya kalian apa lagi persaingan dunia bisnis makin berat setiap tahun nya ya dan dunia kerja makin berat ya efesiensi trus ya
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
