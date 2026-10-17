@@ -33,7 +33,7 @@
 	<br><br>
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
 	<br><br>
-	Didalam persidangan pengadilan saja kalo kalian maki maki hakim saja kalian bisa kena hukuman lebih berat nah seperti itu gue juga
+	Didalam persidangan pengadilan saja kalo kalian maki maki hakim saja kalian bisa kena hukuman lebih berat nah seperti itu gue juga kedudukan gue di mata hukum dalam produk gue buat
 	<br><br>
 	The rules is rules and the law by law
 	<br>
