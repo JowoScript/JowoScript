@@ -25,7 +25,7 @@
 	<br><br>
 	Presiden amerika Trump kalo sudah pensiun 2029 jadi presiden like baby before, my prediction. Walapun sudah punya bank Trump sekarang gak ngaruh ke gue selama belum beli. Kata siapa blow javascript. gue arsitekture teknologi jadi lebih paham. Pengalaman dan goblok akan terlihat nanti ya. Siapa hobinya nipu gue sudah jelas pasti mati kalian setiap ganti kekuasaan
 	<br><br>
-	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya
+	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya. Biaya hidup naik terus ya kepala cenut cenut ya kalian
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 		<br>
@@ -33,7 +33,7 @@
 	<br><br>
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
 	<br><br>
-	Didalam persidangan pengadilan saja kalo kalian maki maki hakim saja kalian bisa kena hukuman lebih berat nah seperti itu gue juga kedudukan gue di mata hukum dalam produk gue buat. Di dalam hukum saja jika undang undang baru saja otomatis orang hukum belajar lagi dan undang undang lama itu tidak berlaku. Seperti itu teknologi gue buat sekarang untuk komersial. Hak Azazi Manusia itu tidak berlaku untuk produk perusahaan gue buat karena gue belajar dari pengalaman dimana waktu lamar kerja ikut test kerja tidak ada Hak Azazi Manusia siapa goblok akan menjadi sampah dan akan terlihat sekarang siapa goblok menjadi sampah di luar sana sudah banyak ya silahkan baca rangkaian kata kata gue di bawah ya baik baik pengalaman anak bayi gue
+	Didalam persidangan pengadilan saja kalo kalian maki maki hakim saja kalian bisa kena hukuman lebih berat nah seperti itu gue juga kedudukan gue di mata hukum dalam produk gue buat. Di dalam hukum saja jika undang undang baru saja otomatis orang hukum belajar lagi dan undang undang lama itu tidak berlaku. Seperti itu teknologi gue buat sekarang untuk komersial. Hak Azazi Manusia itu tidak berlaku untuk produk perusahaan gue buat karena gue belajar dari pengalaman dimana waktu lamar kerja ikut test kerja tidak ada Hak Azazi Manusia siapa goblok akan menjadi sampah dan akan terlihat sekarang siapa goblok menjadi sampah di luar sana sudah banyak ya silahkan baca rangkaian kata kata gue di bawah ya baik baik pengalaman anak bayi gue. Biaya hidup naik terus ya itu jelas ada hukuman mati loh di produk gue buat kalo mau beli produk lisensi perusahaan gue
 	<br><br>
 	The rules is rules and the law by law
 	<br>
