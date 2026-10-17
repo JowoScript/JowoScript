@@ -19,9 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Ada yang bahas gibran bisa lolos jadi cawepres dulu karena semua itu titipan dan campur tangan bapaknya kalo sendiri mana bisa ya. case closed
-	<br><br>
-	Gue tidak akan ngaruh siapapun presidennya dan siapun penguasanya beda kelas. case closed. Tanya pakar hukum di manapun dan negara manapun apa gue berbadan hukum satu dengan perusahaan gue dan produk gue buat ? pasti jawabanya ya
+	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya
 	<br><br>
 	Presiden amerika Trump kalo sudah pensiun 2029 jadi presiden like baby before, my prediction. Walapun sudah punya bank Trump sekarang gak ngaruh ke gue selama belum beli. Kata siapa blow javascript. gue arsitekture teknologi jadi lebih paham. Pengalaman dan goblok akan terlihat nanti ya. Siapa hobinya nipu gue sudah jelas pasti mati kalian setiap ganti kekuasaan
 	<br><br>
