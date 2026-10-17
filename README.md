@@ -25,7 +25,7 @@
 	<br><br>
 	Presiden amerika Trump kalo sudah pensiun 2029 jadi presiden like baby before, my prediction. Walapun sudah punya bank Trump sekarang gak ngaruh ke gue selama belum beli. Kata siapa blow javascript. gue arsitekture teknologi jadi lebih paham. Pengalaman dan goblok akan terlihat nanti ya. Siapa hobinya nipu gue sudah jelas pasti mati kalian setiap ganti kekuasaan
 	<br><br>
-	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya. Biaya hidup naik terus ya kepala cenut cenut ya kalian. Siapa butuh di akhir juga bukan Muhammad Nurcahyo Pratomo. Makin lama makin asik ya siapa mati di luar sana
+	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya. Biaya hidup naik terus ya kepala cenut cenut ya kalian. Siapa butuh di akhir juga bukan Muhammad Nurcahyo Pratomo. Makin lama makin asik ya siapa mati di luar sana di akhir. Waktu akan bicara biaya hidup naik terus ya kepala cenut cenut ya kalian
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 		<br>
