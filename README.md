@@ -20,7 +20,7 @@
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
 	Kalo skill coding di bawah gue jauh goblok hidup lagi bisa apa anjing gue tanya dekat komplek jd sampah masyarakat abadi saja mampus bisa apa kau anjing jalanan. Namanya anjing suka menggonggong hanya lewat depan rumah saja selama ini. tidak punya nyali bicara langsung depan gue
-	<br>
+	<br><br>
 	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
