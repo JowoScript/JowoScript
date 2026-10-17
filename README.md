@@ -33,6 +33,8 @@
 	<br><br>
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
 	<br><br>
+	Didalam persidangan pengadilan saja kalo kalian maki maki hakim saja kalian bisa kena hukuman lebih berat nah seperti itu gue juga
+	<br><br>
 	The rules is rules and the law by law
 	<br>
 	Tidak baca bermasalah sama muhammad nurcahyo pratomo atau tommy the owner (tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba termasuk daftar nama perusahaan masuk blacklist ya). suhu itu beda mainnya di akhir ya siapa di buru itu kalian kuman kuman. semua itu harus ada bukti mayit kalo mau beli produk. Hidup adalah pilihan ya. Setiap tahun persaingan di dunia bisnis makin berat paham ya dan lulusan sekolah atau universitas itu pasti nambah setiap tahunnya. Kita lihat siapa butuh uang di akhir pasti bunuh bermasalah sama gue di akhir. Tidak perlu tau akhir permainan nya. Gimana ekonomi setiap tahun makin berat ya ✍️😎. Mau kuat kuatan siapa mati di akhir bermasalah sama gue jelas. Ekonomi di Amerika dan Inggris selama ini hanya punya uang saja bisa bertahan disana dan goblok tidak berguna sudah pasti di buang seperti kalianm. Aturan tetap aturan biar mampus selama belum beli aturan gue tambah terus
