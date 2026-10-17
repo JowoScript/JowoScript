@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Hidup sederhana tidak punya hutaOrang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya
+	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 		<br>
