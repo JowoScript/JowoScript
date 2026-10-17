@@ -18,6 +18,8 @@
 	Business office address
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
+	<br>
+	anjing suka menggonggong itulah malingnya mudah bukan gue siapa goblok
 	<br><br>
 	Kalo skill coding di bawah gue jauh goblok hidup lagi bisa apa anjing gue tanya dekat komplek jd sampah masyarakat abadi saja mampus bisa apa kau anjing jalanan. Namanya anjing suka menggonggong hanya lewat depan rumah saja selama ini. tidak punya nyali bicara langsung depan gue. namanya anjing dari dulu begituu menggonggong di belakangku dan anjing anjing bergerombolan hina hina gue jadi apa mereka ? jadi banci di luar sana sampai sekarang 
 	<br><br>
