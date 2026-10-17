@@ -21,7 +21,7 @@
 	<br><br>
 	Ada yang bahas gibran bisa lolos jadi cawepres dulu karena semua itu titipan dan campur tangan bapaknya kalo sendiri mana bisa ya. case closed
 	<br><br>
-	Gue tidak akan ngaruh siapapun presidennya dan siapun penguasanya beda kelas. case closed. Tanya pakar hukum di manapun apa gue berbadan hukum satu dengan perusahaan gue dan produk gue buat ? pasti jawabanya ya
+	Gue tidak akan ngaruh siapapun presidennya dan siapun penguasanya beda kelas. case closed. Tanya pakar hukum di manapun dan negara manapun apa gue berbadan hukum satu dengan perusahaan gue dan produk gue buat ? pasti jawabanya ya
 	<br><br>
 	Kalo skill coding di bawah gue jauh goblok hidup lagi bisa apa anjing gue tanya dekat komplek jd sampah masyarakat abadi saja mampus bisa apa kau anjing jalanan. Namanya anjing suka menggonggong hanya lewat depan rumah saja selama ini. tidak punya nyali bicara langsung depan gue. namanya anjing dari dulu begituu menggonggong di belakangku dan anjing anjing bergerombolan hina hina gue jadi apa mereka ? jadi banci di luar sana sampai sekarang 
 	<br><br>
