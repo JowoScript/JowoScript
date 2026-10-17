@@ -33,7 +33,7 @@
 	<br><br>
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. 
 	<br><br>
-	Didalam persidangan pengadilan saja kalo kalian maki maki hakim saja kalian bisa kena hukuman lebih berat nah seperti itu gue juga kedudukan gue di mata hukum dalam produk gue buat. Di dalam hukum saja jika undang undang baru saja otomatis orang hukum belajar lagi dan undang undang lama itu tidak berlaku. Seperti itu teknologi gue buat sekarang untuk komersial. Hak Azazi Manusia itu tidak berlaku untuk produk perusahaan gue buat karena gue belajar dari pengalaman dimana waktu lamar kerja ikut test kerja tidak ada Hak Azazi Manusia siapa goblok akan menjadi sampah.
+	Didalam persidangan pengadilan saja kalo kalian maki maki hakim saja kalian bisa kena hukuman lebih berat nah seperti itu gue juga kedudukan gue di mata hukum dalam produk gue buat. Di dalam hukum saja jika undang undang baru saja otomatis orang hukum belajar lagi dan undang undang lama itu tidak berlaku. Seperti itu teknologi gue buat sekarang untuk komersial. Hak Azazi Manusia itu tidak berlaku untuk produk perusahaan gue buat karena gue belajar dari pengalaman dimana waktu lamar kerja ikut test kerja tidak ada Hak Azazi Manusia siapa goblok akan menjadi sampah dan akan terlihat sekarang siapa goblok menjadi sampah di luar sana sudah banyak ya
 	<br><br>
 	The rules is rules and the law by law
 	<br>
