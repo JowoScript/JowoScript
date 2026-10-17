@@ -23,7 +23,7 @@
 	<br><br>
 	Gue tidak akan ngaruh siapapun presidennya dan siapun penguasanya beda kelas. case closed. Tanya pakar hukum di manapun dan negara manapun apa gue berbadan hukum satu dengan perusahaan gue dan produk gue buat ? pasti jawabanya ya
 	<br><br>
-	Presiden amerika Thrump kalo sudah pensiun 2029 jadi presiden like baby before, my prediction. Walapun sudah punya bank Thrump sekarang gak ngaruh ke gue selama belum beli. Kata siapa blow javascript. gue arsitekture teknologi jadi lebih paham
+	Presiden amerika Thrump kalo sudah pensiun 2029 jadi presiden like baby before, my prediction. Walapun sudah punya bank Thrump sekarang gak ngaruh ke gue selama belum beli. Kata siapa blow javascript. gue arsitekture teknologi jadi lebih paham. Pengalaman dan goblok akan terlihat nanti ya
 	<br><br>
 	Orang hina gue miskin pengangguran hidup lagi dekat komplek banyak gaya info gue dimana mana ya. Gue naikin lagi harga produk nya mampus kalian kuman miskin hidup lagi fakta ya
 	<br><br>
