@@ -18,6 +18,8 @@
 	Business office address
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
+	<br>
+	Biaya sekolah naik setiap tahun belum biaya makan dan uang jajan ya. di baca kata kata gue di bawah
 	<br><br>
 	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya. Makin lama makin berat ya biaya hidup naik terus ya dan dunia usaha makin berat persaingannya ya. 
 	<br><br>
