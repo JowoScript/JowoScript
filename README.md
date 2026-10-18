@@ -39,7 +39,7 @@
 	<br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 		<br>
-		Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
+		King of cook, Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
 	<br><br>
 	DASAR HUKUM PRODUK PERUSAHAAN PT JowoScript Technology Indonesia di baca ya paham sampai sini. Hukum menganut otoriter gue buat. Enak mana zaman otoriter atau zaman sekarang ? Hukum otoriter gue buat. Tidak suka tidak usah beli di baca dibawahnya ya siapa jadi sampah masyarakat. Mau di beli atau tidak gue kasih tau biaya hidup naik terus ya itu jelas ada hukuman mati loh di produk gue buat kalo mau beli produk lisensi perusahaan gue. Siapa butuh di akhir juga bukan Muhammad Nurcahyo Pratomo or tommy. Makin lama makin asik ya siapa mati di luar sana
 	<br><br>
