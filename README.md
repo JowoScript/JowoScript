@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah selamanya itu kalian. Gue tidak bisa buat tutup badan kepegawaian negara jangan sebut nama gue
+	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah selamanya itu kalian. 
 	<br><br>
 	Biaya sekolah naik setiap tahun belum biaya makan dan uang jajan ya. di baca kata kata gue di bawah
 	<br><br>
