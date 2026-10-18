@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Emang punya uang kaloan untuk beli produk lisensi perusahaan gue ye hahahahaha kalo miskin itu jangan beli ya
+	<br><br>
 	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah pengangguran selamanya itu kalian. Bales dendam gue itu nyata emang punya uang untuk beli produk lisensi perusahaan gue ? mampus bersaing sama Ai kalian 
 	<br><br>
 	Gaji pegawai dan sewa gedung saja sudah jelas termasuk pengeluaran finance belum lain jual produk belum tentu laku ya hello siapa jadi sampah
