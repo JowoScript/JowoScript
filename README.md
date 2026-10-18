@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya. Makin lama makin berat ya biaya hidup naik terus ya dan usaha makin berat persaingannya ya 
+	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya. Makin lama makin berat ya biaya hidup naik terus ya dan dunia usaha makin berat persaingannya ya. 
 	<br><br>
 	Selama ini masih hidup mereka ya bermasalah sama gue dulu tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba biar pada mati dulu dengan bukti mayat. Gue lagi bersih bersih teman bermasalah sama gue selama ini. Di sekitaran saja gue tau gue teman bermasalah sama gue ya. Makin lama makin asik ya biar siapa jadi sampah masyarakat di luar sana. Biaya hidup naik terus ya apa lagi sudah punya anak mampus kalian. Pegang omongan gue pengalaman gue banyak. 
 	<br><br>
