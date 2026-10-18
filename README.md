@@ -21,7 +21,7 @@
 	<br><br>
 	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya
 	<br><br>
-	Selama ini masih hidup mereka ya bermasalah sama gue dulu tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba biar pada mati dulu dengan bukti mayat. Gue lagi bersih bersih teman bermasalah sama gue selama ini. Di sekitaran saja gue tau gue teman bermasalah sama gue ya. Makin lama makin asik ya biar siapa jadi sampah masyarakat di luar sana. Biaya hidup naik terus ya apa lagi sudah punya anak mampus
+	Selama ini masih hidup mereka ya bermasalah sama gue dulu tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba biar pada mati dulu dengan bukti mayat. Gue lagi bersih bersih teman bermasalah sama gue selama ini. Di sekitaran saja gue tau gue teman bermasalah sama gue ya. Makin lama makin asik ya biar siapa jadi sampah masyarakat di luar sana. Biaya hidup naik terus ya apa lagi sudah punya anak mampus kalian
 	<br><br>
 	Biaya hidup naik terus ya setiap tahunnya kepala cenut cenut ya kalian. Siapa butuh di akhir juga bukan Muhammad Nurcahyo Pratomo. Makin lama makin asik ya siapa mati di luar sana di akhir. Waktu akan bicara biaya hidup naik terus ya kepala cenut cenut ya kalian apa lagi persaingan dunia bisnis makin berat setiap tahun nya ya dan dunia kerja makin berat ya efesiensi trus ya
 	<br><br>
