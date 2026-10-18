@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah selamanya itu kalian
+	<br><br>
 	Biaya sekolah naik setiap tahun belum biaya makan dan uang jajan ya. di baca kata kata gue di bawah
 	<br><br>
 	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya. Makin lama makin berat ya biaya hidup naik terus ya dan dunia usaha makin berat persaingannya ya. dibaca kata kata gue di bawah ya 
