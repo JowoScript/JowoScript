@@ -23,7 +23,7 @@
 	<br>
 	<img src="Screenshot_20261018-182956_1.jpg" title="My easy talk everything " />
 	<br>
-	Emang punya uang kalian untuk beli produk lisensi perusahaan gue ye hahahahaha kalo miskin itu jangan beli ya hahahahaha 
+	Makin lama makin asik ya siapa jadi sampah pengangguran di luar sana. Paling enak injak kepala orang suka hina hina gue selama ini
 	<br><br
 Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak ya belum tentu bisa dapat kerja apa lagi bersaing denga Ai juga bayar. Makin lama makin asik ya selama belum beli ya jadi my chicken saja
 	<br><br>
