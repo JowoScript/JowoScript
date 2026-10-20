@@ -27,7 +27,7 @@
 	<br><br
 Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak ya belum tentu bisa dapat kerja apa lagi bersaing denga Ai juga bayar mampus. produk gue juga tidak gratis mampus siapa jadi sampah selama nya
 	<br><br>
-	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah pengangguran selamanya itu kalian. Bales dendam gue itu nyata emang punya uang untuk beli produk lisensi perusahaan gue ? mampus bersaing sama Ai kalian 
+	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah pengangguran selamanya itu kalian. Bales dendam gue itu nyata emang punya uang untuk beli produk lisensi perusahaan gue ? mampus bersaing sama Ai kalian jadi sampah selamanya
 	<br><br>
 	Gaji pegawai dan sewa gedung saja sudah jelas termasuk pengeluaran finance belum lain jual produk belum tentu laku ya hello siapa jadi sampah
 	<br><br>
