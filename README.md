@@ -19,7 +19,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-	Rekening or account number of bank only name of Muhammad Nurcahyo Pratomo without that's is fake account number. report fraud outside me, OK?
+	Rekening or account number of bank only name of Muhammad Nurcahyo Pratomo without that's is fake account number. report fraud outside me, OK? Setiap no rekening bank ada nama pemilik dan alamat tempat tinggal mudah cari suka nipu di luar sana
 	<br><br>
 	Muhammad Nurcahyo Pratomo small talk fact
 	<br><br>
