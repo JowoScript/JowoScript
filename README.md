@@ -25,7 +25,7 @@
 	<br>
 	Makin lama makin asik ya siapa jadi sampah pengangguran di luar sana. Paling enak injak kepala orang suka hina hina gue selama ini
 	<br><br
-Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak ya belum tentu bisa dapat kerja apa lagi bersaing denga Ai juga bayar. Makin lama makin asik ya selama belum beli ya jadi my chicken saja
+Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak ya belum tentu bisa dapat kerja apa lagi bersaing denga Ai juga bayar mampus. produk gue juga tidak gratis mampus siapa jadi sampah selama nya
 	<br><br>
 	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah pengangguran selamanya itu kalian. Bales dendam gue itu nyata emang punya uang untuk beli produk lisensi perusahaan gue ? mampus bersaing sama Ai kalian 
 	<br><br>
