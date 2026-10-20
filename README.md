@@ -19,6 +19,8 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
+	Rekening or account number of bank only name of Muhammad Nurcahyo Pratomo without that's is fake account number. report fraud outside me, OK?
+	<br><br>
 	Muhammad Nurcahyo Pratomo small talk fact
 	<br><br>
 	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal
