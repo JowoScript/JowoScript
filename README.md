@@ -23,7 +23,7 @@
 	<br>
 	<img src="Screenshot_20261018-114542_1.jpg" title="My easy talk everything " />
 	<br>
-	Makin lama makin asik ya siapa jadi sampah pengangguran di luar sana. Paling enak injak kepala orang suka hina hina gue selama ini. Gue pengalaman makin lama siapa jadi tai di luar sana. Gue punya data selama ini hina hina gue di luar sana
+	Makin lama makin asik ya siapa jadi sampah pengangguran di luar sana. Paling enak injak kepala orang suka hina hina gue selama ini. Gue pengalaman makin lama siapa jadi tai di luar sana. Gue punya data selama ini hina hina gue di luar sana. Efeknya tau sendiri siapa jadi tai
 	<br><br
 Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak ya belum tentu bisa dapat kerja apa lagi bersaing denga Ai juga bayar mampus. produk gue juga tidak gratis mampus siapa jadi sampah selama nya
 	<br><br>
