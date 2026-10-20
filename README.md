@@ -107,6 +107,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 ### Kelebihan bisnis untuk beli produk lisensi Kingdom Technology Environment
 <div align="justify">
 <ol>
+	<li>Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danau belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah belum tentu di gunakan selamanya setiap perubahan pasti tertinggal</li>
 	<li>Uang dan hukum bicara untuk beli produk lisensinya</li>
 	<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha siapa suka nipu akan terlihat di dunia kerja siapa jadi sampah</li>
 	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
