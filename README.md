@@ -33,7 +33,7 @@ Aturan gue buat tetap tidak akan berubah emang harus ada mati hina hina gue di l
 	<br><br>
 	Muhammad Nurcahyo Pratomo small talk fact
 	<br><br>
-	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal (mampu bayar hutang ke pemodal), buat Ai di danai belum tentu balik modal (mampu bayar hutang ke pemodal), buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya kalian di luar sana. Gue santai perusahaan milik sendiri dan uang selalu ada bilang gue miskin siapa suka minta sumbangan ke rumah gue selama ini
+	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal (mampu bayar hutang ke pemodal), jadi bintang film belum tentu laku selamanya jadi artis atau aktor, buat Ai di danai belum tentu balik modal (mampu bayar hutang ke pemodal), buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya kalian di luar sana. Gue santai perusahaan milik sendiri dan uang selalu ada bilang gue miskin siapa suka minta sumbangan ke rumah gue selama ini
 	<br><br>
 	My easy talk everything 
 	<br>
