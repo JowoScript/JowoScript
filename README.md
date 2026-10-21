@@ -33,6 +33,7 @@
 	<br><br
 Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak ya belum tentu bisa dapat kerja apa lagi bersaing denga Ai juga bayar mampus. produk gue juga tidak gratis mampus siapa jadi sampah selama nya
 	<br><br>
+	Jago finance saja belum tentu kuat hadapi zaman sekarang.
 	Soal test masuk kerja itu beda dengan pengalaman di lapangan asli. siapa jadi sampah selama ini itu kalian dulu persulit gue test masuk kerja. gantian gue dirikan perusahaan sendiri siapa jadi sampah pengangguran selamanya itu kalian. Bales dendam gue itu nyata emang punya uang untuk beli produk lisensi perusahaan gue ? mampus bersaing sama Ai kalian jadi sampah selamanya
 	<br><br>
 	Gaji pegawai dan sewa gedung saja sudah jelas termasuk pengeluaran finance belum lain jual produk belum tentu laku ya hello siapa jadi sampah
@@ -47,7 +48,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	<br><br><br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 	<br>
-	Who Iam ? 
+	Who Iam ? Kalo hanya wanita itu mudah bagi gue karena bukan level gue wanita
 		<br>
 		king of cook the cook on cook, Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
 	<br><br>
