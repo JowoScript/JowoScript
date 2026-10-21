@@ -25,7 +25,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br>
-	Banyak presiden di pemerintahaan itu gengsi langsung untuk beli secara legal ke owner PT JowoScript Technology Indonesia 
+	Many presidents within that administration felt it was beneath their dignity to make a direct, legal purchase from the owner of PT JowoScript Technology Indonesia.
 	<br><br>
 Aturan gue buat tetap tidak akan berubah emang harus ada mati hina hina gue di luar sana. Mau berbohong saja boleh tapi jangan pernah berbohong sama gue habis langsung
 	<br><br>
