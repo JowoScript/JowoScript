@@ -60,7 +60,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	<br>
 	Who Iam ? 
 		<br>
-		king of director the director on director, king of cook the cook on cook, Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
+	king of baby sleep the baby sleep on baby sleep, king of director the director on director, king of cook the cook on cook, Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
 	<br><br>
 	Rekening or account number of bank only name of Muhammad Nurcahyo Pratomo without that's is fake account number. report fraud outside me, OK?
 	<br><br>
