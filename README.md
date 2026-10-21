@@ -12,9 +12,7 @@
 <strong>
 	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue. Siapa jadi sampah di luar sana gue tanya ya. Perusahaan siapa minus terus keuangan nya gue tanya dan siapa jadi pengangguran di luar sana gue tanya
 	<br><br>
-	How many CEO like bill gates, mark, elon, larry page and sergey brin they still my baby.
-	<br>
-	Many School and University in the world wide create many chicken broken the fact before.
+	Many School and University in the world wide create many chicken broken the fact before. Makin lama siapa jadi sampah di luar sana
 	<br>
 	Many presidents within that administration felt it was beneath their dignity to make a direct, legal purchase from the owner of PT JowoScript Technology Indonesia.
 	<br><br><br><br>
