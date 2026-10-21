@@ -25,7 +25,7 @@ Dekat komplek gue bermasalah sama gue selama ini masih hidup ya jadi berat ya ti
 	<br><br>
 	Muhammad Nurcahyo Pratomo small talk fact
 	<br><br>
-	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya kalian di luar sana. Gue santai perusahaan milik sendiri dan uang selalu ada
+	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya kalian di luar sana. Gue santai perusahaan milik sendiri dan uang selalu ada bilang gue miskin siapa suka minta sumbangan ke rumah gue selama ini
 	<br><br>
 	My easy talk everything 
 	<br>
