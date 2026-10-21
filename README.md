@@ -10,7 +10,7 @@
 <strong>	
 </strong>
 <strong>
-	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue. Siapa jadi sampah di luar sana gue tanya
+	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue. Siapa jadi sampah di luar sana gue tanya ya.
 	<br><br>
 	How many CEO like bill gates, mark, elon, larry page and sergey brin they still my baby.
 	<br>
