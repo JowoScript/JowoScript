@@ -19,13 +19,13 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
 	<br><br>
-Dekat komplek gue bermasalah sama gue selama ini masih hidup ya jadi berat ya tidak bisa beli
-	<br>
+Dekat komplek gue bermasalah sama gue selama ini masih hidup ya jadi berat ya tidak bisa beli. Gue itu suhu serba tau dekat lingkungan saja gue tau siapa suka hina hina gue di belakang gue selama ini. Selama masih hidup ya tidak bisa beli harus mati dulu dengan bukti mayat
+	<br><br>
 	Rekening or account number of bank only name of Muhammad Nurcahyo Pratomo without that's is fake account number. report fraud outside me, OK? Setiap no rekening bank ada nama pemilik dan alamat tempat tinggal mudah cari suka nipu di luar sana
 	<br><br>
 	Muhammad Nurcahyo Pratomo small talk fact
 	<br><br>
-	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal
+	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya
 	<br><br>
 	My easy talk everything 
 	<br>
