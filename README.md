@@ -23,11 +23,11 @@
 	<br><br>
 Aturan gue buat tetap tidak akan berubah emang harus ada mati hina hina gue di luar sana. Mau berbohong saja boleh tapi jangan pernah berbohong sama gue habis langsung
 	<br><br>
-	Rekening or account number of bank only name of Muhammad Nurcahyo Pratomo without that's is fake account number. report fraud outside me, OK? Setiap no rekening bank ada nama pemilik dan alamat tempat tinggal mudah cari suka nipu di luar sana
+	Makin lama makin asik ya kata kata gue fakta di lapangan
 	<br><br>
 	Muhammad Nurcahyo Pratomo small talk fact
 	<br><br>
-	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya kalian di luar sana. Gue santai perusahaan milik sendiri dan uang selalu ada bilang gue miskin siapa suka minta sumbangan ke rumah gue selama ini
+	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal (mampu bayar hutang ke pemodal), buat Ai di danai belum tentu balik modal (mampu bayar hutang ke pemodal), buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya kalian di luar sana. Gue santai perusahaan milik sendiri dan uang selalu ada bilang gue miskin siapa suka minta sumbangan ke rumah gue selama ini
 	<br><br>
 	My easy talk everything 
 	<br>
