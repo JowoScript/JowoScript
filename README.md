@@ -10,9 +10,13 @@
 <strong>	
 </strong>
 <strong>
+	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilite for commercial
+	<br>
+	Many School and University in the world wide create many chicken broken the fact before
+	<br><br><br><br>
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, manufacturing information technology, productive technology and capabilities technology
-	<br><br>
+	<br>
 	Alamat kantor usaha
 	<br>
 	Business office address
@@ -52,7 +56,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	<br><br><br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 	<br>
-	Who Iam ? How many chicken graduation from school and university
+	Who Iam ? Many School and University in the world wide create many chicken broken the fact before
 		<br>
 		king of cook the cook on cook, Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
 	<br><br>
