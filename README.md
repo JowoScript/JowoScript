@@ -10,11 +10,11 @@
 <strong>	
 </strong>
 <strong>
-	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilite for commercial
+	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilite for commercial.
 	<br><br>
-	How many CEO like bill gates, mark, elon, larry page and sergey brin they still my baby
+	How many CEO like bill gates, mark, elon, larry page and sergey brin they still my baby.
 	<br>
-	Many School and University in the world wide create many chicken broken the fact before
+	Many School and University in the world wide create many chicken broken the fact before.
 	<br>
 	Many presidents within that administration felt it was beneath their dignity to make a direct, legal purchase from the owner of PT JowoScript Technology Indonesia.
 	<br><br><br><br>
@@ -27,7 +27,7 @@
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia.
 	<br><br>
-Aturan gue buat tetap tidak akan berubah emang harus ada mati hina hina gue di luar sana. Mau berbohong saja boleh tapi jangan pernah berbohong sama gue habis langsung
+Aturan gue buat tetap tidak akan berubah emang harus ada mati hina hina gue di luar sana. Mau berbohong saja boleh tapi jangan pernah berbohong sama gue habis langsung.
 	<br><br>
 	Makin lama makin asik ya kata kata gue fakta di lapangan
 	<br><br>
