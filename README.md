@@ -52,7 +52,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	<br><br><br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 	<br>
-	Who Iam ? Kalo hanya wanita itu mudah bagi gue karena bukan level gue wanita
+	Who Iam ? How many chicken graduation from school and university
 		<br>
 		king of cook the cook on cook, Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
 	<br><br>
