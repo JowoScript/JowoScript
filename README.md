@@ -44,8 +44,10 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	Selama ini masih hidup mereka ya bermasalah sama gue dulu tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba biar pada mati dulu dengan bukti mayat salah satu syarat pembelian produk lisensi perusahaan gue ya. Gue lagi bersih bersih teman bermasalah sama gue selama ini. Di sekitaran saja gue tau gue teman bermasalah sama gue ya. Makin lama makin asik ya biar siapa jadi sampah masyarakat di luar sana. Biaya hidup naik terus ya apa lagi sudah punya anak mampus kalian. Pegang omongan gue pengalaman gue banyak. 
 	<br><br>
 	Biaya hidup naik terus ya setiap tahunnya kepala cenut cenut ya kalian. Siapa butuh di akhir juga bukan Muhammad Nurcahyo Pratomo. Makin lama makin asik ya siapa mati di luar sana di akhir. Waktu akan bicara biaya hidup naik terus ya kepala cenut cenut ya kalian apa lagi persaingan dunia bisnis makin berat setiap tahun nya ya dan dunia kerja makin berat ya efesiensi trus ya
-	<br><br>
+	<br><br><br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
+	<br>
+	Who Iam ? 
 		<br>
 		king of cook the cook on cook, Owner, Director, Law by law, Developer New Programing Technology Product (New shell script, new script, new format extension, new library, new API, new servers, new virtual machine and new kernel) for commercial, Developer Kingdom Technology Environment for commercial, Technology Architecture PT JowoScript Technology Indonesia
 	<br><br>
