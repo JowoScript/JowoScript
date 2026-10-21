@@ -15,6 +15,8 @@
 	How many CEO like bill gates, mark, elon, larry page and sergey brin they still my baby
 	<br>
 	Many School and University in the world wide create many chicken broken the fact before
+	<br>
+	Many presidents within that administration felt it was beneath their dignity to make a direct, legal purchase from the owner of PT JowoScript Technology Indonesia.
 	<br><br><br><br>
 	PT JowoScript Technology Indonesia
 	 - breakthrough technology, manufacturing information technology, productive technology and capabilities technology
@@ -23,9 +25,7 @@
 	<br>
 	Business office address
 	<br>
-	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
-	<br>
-	Many presidents within that administration felt it was beneath their dignity to make a direct, legal purchase from the owner of PT JowoScript Technology Indonesia.
+	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia.
 	<br><br>
 Aturan gue buat tetap tidak akan berubah emang harus ada mati hina hina gue di luar sana. Mau berbohong saja boleh tapi jangan pernah berbohong sama gue habis langsung
 	<br><br>
