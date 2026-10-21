@@ -18,6 +18,8 @@
 	Business office address
 	<br>
 	JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten, Indonesia
+	<br>
+	Siapa miskin ? siapa suka minta sumbangan ke rumah gue tanya ?
 	<br><br>
 Dekat komplek gue bermasalah sama gue selama ini masih hidup ya jadi berat ya tidak bisa beli. Gue itu suhu serba tau dekat lingkungan saja gue tau siapa suka hina hina gue di belakang gue selama ini. Selama masih hidup ya tidak bisa beli harus mati dulu dengan bukti mayat siapa mati apa lagi lebih miskin dari gue ya dan gue punya perusahaan sendiri dan uang selalu ada main main sama pengalaman anak bayi. Di luar sana selama ini tidak dapat bantuan beras dan sejenisnya gimana kabarnya 
 	<br><br>
