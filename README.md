@@ -12,7 +12,7 @@
 <strong>
 	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilite for commercial
 	<br><br>
-	How many CEO like bill gates, mark, elon they still my baby
+	How many CEO like bill gates, mark, elon, larry page and sergey brin they still my baby
 	<br>
 	Many School and University in the world wide create many chicken broken the fact before
 	<br><br><br><br>
