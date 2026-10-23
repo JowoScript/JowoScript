@@ -12,6 +12,8 @@
 <strong>
 	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue. Siapa jadi sampah di luar sana gue tanya ya. Perusahaan siapa minus terus keuangan nya gue tanya dan siapa jadi pengangguran di luar sana gue tanya
 	<br><br>
+Contoh satu semester 10 juta kali satu angkatan berapa ratus sedangkan gaji dosen itu berapa kecil belum muridnya hitung berapa banyak dulu. Dosen itu hanya pion di dalam yayasan sekolah atau universitas. Pemilik yayasan jelas menang banyak dari dulu kalian tidak sadar
+	<br><br>
 	<img src="Screenshot_20261022-064153_1.jpg" width="100%" height="100%" />
 	<br><br>
 	Many School and University in the world wide create many chicken broken the fact before. Makin lama siapa jadi sampah di luar sana dan mau pengangguran meningkat terus gue tidak peduli ya
