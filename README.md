@@ -435,7 +435,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	<li>Big bad wolf Indonesia (global) is have problematic with Muhammad Nurcahyo Pratomo before (bullying and intimidation work / buliying saya di waktu kerja pada tahun 2017 di Surabaya) siapa bullying gue dulu waktu kerja di surabaya sampai ngancam gue tembak mati di group wa siapa calon mayat di akhir bukan gue ya dan kenapa gue harus takut sama orang lebih goblok dari gue ya di wa group dulu. Pak Amir suruh buka suara sana saksi hidup dan chat wa group</li>
 	<li>Penta Group Indonesia</li>
 	<li>Sinergi group Indonesia</li>
-	<li>IFS Solusi Integrasi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja | Setiap perusahaan gue datengin pasti gue catat)</li>
+	<li>IFS Solusi Integrasi Indonesia (Vina Rivelina) is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja | Setiap perusahaan gue datengin pasti gue catat)</li>
 	<li>Medco Energi Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja | Setiap perusahaan gue datengin pasti gue catat)</li>
 	<li>MetroData Indonesia is have problematic with Muhammad Nurcahyo Pratomo before (see point number 22 / mainin gue test masuk kerja | Setiap perusahaan gue datengin pasti gue catat) so the relationship with IBM partners is tied up</li>
 	<li>Whatever type of cryptocurrency (global) is ilegal currency (case closed)</li>
