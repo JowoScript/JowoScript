@@ -10,7 +10,7 @@
 <strong>	
 </strong>
 <strong>
-	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue. Siapa jadi sampah di luar sana gue tanya ya. Perusahaan siapa minus terus keuangan nya gue tanya dan siapa jadi pengangguran di luar sana gue tanya
+	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue karena gue kerja sendiri selama ini buat produk di perusahaan sendiri tidak pakai uang orang juga. Siapa jadi sampah di luar sana gue tanya ya. Perusahaan siapa minus terus keuangan nya gue tanya dan siapa jadi pengangguran di luar sana gue tanya
 	<br><br>
 	<img src="Screenshot_20261022-064153_1.jpg" width="100%" height="100%" />
 	<br><br>
