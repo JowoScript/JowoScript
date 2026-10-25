@@ -13,7 +13,7 @@
 	<br>
 	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue karena gue kerja sendiri selama ini buat produk di perusahaan sendiri tidak pakai uang orang juga, owner bisnis gue juga dan tidak gratisan mau debat kusir. Siapa jadi sampah di luar sana gue tanya ya. Perusahaan siapa minus terus keuangan nya gue tanya dan siapa jadi pengangguran di luar sana gue tanya setiap tahun lulusan sekolah dan universitas itu nambah naik terus. 
 	<br><br>
-Orang di luar sana suka jelek jelekin gue tetap masuk blacklist gue di perusahaan gue sendiri PT JowoScript Technology Indonesia dan syarat mayat orang suka jelek jelekin gue juga harus ada buktinya 
+Orang di luar sana suka jelek jelekin gue tetap masuk blacklist gue di perusahaan gue sendiri PT JowoScript Technology Indonesia dan syarat mayat orang suka jelek jelekin gue juga harus ada buktinya di saat pembelian produk lisensi perusahaan gue
 	<br><br>
 	<img src="Screenshot_20261022-064153_1.jpg" width="100%" height="100%" />
 	<br><br>
@@ -33,8 +33,6 @@ Aturan gue buat tetap tidak akan berubah emang harus ada mati hina hina gue di l
 	Makin lama makin asik ya kata kata gue fakta di lapangan
 	<br><br>
 	Muhammad Nurcahyo Pratomo small talk fact
-	<br><br>
-	Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal (mampu bayar hutang ke pemodal), jadi bintang film belum tentu laku selamanya jadi artis atau aktor, buat Ai di danai belum tentu balik modal (mampu bayar hutang ke pemodal), buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal apa lagi sudah pensiunan punya anak dan cucu pengangguran makin sakit kepalanya kalian di luar sana. Gue santai perusahaan milik sendiri dan uang selalu ada bilang gue miskin siapa suka minta sumbangan ke rumah gue selama ini
 	<br><br>
 	My easy talk everything 
 	<br>
@@ -129,7 +127,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 ### Kelebihan bisnis untuk beli produk lisensi Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>Orang di luar sana suka jelek jelekin gue tetap masuk blacklist gue di perusahaan gue sendiri PT JowoScript Technology Indonesia dan syarat mayat orang suka jelek jelekin gue juga harus ada buktinya 
+	<li>Orang di luar sana suka jelek jelekin gue tetap masuk blacklist gue di perusahaan gue sendiri PT JowoScript Technology Indonesia dan syarat mayat orang suka jelek jelekin gue juga harus ada buktinya di saat pembelian produk lisensi perusahaan gue
 </li>
 	<li>Beli secara legal wajib ketemu gue (Muhammad Nurcahyo Pratomo) langsung dan selama ini belum ada beli langsung ke gue (Muhammad Nurcahyo Pratomo). Kita lihat siapa suka nipu di luar sana pasti mati mereka ya dan suka korupsi juga bukan gue ini selama ini mampus bersih bersih sampah itu mudah bukan</li>
 	<li>Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal</li>
