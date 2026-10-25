@@ -126,7 +126,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 ### Kelebihan bisnis untuk beli produk lisensi Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>Mau belajar di sekolah atau universitas saja harus modal bayar uang sekolah dari dulu di dunia belajar praktek menggunakan bahasa pemprograman gratisan siapa di tipu selama ini muridnya dan lulus sekolah cari kerja sendiri belum tentu dapat kerja ya. Siapa di untungkan dari dulu pemiliik yayasan sekolah dari dulu makin kaya mereka. Siapa goblok ya orang tua murid</li>
+	<li>Mau belajar di sekolah atau universitas saja harus modal bayar uang sekolah dari dulu di dunia belajar praktek menggunakan bahasa pemprograman gratisan siapa di tipu selama ini muridnya dan lulus sekolah cari kerja sendiri belum tentu dapat kerja ya. Siapa di untungkan dari dulu pemiliik yayasan sekolah dari dulu makin kaya mereka. Siapa goblok ya orang tua murid. Fakta secara logika</li>
 	<li>Beli secara legal wajib ketemu gue (Muhammad Nurcahyo Pratomo) langsung dan selama ini belum ada beli langsung ke gue (Muhammad Nurcahyo Pratomo). Kita lihat siapa suka nipu di luar sana pasti mati mereka ya dan suka korupsi juga bukan gue ini selama ini mampus bersih bersih sampah itu mudah bukan</li>
 	<li>Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal</li>
 	<li>Uang dan hukum aturan Muhammad Nurcahyo Pratomo untuk beli produk lisensinya</li>
