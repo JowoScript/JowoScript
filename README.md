@@ -129,7 +129,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 ### Kelebihan bisnis untuk beli produk lisensi Kingdom Technology Environment
 <div align="justify">
 <ol>
-	<li>Orang di luar sana suka jelek jelekin gue tetap masuk blacklist gue di perusahaan gue sendiri PT JowoScript Technology Indonesia dan syarat mayat orang suka jelek jelekin gue juga harus ada buktinya di saat pembelian produk lisensi perusahaan gue
+	<li>Orang di luar sana suka jelek jelekin gue wajib jadi mayat bukti fisik waktu pembelian produk lisensi nantinya itu salah satu syarat utamanya
 </li>
 	<li>Beli secara legal wajib ketemu gue (Muhammad Nurcahyo Pratomo) langsung dan selama ini belum ada beli langsung ke gue (Muhammad Nurcahyo Pratomo). Kita lihat siapa suka nipu di luar sana pasti mati mereka ya dan suka korupsi juga bukan gue ini selama ini mampus bersih bersih sampah itu mudah bukan</li>
 	<li>Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal</li>
@@ -179,6 +179,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 #### PT JowoScript Technology Indonesia small talk
 <div>
 	<ul>
+		<li>Orang di luar sana suka jelek jelekin gue wajib jadi mayat bukti fisik waktu pembelian produk lisensi nantinya itu salah satu syarat utamanya</li>
 		<li>PT Jowo script Technology Indonesia punya dasar hukum sendiri dengan berbadan hukum sendiri di produk perusahaan sendiri</li>
 		<li>Muhammad Nurcahyo Pratomo bukan jago coding saja tapi jago masalah keuangan finansial, legalitas dan hukum. Di luar ilmu professor. menteri ekonomi di pemerintahan bisa anak ayamku di akhir</li>
 		<li>Muhammad Nurcahyo Pratomo hanya menunggu setiap tahun perusahaan dan pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency</li>
@@ -352,6 +353,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
+		<li>Orang di luar sana suka jelek jelekin gue wajib jadi mayat bukti fisik waktu pembelian produk lisensi nantinya itu salah satu syarat utamanya</li>
 		<li>Orang bermasalah sama gue biar pada mati dulu dengan bukti mayat. makin lama siapa rugi bukan gue. Gue tidak perlu adab untuk bersih bersih kuman dan hewan</li>
 		<li>Makin lama makin asik ya kuman kuman pengangguran di luar sana biar pada mati tidak berguna</li>
 		<li>Dulu gue nawarin diri baik baik kerja dengan gaji dan tunjangan kecil banyak tingkah kalian masih di danai pemerintah dan investor. Sekarang siapa jadi sampah di dunia kerja seterusnya. Tetap santai gue bukan orang pelupa ya</li>
