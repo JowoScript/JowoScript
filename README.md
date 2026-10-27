@@ -11,7 +11,7 @@
 </strong>
 <strong>
 	<br>
-	Orang banyak hutang di luar sana apa ada jaminannya masuk surga ?
+	Orang banyak hutang di luar sana apa ada jaminannya masuk surga ? Selevel nabi muhammad saja tidak bisa selamatkan orang punya hutang apa lagi level kalian selevel chicken
 	<br>
 	butuh tumbal nyawa suka jelek jelekin gue selama ini makin lama makin asik ya apa lagi skill coding di bawah gue jahu. Harus ada bukti fisik mayat nanti waktu pembelian. Kata siapa gue tidak tau orang nya siapa. Pengalaman anak bayi gue intelektual gue mirip pak Suharto ya bedanya umur gue masih muda
 	<br><br>
