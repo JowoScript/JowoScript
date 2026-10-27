@@ -15,7 +15,9 @@
 	<br>
 	butuh tumbal nyawa suka jelek jelekin gue selama ini makin lama makin asik ya apa lagi skill coding di bawah gue jahu. Harus ada bukti fisik mayat nanti waktu pembelian. Kata siapa gue tidak tau orang nya siapa. Pengalaman anak bayi gue intelektual gue mirip pak Suharto ya bedanya umur gue masih muda
 	<br><br>
-	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue karena gue kerja sendiri selama ini buat produk di perusahaan sendiri tidak pakai uang orang juga, owner bisnis gue juga dan tidak gratisan mau debat kusir. Siapa jadi sampah di luar sana gue tanya ya. Perusahaan siapa minus terus keuangan nya gue tanya dan siapa jadi pengangguran di luar sana gue tanya setiap tahun lulusan sekolah dan universitas itu nambah naik terus. 
+	Introduction from Muhammad Nurcahyo Pratomo the creator new technology capabilities for commercial. Mau di beli atau tidak ngaruh ke gue karena gue kerja sendiri selama ini buat produk di perusahaan sendiri tidak pakai uang orang juga, tidak punya utang karena modal sendiri, owner bisnis gue juga dan tidak gratisan mau debat kusir.
+	<br><br>
+	Siapa jadi sampah di luar sana gue tanya ya. Perusahaan siapa minus terus keuangan nya gue tanya dan siapa jadi pengangguran di luar sana gue tanya setiap tahun lulusan sekolah dan universitas itu nambah naik terus. 
 	<br><br>
 Orang di luar sana suka jelek jelekin gue wajib jadi mayat bukti fisik waktu pembelian produk lisensi nantinya itu salah satu syarat utamanya. Kata siapa gue tidak tau orang nya siapa
 	<br><br>
