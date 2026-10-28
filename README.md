@@ -10,7 +10,7 @@
 <strong>	
 </strong>
 <strong>
-	Siapa habiskan uang pemerintah kalian bukan gue selama ini paham ya lapangan neraka makin luas untuk kalian karena rusaknya agama bukan dari penciptanya melainkan kuman kuman seperti kalian di luar sana berlindung di balik atas nama agama
+	Siapa habiskan uang pemerintah kalian bukan gue selama ini paham ya lapangan neraka makin luas untuk kalian karena rusaknya agama bukan dari penciptanya melainkan kuman kuman seperti kalian di luar sana berlindung di balik atas nama agama. omongan gue di pegang ya kuman kuman di luar sana
 	<br><br>
 	Orang banyak utang di luar sana apa ada jaminannya masuk surga ? Selevel nabi muhammad saja tidak bisa selamatkan orang punya utang apa lagi level kalian selevel chicken. Bunuh orang masih bisa masuk surga kalo dosanya sudah di hapus. Kalo utang paling berat
 	<br>
