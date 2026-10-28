@@ -10,7 +10,7 @@
 <strong>	
 </strong>
 <strong>
-	Siapa habiskan uang pemerintah kalian bukan gue selama ini
+	Siapa habiskan uang pemerintah kalian bukan gue selama ini paham ya lapangan neraka makin luas untuk kalian
 	<br><br>
 	Orang banyak utang di luar sana apa ada jaminannya masuk surga ? Selevel nabi muhammad saja tidak bisa selamatkan orang punya utang apa lagi level kalian selevel chicken. Bunuh orang masih bisa masuk surga kalo dosanya sudah di hapus. Kalo utang paling berat
 	<br>
