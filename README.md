@@ -12,6 +12,8 @@
 <strong>
 	Siapa habiskan uang pemerintah kalian bukan gue selama ini paham ya lapangan neraka makin luas untuk kalian karena rusaknya agama bukan dari penciptanya melainkan kuman kuman seperti kalian di luar sana berlindung di balik atas nama agama. omongan gue di pegang ya kuman kuman di luar sana
 	<br><br>
+Dari awal siapa buka lowongan kerja itu pasti pengikut setan untuk habiskan uang selama ini dengan tidak ada hasilnya 
+<br><br>
 	Orang banyak utang di luar sana apa ada jaminannya masuk surga ? Selevel nabi muhammad saja tidak bisa selamatkan orang punya utang apa lagi level kalian selevel chicken. Bunuh orang masih bisa masuk surga kalo dosanya sudah di hapus. Kalo utang paling berat
 	<br>
 	butuh tumbal nyawa suka jelek jelekin gue selama ini makin lama makin asik ya apa lagi skill coding di bawah gue jahu. Harus ada bukti fisik mayat nanti waktu pembelian. Kata siapa gue tidak tau orang nya siapa. Pengalaman anak bayi gue intelektual gue mirip pak Suharto ya bedanya umur gue masih muda
