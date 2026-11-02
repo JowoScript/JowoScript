@@ -10,7 +10,7 @@
 <strong>	
 </strong>
 <strong>
-siapa jadi benalu di dunia kerja selama ini terima gaji dan tunjangan  ? sudah habiskan uang berapa negara selama ini gue tanya di luar sana tapi tidak ada hasilnya ya. Gue tidak terima gaji dan tunjangan selama ini jadi santai siapa jadi benalu gue tanya di pemerintahan dan swasta. Setiap bulan perusahaan atau pemerintah gaji dan tunjangan pegawai saja sudah berapa di luar sana. Siapa jadi benalu di dunia kerja akan terlihat
+siapa jadi benalu di dunia kerja selama ini terima gaji dan tunjangan  ? sudah habiskan uang berapa negara selama ini gue tanya di luar sana tapi tidak ada hasilnya ya. Gue tidak terima gaji dan tunjangan selama ini jadi santai kerja sendiri di perusahaan sendiri siapa jadi benalu gue tanya di pemerintahan dan swasta. Setiap bulan perusahaan atau pemerintah gaji dan tunjangan pegawai saja sudah berapa di luar sana. Siapa jadi benalu di dunia kerja akan terlihat terus setiap waktu di luar sana
 	<br><br>
 	Siapa habiskan uang pemerintah kalian bukan gue selama ini paham ya lapangan neraka makin luas untuk kalian karena rusaknya agama bukan dari penciptanya melainkan kuman kuman seperti kalian di luar sana berlindung di balik atas nama agama. omongan gue di pegang ya kuman kuman di luar sana
 	<br><br>
