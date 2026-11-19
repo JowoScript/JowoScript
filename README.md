@@ -60,11 +60,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	<br><br>
 	Biaya sekolah naik setiap tahun belum biaya makan dan uang jajan ya. di baca kata kata gue di bawah
 	<br><br>
-	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya. Makin lama makin berat ya biaya hidup naik terus ya dan dunia usaha makin berat persaingannya ya. dibaca kata kata gue di bawah ya 
-	<br><br>
-	Selama ini masih hidup mereka ya bermasalah sama gue dulu tidak jahu dari teman main sudah terlihat siapa saja dulu salah satunya suka bicara buruk atau fitnah di belakang untuk adu domba biar pada mati dulu dengan bukti mayat salah satu syarat pembelian produk lisensi perusahaan gue ya. Gue lagi bersih bersih teman bermasalah sama gue selama ini. Di sekitaran saja gue tau gue teman bermasalah sama gue ya. Makin lama makin asik ya biar siapa jadi sampah masyarakat di luar sana. Biaya hidup naik terus ya apa lagi sudah punya anak mampus kalian. Pegang omongan gue pengalaman gue banyak. 
-	<br><br>
-	Biaya hidup naik terus ya setiap tahunnya kepala cenut cenut ya kalian. Siapa butuh di akhir juga bukan Muhammad Nurcahyo Pratomo. Makin lama makin asik ya siapa mati di luar sana di akhir. Waktu akan bicara biaya hidup naik terus ya kepala cenut cenut ya kalian apa lagi persaingan dunia bisnis makin berat setiap tahun nya ya dan dunia kerja makin berat ya efesiensi trus ya
+	Hukum produk teknologi gue buat merucut hukum otoriter. Hidup adalah pilihan ya. Makin lama makin berat ya biaya hidup naik terus ya dan dunia usaha makin berat persaingannya ya. dibaca kata kata gue di bawah ya
 	<br><br><br><br>
 	<img src="IMG_20261006_102710_854.jpg" title="Owner, Direktur, developer programing technology, Technology Architecture PT JowoScript Technology Indonesia"/>
 	<br>
@@ -110,8 +106,6 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 
 ##### Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia 
 
-##### Do you think the blow ? read difference and capabilities m)y products company. im talk before write indonesia because i'm from indonesia blood of Javanese
-
 ##### Perusahaan go publik pailit jatuh tempo kepada investor wajib bayar hutang yaitu modal dari investor. Beda kalo perusahaan sendiri tidak go publik dan modal sendiri. itu sudah aturan dari dulu. 
 
 ###### Original product has label powered by PT JowoScript Technology Indonesia. 
@@ -134,30 +128,6 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"
      height="100%" width="100%"></img>
-
-### Kelebihan bisnis untuk beli produk lisensi Kingdom Technology Environment
-<div align="justify">
-<ol>
-	<li>Orang di luar sana suka jelek jelekin gue wajib mati jadi mayat bukti fisik waktu pembelian produk lisensi nantinya itu salah satu syarat utamanya
-</li>
-	<li>Beli secara legal wajib ketemu gue (Muhammad Nurcahyo Pratomo) langsung dan selama ini belum ada beli langsung ke gue (Muhammad Nurcahyo Pratomo). Kita lihat siapa suka nipu di luar sana pasti mati mereka ya dan suka korupsi juga bukan gue ini selama ini mampus bersih bersih sampah itu mudah bukan</li>
-	<li>Buktikan saja di luar sana siapa jadi sampah selama ini ya..Buat film di danai belum tentu balik modal, buat Ai di danai belum tentu balik modal, buat aplikasi website pemerintah di danai belum tentu di gunakan selamanya setiap perubahan pasti tertinggal</li>
-	<li>Uang dan hukum aturan Muhammad Nurcahyo Pratomo untuk beli produk lisensinya</li>
-	<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha siapa suka nipu akan terlihat di dunia kerja siapa jadi sampah</li>
-	<li>Bisa bangun sekolah sendiri dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh sekolah lain atau mengakhiri plagiarisme untuk lulusan murid baru</li>
-	<li>Bisa bangun project baru dengan kapasitas lebih luas dan kompleks dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-	<li>Bisa bangun hak hukum dengan lisensi yang pasti dan tidak bisa di bajak</li>
-	<li>Bisa bangun usaha atau perusahaan assuransi baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-	<li>Bisa bangun usaha atau perusahaan bank baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-	<li>Bisa bangun kecerdasan buatan baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-	<li>Bisa bangun e-commerce baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-	<li>Bisa bangun media sosial baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-	<li>Bisa bangun content management system baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-<li>Bisa bangun media portal berita baru atau media siber baru dengan teknologi baru dengan lisensi hukum kuat dan tidak bisa di bajak oleh vendor lain</li>
-	<li>Bisa bangun new operasi sistem jika kamu tau caranya ya kalo gue tau caranya beda level skill</li>
-</ol>
-</div>
-
 
 ### Kingdom Technology Environment Support Capabilities Technology with license business with Original product has label powered by PT JowoScript Technology Indonesia :
 <div align="justify">
@@ -184,181 +154,6 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 	<li>Chy and Chy++ Programming Language no free license this part of products</li>
 </ol>
 		</div>
-			
-#### PT JowoScript Technology Indonesia small talk
-<div>
-	<ul>
-		<li>Orang di luar sana suka jelek jelekin gue wajib mati jadi mayat bukti fisik waktu pembelian produk lisensi nantinya itu salah satu syarat utamanya</li>
-		<li>PT Jowo script Technology Indonesia punya dasar hukum sendiri dengan berbadan hukum sendiri di produk perusahaan sendiri</li>
-		<li>Muhammad Nurcahyo Pratomo bukan jago coding saja tapi jago masalah keuangan finansial, legalitas dan hukum. Di luar ilmu professor. menteri ekonomi di pemerintahan bisa anak ayamku di akhir</li>
-		<li>Muhammad Nurcahyo Pratomo hanya menunggu setiap tahun perusahaan dan pengusaha modal dari hutang atau investasi pada jatuh tempo dan perusahaan go publik tidak ada profitnya pada tutup seperti cryptocurrency</li>
-		<li>Ada hukum an mati di produk gue kalo beli jadi baik baik berisik seperti gue tidak pernah becanda nantinya siapa ekseskusi jelas algojo bukan gue di akhir siapa bego itu kalian</li>
-		<li>Kuman kuman di danai pemerintah dan swasta hasil kerjanya apa selama ini hahahaha</li>
-		<li>Modal kecil jualan ayam saja atau jualan air galon saja ya kalian ya hahaha</li>
-		<li>Bumi tidak perlu di jaga karena goblok itu akan terlihat terus di dunia kerja. paham kata kata gue karena orang goblok selalu menutupi kekurangan nya itu fakta</li>
-		<li>Di catat untuk debat kusir. Mereka dulu kasih soal test ke Muhammad Nurcahyo Pratomo juga tidak peduli sakit kepala gimana</li>
-		<li>Paling enak nyiksa suka mainin Muhammad Nurcahyo Pratomo dulu ya dari lamar kerja, test kerja dan sejenisnya.</li>
-		<li>Harga produk tidak bisa di intervensi oleh aturan hukum di mana pun berada ya karena bukan hak kalian ya</li>
-		<li>Citizen miskin miskin tidak punya uang untuk beli produk nonton saja kalian nitizen. my easy talk. Mau adu argumentasi ?</li>
-		<li>Selama belum beli nonton saja kalian nitizen. Kalo mau hitung hitungan jelas perhitungan gue lebih besar karena selama ini gue juga tidak Nerima gaji dan tunjangan dari pemerintah atau investor. Apa lagi fasilitas negara selama ini juga gue tidak Nerima ya</li>
-		<li>Di danai pemerintah dan investor hasil kerjanya apa selama ini kalo mau debat kusir sama gue ya selama belum beli biar lebih goblok dari gue jadi pengangguran. Gue juga dulu di gituin lebih parah lagi ya bisa di baca perusahaan gue blacklist dan gue pengalaman lebih paham isi dunia kerja ya dari pada kalian pengangguran bego bego hidup lagi hahaha</li>
-		<li>Long Time ago I'm boring read and learn mastermind series books so I create doctormind series books not free</li>
-		<li>Orang Bermasalah sama gue mereka juga tidak berguna juga untuk orang lain simple logic. mudah bukan nandai orang bermasalah sama gue selama ini
-</li>
-		<li>Cari uang benar itu susah malah usik gue goblok. Di baca harganya kalo tidak punya uang jangan usik gue goblok. Harganya segitu ya pasti halal gue nentuin harga mau cair atau tidak urusan nanti itu siapa butuh juga bukan gue di akhir</li>
-		<li>Siksa saja punya hutang pinjol dan bank selama ini salah sendiri usik gue. Senggol gue pasti gue ratain ya senggol gue karena gue berbadan hukum</li>
-		<li>Asset perusahaan atau instansi pemerintah kalian apa selevel sama produk perusahaan gue sekarang ? Selama belum beli secara legal kalian tetap nonton</li>
-		<li>Gue tambahin lagi aturan baru kalo mau beli lisensi produk perusahaan gue wajib data sumber daya manusia wajib gue periksa siapa tau ada orang bermasalah sama gue. Kalo jadi pengangguran bisa apa dan kerja apa mereka atau usaha apa mereka</li>
-		<li>
-			Kerja di pemerintah sudah habiskan uang anggaran banyak selama ini hanya absensi saja selama ini ?
-		</li>
-		<li>Your can open console browser in your domain name government or company if don't have like powered by PT JowoScript Technology Indonesia that's still free license or empty license plate</li>
-		<li>Pengusaha modalnya dari investor selama ini tunggu saja jatuh tempo. Gue santai perusahaan milik sendiri dan modal sendiri selama ini buat produk. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini sombong siapa dulu sama persulit gue dan gue boss sendiri di perusahaan sendiri siapa lu mau atur atur gue</li>
-		<li>Perusahaan bangkrut itu urusan masing-masing kepada pemodal masing-masing. Gue lebih pintar dari pada buat soal test kerja selama ini paham ya tidak ada setir gue selama ini</li>
-		<li>Perusahaan go publik pailit jatuh tempo kepada investor wajib bayar hutang yaitu modal dari investor. Beda kalo perusahaan sendiri tidak go publik dan modal sendiri. itu sudah aturan dari dulu. Sekolah lagi kalian masyarakat kalo goblok jangan bikin malu saja kalian kalian di lihat lebih pintar. gue kasih tau contoh kecilnya kalian buka warung sendiri pakai modal sendiri dengan buka warung besar dengan modal investor</li>
-		<li>Do not invest in the Indonesian government or company Indonesia until you have license products from the company PT Jowoscript. Tehnology Indonesia </li>
-		<li>Makin lama makin asik ya siapa goblok selama ini kalian bukan gue. Kalian jadi pengangguran bisa usaha apa gue tanya goblok ? Fakta</li>
-		<li>Mau sodara sendiri saja wajib beli gimana orang lain apa lagi hanya teman karena perusahaan gue berstatus legalitas. Percuma kalian mau numpang atau bebanin saja ke sodara gue</li>
-		<li>Orang lebih goblok dari gue hanya bisa jadi provokator dan buat kerusuhan saja selama ini gue tau. Fakta ya makin lama makin asik ya biar mampus kalian jadi pengangguran dan tidak produktif.</li>
-		<li>It makes no difference to me who the president is, because I’m a company owner. Recent graduates who are unemployed—the people watching this—can't use PT JowoScript Technology Indonesia company's product features.</li>
-		<li>Apa orang orang fasih dulu persulit gue lupa apa dengan perbuatannya dan memutar balikan kata kata</li>
-		<li>Other people's blablabla no have results hahahaha</li>
-		<li>Siapa suka hasut meledak pasti habis ya selama ini mau fitnah gue siapa lagi</li>
-		<li>Hasil nepotisme di polri, TNI dan PNS semua wajib di bersihkan ya apa lagi tidak berkompeten habiskan uang pemerintah saja atau beban anggaran saja kalo di negara lain mana berani ya bersih bersih hasil nepotisme di kira gaji dan tunjangan kalian tidak pakai anggaran pemerintah selama ini dan setiap penerimaan pegawai baik itu polri, TNI dan PNS itu semua habiskan uang pemerintah ya. sekolah lagi Sono Ben pinter bukan banyak nuntut doang</li>
-		<li>Hasil nepotisme baik itu di instansi polri, TNI dan PNS jadi pegawai tetap semua akan terlihat di akhir baik itu rekrutmen pegawai hasil titipan pejabat atau jendral di daerah maupun pusat</li>
-		<li>Siapa habiskan uang pemerintah selama ini juga bukan gue ya. Proyek proyek semua ada datanya dan program pemerintah ya sudah habis uang berapa selama ini perpanjang kontrak gue tidak sentuh</li>
-		<li>Aturan Hukum Muhammad Nurcahyo Pratomo bersifat mutlak abadi tidak bisa di ganggu gugat oleh pihak manapun itu baik hukum adat dan pemerintah baik itu bersifat hiraki kerajaan, monarki, komunis, liberal dan seterusnya</li>
-		<li>Kalo hanya buat ulang aplikasi saja itu mudah sekali ya paling susah itu buat bahasa pemrograman dan environment</li>
-		<li>Tidak ada gabungan perusahaan karena produk jadi dan tidak gratisan. Mampus selana ini investasi biar paham siapa pailit</li>
-		<li>Selama masih hidup teman gue bermasalah sama gue dulu tidak bisa beli produk ya. ini syarat mutlak pembelian produk. semakin lama semakin asik ya/li>
-		<li>Mana berani badan kepegawaian negara nyalinya masih anak ayam or baby chicken hahahahaha lulus tidak pakai cat komputer itu banyak dari dulu jadi pns, polri dan tni ya status nya pegawai tetap bukan kontrak</li>
-		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja mereka termasuk numpang biaya hidup sebenarnya ya baik di pemerintahan atau swasta. Simple logic</li>
-		<li>Masih numpang biaya hidup di perusahaan dan pemerintah banyak bacot lewat music terlihat selama ini</li>
-		<li>Perusahaan milik sendiri tidak numpang hidup seperti kalian di perusahaan atau pemerintah fakta ya</li>
-		<li>Pemerintah banyak menerima pegawai baru dari dulu tapi pemasukan keuangan sedikit siapa goblok kalian dari gaji dan tunjangan besar saja sudah buat minus anggaran ya belum yang lain ya</li>
-		<li>Kalo saingan gue pengangguran dan pensiunan biar nonton terus selama belum beli ya</li>
-		<li>Orang pintar bicara berisik itu beda ya dengan goblok itu resiko selama belum beli siapa tumbang bukan gue</li>
-		<li>Semakin lama semakin asik ya semua itu ada audit keuangan ya</li>
-		<li>Di danai pemerintah teknologi informasi selama ini mereka kerja hasilnya apa ya. Gue pernah kerja dulu jadi paham siapa kena tekanan kerja terus 🤪 di akhir pada kena pecat dan efesien pegawai ya</li>
-		<li><b>Siapa suka nipu gue main keroyokan nanti gue keroyok balik habis kelompok kalian paham kata kata gue tidak pernah becanda ya</b></li>
-		<li>Tidak punya uang mau beli ya pasti gue ketawain ya tetap gue suruh pulang nanti ya karena produk tidak gratisan ya</li>
-		<li><b>Pembelian produk asli bukan palsu tidak di layani secara online tapi wajib datang ke tempat alamat perusahaan saya di JL Larinda Raya Barat No 10, Larangan, Kota Tangerang Banten. Produk tidak di jualan online ya. Wajib datang ke tempat untuk beli produk. Tinggal kunci no rekening penipuan kalo ada jual produk perusahaan saya secara online ya. Di luar itu perusahaan tidak akan bertanggung jawab atas produk palsu di jual online. Kalo salah mana berani kalian datang ya simple logic. Semakin lama semakin asik ya biar pada mati suka nipu</b></li>
-		<li>Modal ganteng atau cantik doang tidak berlaku zaman now bisa di lihat persaingan makin berat kedepannya dari dunia kerja atau dunia usaha ya</li>
-		<li>Kalo pengangguran dan skill coding di bawah gue biar pada mati bisa usaha apa mereka gue tanya ?</li>
-		<li>Kalo saingan gue Pengusaha modal sendiri goblok goblok nonton saja ya kalo miskin semakin lama semakin asik biar pada mati kelaparan di akhir oleh persaingan. Pegang omongan gue</li>
-		<li>Pengusaha modal sendiri goblok goblok nonton saja ya kalo miskin jangan beli ya</li>
-		<li>Di modali besar duluan oleh pemerintah atau investor belum tentu bisa buat produk gue ya. Waktu akan bicara ya siapa goblok dan pintar akan terlihat</li>
-		<li><b>Sekecil apapun usaha atau perusahaan gue tetap gue bossnya itu aturan dari dulu. Buat produk tidak pakai uang invenstor dan pemerintah. Siapa goblok kalian</b></li>
-		<li>Banyak Universitas menciptakan Gelar tinggi sampai doktor dan master banyak di Indonesia tapi menciptakan pengangguran mereka fakta apa bukan ? fakta ya semakin lama akan terlihat nanti</li>
-		<li><b>Hanya Muhammad Nurcahyo Pratomo bisa kembangkan produk jadi biar paham siapa jadi sampah selama ini kalian dan goblok selama ini kalian dan siapa tertawa di akhir itu Muhammad Nurcahyo Pratomo ya sesuai judul bukan semakin lama semakin asik ya biar pada mati goblok goblok</b></li>
-		<li>Harga produk tidak bisa kurang dan naik setiap new version biar mampus goblok goblok nanti setiap pemilihan presiden 5 tahun sekali siapa kena bantai itu kalian kerja bagian teknologi informasi tidak beli tapi di danai pemerintah atau invenstor pegang omongan gue lebih paham politik dalam dan luar negeri</li>
-		<li>Perusahaan nerima subsidi dari pemerintah banyak selama ini tapi tidak sadar diri mereka</li>
-		<li>Siapa di siksa terus kalian bidang bagian teknologi informasi kerja di pemerintahan dan swasta</li>
-		<li>Selama ini pemerintah , perusahaan swasta dan yayasan sekolah swasta atau sekolah milik negara belum ada beli jadi paham ya kalian siapa suka nipu selama ini habis kalian di akhir</li>
-		<li><b>Waktu akan bicara orang goblok di dunia kerja akan bermunculan terus ya putar disitu terus kalian buat website dan Ai makin lama makin asik ya terlihat siapa goblok selama ini siapa tertawa di akhir itu gue ye dan siapa suka berbohong nipu bukan gue ya dari awal sudah gue kasih tau siapa goblok selama ini</b></li>
-		<li>Siapa buka lowongan kerja selama ini kalian mampus bayar pesangon pegawai kalo pemutusan hubungan kerja. Perusahaan gue sendiri saja tidak pernah buka lowongan kerja biar pada mati bego bego dari gue ya makan tuh test masuk kerja dulu makin lama makin asik ya</li>
-		<li><b>Saldo sedikit usaha ayam saja kalian jangan beli produk perusahaan gue ya paham kata kata gue. Harganya bisa di baca ya kalo goblok sekolah lagi sana ya</b></li>
-		<li><b>Hanya menunggu waktu perusahaan mana pailit kedepannya</b></li>
-		<li><b>Hanya menunggu waktu kerja di pemerintahan kena pecat siapa tidak berguna juga</b></li>
-		<li>Anak teknologi informasi lebih goblok dari gue biar jadi pengangguran abadi bales dendam gue itu nyata ye siapa persulit gue dulu mampus kalian. Semakin lama semakin asik siapa tumbang itu kalian pegang omongan gue ye</li>
-		<li>Even Microsoft and Google don't want to mess with me because they will lose money in the future</li>
-		<li><b>Di akhir di tanyain hasil kerja kalian apa selama ini mampus bego bego di danai pemerintah dan invenstor ya  tidak mampu buat produk ya kalian di akhir di penjara atau sejenisnya</b></li>
-		<li>Bales dendam gue itu nyata gelar doktor dan master kerja di pemerintahan atau swasta tidak menjamin pintar bagi gue</li>
-		<li>Gaji dan tunjangan saja selama ini sudah minus banyak kerja di pemerintahan selama ini hanya bisa habiskan anggaran saja tapi tidak berguna untuk rakyatnya</li>
-		<li>Gaji dan tunjangan saja selama ini sudah minus banyak pengeluaran perusahaan go publik seperti asuransi, tambang dan lain lain bicara pemasukan perusahaan lebih besar dari pengeluaran perusahaan akan terlihat terus kedepannya siapa pailit di akhir. Selevel komisaris saja diam mereka kalo gue sudah bicara begini jadi wawasan gue lebih luas ya</li>
-		<li>Emang bego selama ini terbukti kalian karena orang bego itu tidak mau sadar diri ya. Semakin lama semakin asik ya produk gue berkembang terus kalian jadi pecundang nonton terus dan buat juga belum tentu mampu ya mau gelarmu tinggi tetap hasilnya sama ya hahaha makan tuh gila pengakuan gelar tinggi tinggi dari master sampai doktor hahaha that nothing for me hahaha sombong di bales sombong seperti nya adil ya</li>
-		<li>Muhammad Nurcahyo Pratomo not work in government or other company. He work alone forever in own company at PT JowoScript Technology Indonesia. Sesuai Judul mampus orang orang bego di dunia kerja</li>
-		<li>Muhammad Nurcahyo Pratomo NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja pada mati suka nipu di akhir semakin lama semakin asik kalian akan mati kena siksa di dunia kerja pegang omongan gue apa perlu gue translate ke inggris biar kalian panik ? sesuai judul siapa goblok sok pintar dari gue jadi mainan gue di akhir makin lama makin asik siapa tumbang kalian</li>
-		<li>PT JowoScript Technology Indonesia NO NEED INVESTOR or INVEST and The Product its not free thats fair. Sesuai Judul mampus orang orang bego di dunia kerja</li>
-		<li><b>Jangan ada investasi selama belum beli ya. Awas penipuan investasi dan sejenisnya ya baik baik kalian</b>
-		Don't invest until bought. Beware of investment scams and the like, everyone
-		</li>
-		<li>Semakin lama next generation lebih goblok dari Muhammad Nurcahyo Pratomo akan mati juga mereka akan nonton terus ya selama belum beli bales dendam gue itu nyata waktu akan bicara ya</li>
-		<li>Muhammad Nurcahyo Pratomo tidak perlu sekolah lagi ambil gelar tinggi tinggi karena sudah terlihat siapa pintar dan goblok fakta ya</li>
-		<li><b>Sebuah kejahatan juga bagi Muhammad Nurcahyo Pratomo dulu lamar kerja masuk test kerja di persulit ya gantian mampus siapa goblok sebenernya semakin lama semakin asik ya orang goblok akan bermunculan terus di dunia kerja</b></li>
-		<li>Proyek Sistem aplikasi di pemerintahan dulu dulu sudah jadi sampai sekarang putar disitu saja ya syukur siapa goblok selama ini</li>
-		<li><b>PT JowoScript Technology Indonesia tidak menerima gabungan perusahaan dan tidak menerima lowongan kerja. Muhammad Nurcahyo Pratomo bekerja sendiri selamanya di perusahaan PT JowoScript Technology Indonesia sebagai pemilik perusahaan dan pembuat produk</b></li>
-		<li>Muhammad Nurcahyo Pratomo menunggu waktu perusahaan mana lagi bangkrut atau pailit tahun ini ya buktikan saja laporan keuangan perusahaan kalian tahun ini. Bicara untung tapi rugi terus nanti terlihat.</li>
-		<li>Muhammad Nurcahyo Pratomo terus berkembang di rumah siapa goblok selama ini kalian tidak punya uang untuk beli produk pasti nonton terus kalian jadi pengangguran dan tidak produktif fakta ya baca harga lisensinya ya punya uang segitu apa siapa miskin kalo tidak punya uang untuk beli simple logic. Muhammad Nurcahyo Pratomo hidup sederhana Tidak punya hutang setiap hari bisa makan, jajan, udut dan kopi kalian belum tentu bisa kerja terus ya sampai mati di kantor hahahaha fakta itu resiko jadi orang goblok di dunia kerja</li>
-		<li>Produk otomatis terkunci jika pembelian sudah melewati tanggal di tentukan karena orang gpblok selama ini mau niru belum tentu mampu buat produk ya sesuai kata kata gue   semakin lama semakin asik siapa goblok akan bermunculan terus di dunia kerja. Di modalin pemerintah duluan kalian percuma kalo goblok tetap tidak bisa niru buat produk ya siapa pailit selama ini akan terlihat terus menerus</li>
-		<li>Muhammad Nurcahyo Pratomo tidak cari uang ya seperti kalian karena orang pintar mencetak nilai, bisnis dan masa depan. Uang mencari bukan sebaliknya. Ada sejarah nya uang mencari orang goblok ? tidak ada. Mampus persulit gue dulu test masuk kerja hahaha pasti kena pancal endase di dunia kerja yakin gue hahaha tidak gratisan ya mampus kau bego bego</li>
-		<li>Kalo tidak punya uang beli produk ya nonton saja semakin lama semakin asik siapa goblok akan bermunculan terus di dunia kerja</li>
-		<li>Mau di keroyok satu bumi gelar doktor dan master tetap kalian tidak bisa buat nonton teruskan fakta karena sendiri pengalaman asli itu beda. Orang pintar seperti Muhammad Nurcahyo Pratomo mana mau gaji kecil dan tunjangan kecil biar goblok dari Muhammad Nurcahyo Pratomo jadi pengangguran dan tidak produktif. Semakin lama terbukti ya siapa goblok dan pintar</li>
-		<li>Lulus test kerja tidak menjamin pintar di dunia kerja ya itu fakta karena pengalaman asli itu beda level dengan pengalaman hanya absensi saja</li>
-		<li>Resiko persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja ya. Biar paham siapa goblok selama ini dan tidak gratis produk selamanya dan semakin lama semakin asik ya akan terlihat siapa gpblok selama ini di dunia kerja dan siapa tidak produktif kalian.</li>
-		<li>Bagian bidang Teknologi Informasi mau coba nipu Muhammad Nurcahyo Pratomo di akhir kalian akan kesusahan sendiri ya dan habis kalian di akhir</li>
-		<li>Produk palsu dan asli itu beda siapa goblok dungu kalian</li>
-		<li>Pengusaha suka nipu Muhammad Nurcahyo Pratomo kalian sendiri kena masalah di akhir bukan Muhammad Nurcahyo Pratomo selama belum beli siapa pengangguran itu kalian tapi tidak sadar diri semakin lama semakin asik ya siapa goblok selama ini kalian ya</li>
-		<li>Kalian bangun gedung duluan belum tentu ada isinya mau bisnis apa gue tanya ye kalian siapa goblok selama ini bukan Muhammad Nurcahyo Pratomo dan hanya Muhammad Nurcahyo Pratomo pemilik bisnis bisa kembangkan produk kingdom technology environment dan banyak lagi produk ya</li>
-		<li><b>Selama ini pemerintah Indonesia juga tidak ada kontribusi besar kepada perusahaan PT JowoScript Technology Indonesia ya dan kepada Muhammad Nurcahyo Pratomo sebagai  pemilik bisnis juga pemerintah Indonesia tidak punya kontribusi besar selama ini. Tidak ada gratisan produk ya mau berhitung dan adu argumentasi gue ladenin kalian</b></li>
-		<li><b>Perusahaan merugi terus selama ini biar pada tutup ya biar merasakan jadi pengangguran tidak nerima gaji dan tunjangan bulanan nemenin gue kalian remehkan dulu biar mampus bisa apa kalo goblok ya kalian dan jangan lupa perusahaan merugi terus selama ini bayar hutang ke pemodal ya</b></li>
-		<li><b>PT JowoScript Technology Indonesia produk tidak ada gratisan, buat produk modal sendiri tidak menggunakan uang pemerintah atau investor, tidak menerima lowongan kerja dan tidak ada gabungan perusahaan. Siapa tumbang itu kalian di akhir goblok goblok level nya buat website dan Ai saja selama ini minta di danai besar besar selama ini</b></li>
-		<li>HRD jelas mereka hire orang ya selama ini fakta pegang kunci jawaban soal test masuk kerja hanya HRD saja ya bukan pimpinan hire orang selama ini dan bukan pimpinan pegang kunci jawaban soal test masuk kerja selama ini. HRD harus paling tanggung jawab kalo perusahaan hancur kenapa perusahaan gue tidak butuh HRD kedepannya karena gue belajar semuanya ya. Pimpinan perusahaan harus punya kendali penuh sebagai nahkoda jadi hire sampai test pegawai wajib pimpinan perusahaan ada</li>
-		<li>Kerja di pemerintahan belum tentu aman mereka karirnya karena kalo goblok pasti di singkirkan atau di pecat karena pengalaman kerja duluan lebih paham ya kalian banyak gaya goblok goblok mampus kena pancal endase setiap hari hahaha termasuk HRD jelas mereka hire orang ya selama ini fakta pegang kunci jawaban soal test masuk kerja hanya HRD saja ya bukan pimpinan hire orang selama ini</li>
-		<li><b>Mana ada produk perusahaan PT JowoScript Technology Indonesia buat gagal kalian saja bego dungu selama ini ya. Skill asli Muhammad Nurcahyo Pratomo lebih badai kalian prediksi dan kalian lebih paham di internet saja selama ini. Siapa goblok selama ini kalian sebenarnya ya hanya buat soal test masuk kerja bisanya</b></li>
-		<li>Perusahaan tidak beli produk perusahaan gue pasti akan tumbang di akhir semakin lama akan terlihat siapa suka nipu ya apa lagi minta di danai selama ini ya</li>
-		<li>Kalian bermasalah sama gue kalo di pecat jadi pengangguran bisa apa gue tanya ya ? resiko biar merasakan jadi pengangguran kalian dan gue tidak takut sama orang-orang bermasalah sama gue ya biar mampus kalian jadi pengangguran dan waktu akan bicara ya</li>
-		<li>Perusahaan sudah gue blacklist goblok goblok mereka selama ini ya semakin lama perusahaan masuk blacklist akan tumbang tutup di akhir pegang omongan gue siapa tidak punya masa depan mereka</li>
-		<li>Semakin lama semakin asik sampah sampah akan terlihat terus di dunia kerja pemerintah atau swasta bisa lulus test kerja belum tentu kuat kerja, disiplin kerja dan pintar kerja ya. Resiko kalian kena pecat dan masuk blacklist kalo goblok tidak bisa kerja jadi pengangguran, tidak produktif dan jadi sampah kalian</li>
-		<li>Namanya orang kaya asli itu tidak punya hutang seperti kalian punya hutang banyak gaya mampus tidak masuk surga kalian. Apa ada jaminan nya orang punya hutang masuk surga ? tidak ada mau nabi Muhammad saja tidak bisa nolong ya. paham kata kata gue ya. jika amal kalian banyak tidak bisa nolong kalo punya hutang ya</li>
-		<li>Biar mereka cari uang sendiri goblok goblok selama ini mau minta di modali terus dan jangan lupa bayar hutang ke pemodal kalian gagal bayar mampus</li>
-		<li><b>Muhammad Nurcahyo Pratomo or tomi nama panggilannya direktur sendiri di perusahaan PT JowoScript Technology Indonesia bisnis owner baik baik kalian suka menghina dan remehkan selama ini bisa bisa kepala kau di injak yang ada. Sudah masuk blacklist Muhammad Nurcahyo Pratomo itu derita kalian. Di baca status hukum pemilik perusahaan PT JowoScript Technology Indonesia jadi penampilan keren tidak menjamim boss ya</b></li>
-		<li>Semakin lama semakin asik baca baik baik kata katanya</li>
-		<li><b>Anak muda sudah tidak ada skill, miskin, pengangguran, goblok, masuk kerja lewat orang dalam, hidup dan banyak gaya akan terlihat terus kedepannya</b></li>
-		<li>Siapa jadi babu selama ini kalian kerja di pemerintahan dan perusahaan orang selama ini tidak bisa kerja itu resiko kena pecat kalian terus masuk blacklist. Gue bicara apa adanya mampus. kejar target sekian sekian bukan babu namanya dan masuk wajib jam sekian telat potong gaji dan lembur tidak di bayar itu kalian jadi babu bukan gue dan siapa untung atasan lu bego sih</li>
-		<li><b>Buat aplikasi mahal mahal di bayar menggunakan bahasa pemrograman gratisan mampus siapa goblok selama ini</b></li>
-		<li>Semakin lama setiap tahun nambah lulusan semakin asik siapa goblok abadi dan pengangguran abadi dan tidak produktif abadi kalian ya bukan gue</li>
-		<li><b>Kalo miskin sadar diri kalian tidak punya uang untuk beli produk ya nonton saja kalian siapa pengangguran dan tidak produktif selama ini kalian. banyak gaya tapi goblok itu banyak anak muda zaman now hasil kerja titipan orang tua dan sebagainya tapi skillnya standar saja</b></li>
-		<li>Perusahaan di danai akhir tahun buat laporan keuangan siapa bilang untung tapi minus aslinya. siapa jadi sampah akan terlihat kedepannya terus</li>
-		<li><b>Kalo punya nyali mau cari masalah sama gue minta sama gue langsung sini mampus kalian jadi banci selamanya produk asli dan palsu itu beda level ya. siapa mencuri produk palsu gue akan terlihat mampus bego bego. mana ada pencuri produk gue mau ngaku biar mampus mereka goblok goblok apa lagi sampai di jual untuk keuntungan mereka ya. Mudah menangkap pencuri produk gue buat ya siapa masuk penjara kalian di akhir</b></li>
-		<li>Kalian hrd bermasalah sama gue dulu di pecat jadi pengangguran abadi paham dan skill kelebihan kalian apa gue tanya ? mudah di gantikan juga ya. Makan tuh psikotes dulu. mampu sendiri buat perusahaan dan produk sendiri hahaha apa lagi sudah zaman ai makin nyungsep kalian terlihat lebih gobloknya fakta ya mampus jadi robot selamanya hahaha dan iblis pun lebih pintar beribadahnya dulu so paham sampai sini kata kata gue orang orang munafik dan apa iblis di jamin masuk surga oleh allah gue tanya ? tidak ya</li>
-		<li>Susah sendiri selama ini kalo sukses tidak butuh queen atau pacar ya sorry. wanita zaman now mau enaknya doang biar mampus mereka juga apa lagi miskin dan goblok hanya pewaris doang bangga tidak ada nilainya di mata gue. hanya modal cantik doang tidak ada nilainya di mata gue anak zaman now namanya lonte dan lc lebih banyak cantik itu fakta. thats my rules too</li>
-		<li><b>Dekat komplek suka mantau gue biar mampus mereka jadi pengangguran abadi dan tidak produktif abadi. Perusahaan siapa pailit bayar hutang ke pemodal juga bukan perusahaan gue ini ya. Siapa mencuri produk gue tanpa izin mampus kalian main main sama yg lebih pintar. Mudah menangkap pencuri produk gue buat ya siapa masuk penjara kalian di akhir</b></li>
-		<li>Publik figur selama ini hasil kerjanya apa mereka ya gaji + tunjangan besar dan berguna tidak untuk rakyanya kalo hanya bicara saja bukan level Muhammad Nurcahyo Pratomo</li>
-		<li>Jago coding banyak gaya selama ini belum tentu bisa jadi tukang bangunan seperti Muhammad Nurcahyo Pratomo dan M Nurcahyo Pratomo lebih paham buat bahasa pemrograman ya. beda level ya skill nya orang goblok dan pintar.</li>
-		<li>Tidak ada perlindungan untuk musuhnya Muhammad Nurcahyo Pratomo dan teman bermuka dua dan persulit dulu test dan bullying ya paham sampai sini. baru 4 tahun sudah banyak sampah terlihat berjatuhan dan semakin lama akan terlihat siapa emas asli dan emas busuk</li>
-		<li>Kerja di pemerintahan tidak berguna tetap saja kena pancal endase di dunia kerja hahaha mampus kalian hahahaha dan kalian kalo jadi pengangguran bisa apa gue tanya skill juga standar karena gue pengalaman kerja sama orang ya sudah pernah merasakan pahitnya dunia ya. Siapa goblok selama ini kasih gaji dan tunjangan profesi besar besar selama ini bukan gue ya</li>
-		<li><b>Level nya buat website doang dari dulu sampai sekarang siapa goblok dan miskin sebenarnya menggunakan bahasa pemrograman gratisan selama ini ✍️📚</b></li>
-		<li>Semakin lama semakin asik ya perusahaan mana lagi tidak berguna di danai pemerintah dan investor</li>
-		<li><b>PT JowoScript Technology Indonesia modal sendiri dan produk buat sendiri dan tidak gratisan produk nya terbukti siapa goblok dan miskin selama ini</b></li>
-		<li>Siapa goblok selama ini ya jaminan nya apa kalian mau beli produk perusahaan gue buat. Selama ini gue juga belum nerima jaminannya ya dari pemerintah Indonesia. Dana asing keluar dari Indonesia bukan urusan gue itu resiko selama gue tidak nerima jaminannya dari pemerintah Indonesia mau berbohong itu urusan kalian waktu akan bicara terus siapa rugi juga bukan gue ya harga produk perusahaan gue sendiri naik terus selama ini</li>
-		<li>Orang persulit Muhammad Nurcahyo Pratomo dulu test masuk kerja merasa paling pintar gimana kabarnya perusahaan nya sekarang. jika alesan aturan so im the rules too in my company and my product dan modal sendiri ya. mereka kalo tidak bisa buat produk lebih dari gue paatenin wae</li>
-		<li>Semakin lama semakin asik ya perusahaan mana jatuh tempo bayar hutang mampus kalian banyak gaya sama gue. The checkmate forever. Mampus buka lowongan kerja selama ini</li>
-		<li>Perusahaan mana lagi pailit ke pemodal tahun 2026 ya</li>
-		<li>Kingdom Technology Environment not support Artificial Intelligence for new programing language because commercial products easy talk baby hahahaha. why not support Ai in IDE Kingdom Technology Environment simple answer your must learn not like kids copy and paste. Sesuai judul semakin lama orang goblok di dunia kerja akan bermunculan terus mau kerja di pemerintahan atau swasta waktu akan bicara. Kalo saingan gue pengangguran atau pengusaha sampai mati kalian tidak akan mampu buat ya itu resiko kalo miskin tidak punya uang untuk beli ya nonton saja. Kalo mau nipu gue jadi mainan gue di akhir sudah paham skill coding gue jahu berbeda ya.</li>
-		<li>New capabilities in kingdom technology environment having start and stop JavaScript and V8 machines or (JavaScript and WebAssembly engine) My note only IN OS SO YOUR CANNOT EITHER TO OTHER HOST so the machine main no conflicts to other host and only stupid people propaganda to me until now. only in kingdom technology environment fiture interface. This support all engine browser and web view engine. My notes Firefox and Chrome is difference of engine, i try kingdom technology environment smoothly in my computer or laptop or phone</li>
-		<li>Dalam bahasa pemrograman titik koma spasi saja salah otomatis error semua itu bedanya orang pinter dan goblok. contohnya sudah gue blacklist mereka berputar disitu saja terus lamanya bekerja menjadi pegawai tetap tidak menjamin pinter bisa jadi dulunya penjilat atasan, hasil titipan atau sejenisnya. . Orang goblok akan terlihat terus kedepannya di dunia kerja sesuai judul dan sudah jelas adu argumentasi di internal antara pimpinan sama bawahaan jelas ada. Mereka goblok buat alesan kasihani M Nurcahyo Pratomo untuk apa ya dari skill coding kalah jahu kalian, perusahaan milik sendiri, produk milik sendiri, paham bisnis, hukum, ekonomi dan politik. Semakin lama sesuai kata kata Muhammad Nurcahyo Pratomo ya lebih jago skill codingnya, paham hukum, ekonomi dan politik. Siapa kena pancal endase di dunia kerja setiap hari tetap kalian ya syukur mau di kantor atau di rumah itu resiko kerja di pemerintahan atau swasta. Bisa di lihat kingdom technology no free buatnya tidak mudah dan susah karena gue buat langsung sendiri. buat compile, debug dan sejenisnya belum break point tidak mudah buatnya ya dan hanya Muhammad Nurcahyo Pratomo saja bisa kembangkan karena sangat sangat susah dan kompleksitas nya tinggi buat IDE karena buatnya dari noll semua itu disebut lebih jago skill codingnya bukan level copy and paste then edit. Sambil buat produk sambil bales ke orang orang goblok dulu persulit gue itu nikmat sekali. lebih susah buat IDE dari pada buat ERP dan SAP gue kasih tau ya</li>
-		<li>Muhammad Nurcahyo Pratomo belum berhitung saja selama ini kalo mau adu argumentasi selama ini. kalian terima gaji dan tunjangan setiap tahun di hitung totalnya berapa kali nerima habiskan uang berapa selama ini itu hanya dasar saja belum yang lainnya. itu kenapa orang goblok selalu nyuruh kerja kalo kalah skill coding dan dulu gue nawarin diri di persulit test masuk kerjanya dan berapa banyak gue lamar kerja dulu pasti gue catat ya dan siapa goblok selama ini akan terlihat terus kedepannya terbukti berputar disitu saja kalian selama ini</li>
-		<li>Kalo saingan Muhammad Nurcahyo Pratomo itu pengangguran dan skill coding biasa biasa saja biar mereka gali kuburan masing masing atau berkelompok karena punya pengalaman sebenarnya itu bukan lamanya bekerja ya tapi hasil karya sendiri tidak butuh cv lu keren kalo goblok. lamanya berkerja kalo goblok itu banyak sebenarnya di pemerintahan dan swasta tapi tidak mau terlihat saja selama ini. Semakin lama akan terlihat juga goblok goblok</li>
-		<li>Habis dollar naik biasanya kebutuhan pokok akan menyusul naik di akhir itu prediksi saya kedepanya. Banyak ya laporan pejabat, jendral dan anggota dewan hartanya naik terus biar paham rakyat ya. siapa goblok selama ini. biar gaji dan tunjangan di pemerintah kena potong semua di akhir. tidak ada kenaikan gaji dan tunjangan setiap tahun ya mungkin sebaliknya penurunan gaji dan tunjangan kalo dollar to rupiah naik terus. </li>
-		<li><b>Hutang Indonesia saya kira 1000 Triliun rupiah ternyata lebih parah 10.000 Triliun rupiah siapa mau bayar hutang segitu banyak jelas bukan Muhammad Nurcahyo Pratomo nantinya biarkan saja bego bego di siksa terus di dunia kerja sampai mati. Perusahaan BUMN di subsidi pemerintah selama ini ada datanya jadi jangan banyak gaya dan apa lagi kerja di BUMM mampu bayar hutang pemerintah tidak jika mau hitung hitungan ya perbulan kalian habiskan uang berapa selama ini dari pemerintah dan belum pejabat nya ya suka habiskan uang pemerintah banyak</b></li>
-		<li>Selama ini masih terbentur sama hukum di Indonesia jadi santai Muhammad Nurcahyo Pratomo kalo di beli wajib baca ya di bawah. selama ini blacklist or patenin saja bermasalah sama Muhammad Nurcahyo Pratomo or tommy paham sampai sini selama masih hidup orang bermasalah tidak bisa di beli ya terbukti sampai sekarang siapa mau berbohong silahkan ya dan Muhammad Nurcahyo Pratomo bukan orang bodoh selama ini ya terbukti sampai sekarang. Dollar naik terus siapa akan mati orang bermasalah sama Muhammad Nurcahyo Pratomo or tommy di akhir pasti gue habiskan secara militer kalian di akhir. Sodara Muhammad Nurcahyo Pratomo berhak blacklist suka cari masalah juga ya thats tonmy rules too. Sengaja gue benturkan dulu di amerika sama di Indonesia bermasalah sama Muhammad Nurcahyo Pratomo. Siapa goblok selama ini</li>
-		<li>Selama ini Muhammad Nurcahyo Pratomo tidak merugikan (Maling uang kalian juga tidak) dan di rugikan Muhammad Nurcahyo Pratomo selama ini siapa nyerang dan bermasalah pasti di blacklist dulu dan eksekusi nya nanti kalo mau beli termasuk musik jeduk jeduk di medsos lihat saja nanti siapa penyusup dan intimidasi lewat music semua di sengaja pasti di habiskan secara militer di akhir kalian karena jadi pengamat dan pendengar lebih bahaya selama ini. Aturan Muhammad Nurcahyo Pratomo tetap berlaku kalo mau beli. Hukuman mati ada di aturan Muhammad Nurcahyo Pratomo</li>
-		<li>Muhammad Nurcahyo Pratomo tetap jowoscript technology forever mampus goblok goblok dan pengangguran kalian putar disitu saja ya tidak produktif dan berkembang apa lagi baru lulus sekolah makin berat ya persaingan itu jelas. biar pada mati dulu bermasalah sama Muhammad Nurcahyo Pratomo</li>
-		<li>Prediksi Muhammad Nurcahyo Pratomo itu IKN Kalimantan Timur itu untuk kartu Joker nya politik 2029 ya siapa mau pindah ke IKN wahai PNS, Polri dan TNI salah pilih kalian akan pindah</li>
-		<li>Pemerintah Indonesia hutangnya banyak bukan urusan Muhammad Nurcahyo Pratomo siapa berhutang presiden selama ini kepada negara-negara. Pemerintah Indonesia kalo mau beli produk Muhammad Nurcahyo Pratomo ya pemerintah Indonesia wajib hukumnya tunduk apapun jenisnya baik itu perdata, pidana, dan seterusnya oleh aturan hukum Muhammad Nurcahyo Pratomo. Selama ini belum beli juga pemerintah Indonesia jadi biarkan saja hutang Indonesia naik</li>
-		<li>Jendral jendral aktif suka main proyek di balik layar tidak ada kebal hukum ya kalo salah dan melanggar undang-undang apa lagi merugikan negara ya</li>
-		<li>Perusahaan merugikan negara selama ini sikat saja semuanya</li>
-		<li>Di lapangan realitas nya instansi pemerintah sudah banyak anggaran closed ya syukur goblok dan pengangguran dan Muhammad Nurcahyo Pratomo tetap santai buat produk tidak pakai anggaran pemerintah selama ini</li>
-		<li>Kasus koruptor di Mendikbud tetap jalankan sampai sistem buat aplikasi ya dan orang orang IT nya terlibat juga itu semua di data saja pasti banyak kabur yakin gue hahaha kerugian negara wajib ganti mereka sita semua asset nya kelar</li>
-		<li>PT JowoSctipt Technology Indonesia dont have partnership distribution products with the permission legals from Muhammad Nurcahyo Pratomo. Note JavaScript, TypeScript, etc is free no need distribution and permission legals</li>
-<li>
-	PT JowoScript Technology Indonesia does not have any open job vacancies and does not need employees because the owner company Muhammad Nurcahyo Pratomo, has been working alone all this time making products and all products its not free too.
-	</l>
-		<li>
-			PT JowoScript Technology Indonesia tidak membuka lowongan kerja dan tidak butuh karyawan karena owner nya Muhammad Nurcahyo Pratomo kerja sendiri selama ini buat produk tidak butuh bantuan ya karena skill coding lu masih di bawah gue jahu ya fakta karena akan jadi beban gue nanti ya banyak nanya dan sebagainya nanti minta ajarin ke gue cara buat ini itu goblok namanya ya jadi beban bukan sesuai judul tidak butuh bantuan gue buat produk ya kalo merasa pintar dari gue mampu buat lebih tidak dari gue buat semua ada screenshot di Facebook ya buatan gue sendiri karena orang goblok itu banyak sok pintar di zaman now hasil copy and paste ya itu fakta. Semakin lama akan terlihat orang goblok di dunia kerja waktu akan bicara ya
-		</li>
-		<li>PT JowoScript Technology Indonesia tidak menggunakan uang investor dan pemerintah selama ini buat produk sendiri. Baca harga kalo mau beli produk kalo mau nipu gue kalian akan jadi mainan gue di akhir ya. Kalo tidak punya uang untuk beli ya nonton saja 2024-2029 terlihat perusahaan siapa tidak berguna di danai selama ini</li>
-		<li>Aturan di buat oleh Muhammad Nurcahyo Pratomo tetap berlaku jika mau beli produk dan tidak bisa di ganggu gugat oleh pihak manapun (ada hukuman mati ini aturan ya). Hukum kekal dan tetap. Siapa bego jadi sampah abadi setiap tahun nambah lulusan sekolah dan universitas. Muhammad Nurcahyo Pratomo juga santai ya siapa goblok juga</li>
-		<li>Siapa pun itu pemimpin pemerintahan nya selama tidak beli kalian akan nonton terus ya</li>
-		<li>Pemerintah tidak punya uang kenapa selama ini Nerima pegawai ya semua ada datanya dari 2011 keterima pegawai pemerintah jadi pns, polri dan TNI banyak ya so siapa goblok selama ini. Nasi sudah jadi bubur siapa goblok ya susah pecat nya di akhir</li>
-		<li>Gaji dan tunjangan pegawai termasuk menghabiskan anggaran ya itu juga belum tentu ada hasilnya ya sampai sekarang</li>
-		<li>Buat website di danai habiskan triliunan dan ai juga banyak menggunakan bahasa pemrograman gratisan ya siapa goblok selama ini jelas bukan Muhammad Nurcahyo Pratomo ya</li>
-		<li>JowoScript, Kingdom Technology Environment, Jowo Kingdom Machine, JML, JHTML dan produk masih proses pembuatan oleh Muhammad Nurcahyo Pratomo hasil format adalah file exe produk aslinya butuh installer dan tidak gratisan dan hanya Muhammad Nurcahyo Pratomo bisa kembangkan juga semua produknya</li>
-		<li>Semua ada laporan keuangan dan audit keuangan di pemerintah jadi percuma kalo mau nipu Muhammad Nurcahyo Pratomo ya dan kalian goblok miskin ilmu agama tidak paham semua di catat oleh malaikat jadi percuma kalo mau nipu Muhammad Nurcahyo Pratomo ya</li>
-	</ul>
-</div>	
-
 #### Who Muhammad Nurcahyo Pratomo
 <div>
 	<ul>
