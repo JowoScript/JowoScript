@@ -4,6 +4,8 @@
      title="PT JowoScript Technology Indonesia"
      alt="PT JowoScript Technology Indonesia"     
      height="150px" width="150px"></img>
+
+	<img src="1795601707885.jpg" title=="Commercial License" alt="Commercial License" height="100%" width="100%"></img>
 </a>
 </div>
 <div align="center">
