@@ -234,6 +234,7 @@ Setiap tahun lulusan universitas dan sekolah bidang teknologi informasi banyak y
 ### Blacklist data is problematic with its Muhammad Nurcahyo Pratomo based on name company (This will update in kingdom technology environment, jowoscript, js3, etc), all data will increase over time stay tune. The relations partner will be blacklist too (After i blacklist They black days the future). They never think 10 years or more about technology information 
 <div align="justify">
 <ol>
+	<li>Polisi Indonesia ledek gue sebagai buzzer selama ini</li>
 	<li>Di dalam blacklist belum di luar blacklist tidak terlihat teman gue bermasalah dulu pasti kerjanya di tempat lain tetap ketahuan di akhir</li>
 	<li>Teman gue bermasalah sama gue harus mati dengan bukti mayit nya jika mau beli produk perusahaan gue ya</li>
 	<li>Bank BRI lulusan dari Fasilkom Universitas Indonesia pernah bermasalah sama gue hutang uang tidak bayar kelahiran 1985-1986 nama Mega Puspitasari dan Muhammad rizalul haq dan bule lingkaran setan semua mereka must die. Suka main judi online dulu mereka tidak percaya tanya saja orang kenal mereka</li>
